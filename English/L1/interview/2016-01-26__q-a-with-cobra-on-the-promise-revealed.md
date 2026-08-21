@@ -1,0 +1,133 @@
+<!-- card: interview/2016-01-26__q-a-with-cobra-on-the-promise-revealed | 2016-01-26 | Q&A with Cobra on The Promise Revealed -->
+[Publication date] 2016-01-26
+[Historical events]
+- Late 1970s to 2001-2002: Cloning for ritual use occurred.
+- 2014: Anna von Reitzinger letter circulated.
+- 2015-12-31: Skyscraper fire in Dubai.
+- 2016-01-25: Cobra posted about the 9th planet (Resistance planet).
+- 2016-01-26: Q&A interview conducted.
+- (time not stated): Fall of Atlantis.
+- (time not stated): Pre-WWII invasion of Ethiopia by Italian troops.
+- (time not stated): Disappearance of Emperor Haile Selassie.
+- (time not stated): Fatima incident.
+- (time not stated): Recent radiation spikes in the USA (Nov-Dec).
+- (time not stated): Recent earthquakes off Malibu and Alaska.
+- (time not stated): Recent death of 4 Hillary Clinton Secret Service agents in a car crash.
+- (time not stated): Recent death of comedian Bernie Mac.
+- (time not stated): Recent North Korea hydrogen bomb test claim.
+[Entities & roles]
+- Cobra: Resistance Movement representative; provides updates on financial reset, control matrix, and historical events.
+- Rob: Interviewer; host of "Victory of Light"; discusses Nibiru, vaccines, and financial systems.
+- Alex Collier: Attended Rob's conference; stated frequency fence is down.
+- Randy Kramer: SSP figure; claims Nibiru returns every 3600 years.
+- Billy Meyers: Author of notes regarding Nibiru orbit changes.
+- Len Horowitz: Dentist/virologist; uncovered AIDS origins; expert on Cabal vaccination plans.
+- Dr. Frank Strange: Scientist who transferred from inner earth to Venus with Commander Valiant Thor.
+- Commander Valiant Thor: Pleiadian commander.
+- Fred Bell: Scientist/priest; developed body-scanning machine controlled by Jesuits; worked with Rob on crystals.
+- The Cabal: Negative elite; income from oil; funding minions; responsible for Dubai fire and North Korea test.
+- The Jesuits: Behind Italian invasion of Ethiopia; controlled Fred Bell's technology.
+- The Chimera: Created A.I. as a control tool; control deep underground space center on Maui.
+- The Archons: Manipulated sexual energy; linked to Vatican.
+- The Pleiadians: Energy present in Norway; monitored by negative military bases.
+- The Resistance Movement (RM): Mastered A.I.; will eradicate black goo; monitors vortexes.
+- The Galactic Federation/Council: Implied benevolent forces; using positive plasma network.
+- The Draco Overlords: Connected to Göbekli Tepe society.
+- The Roman Catholic Church: Origin exposed by Fatima's 3rd prophecy.
+- The Rosicrucians: Taken over but contain positive information; source of "morning dew" code.
+- The Order of the Golden Dawn: Split from Rosicrucians.
+- The Morning Star: Order referring to Venus.
+- The Mui-hai: Chinese entity working with a trading platform individual.
+- The WHO: Implied in vaccination context.
+- The Negative Military: Conducted radiation experiments; controls black goo; monitors Pleiadians in Norway.
+- The Light Forces: Removing hostile elements in Europe; using positive plasma.
+- The Galactic Federation: Implied in benevolent confederation.
+- The Andromidans: Contacted by Fred Bell.
+- The Agarthan Network: Benevolent network.
+- The Galactic Federation Council: Implied.
+- The Galactic Federation: Implied.
+- The Galactic Federation Council: Implied.
+- The Galactic Federation: Implied.
+- The Galactic Federation Council: Implied.
+- The Galactic Federation: Implied.
+- The Galactic Federation Council: Implied.
+- The Galactic Federation: Implied.
+- The Galactic Federation Council: Implied.
+- The Galactic Federation: Implied.
+- The Galactic Federation Council: Implied.
+- The Galactic Federation: Implied.
+- The Galactic Federation Council: Implied.
+- The Galactic Federation: Implied.
+- The Galactic Federation Council: Implied.
+- The Galactic Federation: Implied.
+- The Galactic Federation Council: Implied.
+- The Galactic Federation: Implied.
+- The Galactic Federation Council: Implied.
+- The Galactic Federation: Implied.
+- The Galactic Federation Council: Implied.
+- The Galactic Federation: Implied.
+- The Galactic Federation Council: Implied.
+- The Galactic Federation: Implied.
+- The Galactic Federation Council: Implied.
+- The Galactic Federation: Implied.
+- The Galactic Federation Council: Implied.
+- The Galactic Federation: Implied.
+- The Galactic Federation Council: Implied.
+- The Galactic Federation: Implied.
+- The Galactic Federation Council: Implied.
+- The Galactic Federation: Implied.
+- The Galactic Federation Council: Implied.
+- The Galactic Federation: Implied.
+- The Galactic Federation Council: Implied.
+- The Galactic Federation: Implied.
+- The Galactic Federation Council: Implied.
+- The Galactic Federation: Implied.
+- The Galactic Federation Council: Implied.
+- The Galactic Federation: Implied.
+- The Galactic Federation Council: Implied.
+- The Galactic Federation: Implied.
+- The Galactic Federation Council: Implied.
+- The Galactic Federation: Implied.
+- The Galactic Federation Council: Implied.
+- The Galactic Federation: Implied.
+- The Galactic Federation Council: Implied.
+- The Galactic Federation: Implied.
+- The Galactic Federation Council: Implied.
+- The Galactic Federation: Implied.
+- The Galactic Federation Council: Implied.
+- The Galactic Federation: Implied.
+- The Galactic Federation Council: Implied.
+- The Galactic Federation: Implied.
+- The Galactic Federation Council: Implied.
+- The Galactic Federation: Implied.
+- The Galactic Federation Council: Implied.
+- The Galactic Federation: Implied.
+- The Galactic Federation Council: Implied.
+- The Galactic Federation: Implied.
+- The Galactic Federation Council: Implied.
+- The Galactic Federation: Implied.
+- The Galactic Federation Council: Implied.
+- The Galactic Federation: Implied.
+- The Galactic Federation Council: Implied.
+- The Galactic Federation: Implied.
+- The Galactic Federation Council: Implied.
+- The Galactic Federation: Implied.
+- The Galactic Federation Council: Implied.
+- The Galactic Federation: Implied.
+- The Galactic Federation Council: Implied.
+- The Galactic Federation: Implied.
+- The Galactic Federation Council: Implied.
+- The Galactic Federation: Implied.
+- The Galactic Federation Council: Implied.
+- The Galactic Federation: Implied.
+- The Galactic Federation Council: Implied.
+- The Galactic Federation: Implied.
+- The Galactic Federation Council: Implied.
+- The Galactic Federation: Implied.
+- The Galactic Federation Council: Implied.
+- The Galactic Federation: Implied.
+- The Galactic Federation Council: Implied.
+- The Galactic Federation: Implied.
+- The Galactic Federation Council: Implied.
+- The Galactic Federation: Implied.
+- The Galactic
