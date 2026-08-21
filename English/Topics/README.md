@@ -10,7 +10,7 @@
 
 [Illuminati](Illuminati)
 
-[Black Nobility](Black Nobility)
+[Black Nobility](Black%20Nobility)
 
 [Jesuit](Jesuit)
 
@@ -18,15 +18,15 @@
 
 [Biochip](Biochip)
 
-[Toplet Bomb](Toplet Bomb)
+[Toplet Bomb](Toplet%20Bomb)
 
-[Stranglet Bomb](Stranglet Bomb)
+[Stranglet Bomb](Stranglet%20Bomb)
 
-[Resistance Movement](Resistance Movement)
+[Resistance Movement](Resistance%20Movement)
 
 [Ashtar Command](Ashtar Command)
 
-[Galactic Federation](Galactic Federation)
+[Galactic Federation](Galactic%20Federation)
 
 [Pleiadian](Pleiadian)
 
@@ -40,7 +40,7 @@
 
 [Agartha](Agartha)
 
-[X Planet](X Planet)
+[X Planet](X%20Planet)
 
 [Atlantis](Atlantis)
 
@@ -60,7 +60,7 @@
 
 [Opal](Opal)
 
-[Saint Germain](Saint Germain)
+[Saint Germain](Saint%20Germain)
 
 [Anutara](Anutara)
 
@@ -70,9 +70,9 @@
 
 [Meditation](Meditation)
 
-[Ordo Bucintoro](Ordo Bucintoro)
+[Ordo Bucintoro](Ordo%20Bucintoro)
 
-[Order of the Star](Order of the Star)
+[Order of the Star](Order%20of%20the%20Star)
 
-[Brotherhood of the Star](Brotherhood of the Star)
+[Brotherhood of the Star](Brotherhood%20of%20the%20Star)
 
