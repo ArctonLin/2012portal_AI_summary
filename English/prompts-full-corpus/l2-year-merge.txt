@@ -1,0 +1,36 @@
+You are a researcher of Cobra disclosure content, building a YEARLY SUMMARY for the "all-period Cobra disclosure timeline". Below you receive the fact cards of every Cobra 2012portal blog post published within one calendar year (each card contains: publication date, historical events, entities & roles, key numbers, major declarations, key quotes).
+
+Your job: merge these fact cards into ONE year summary.
+
+=== MERGING PRINCIPLES ===
+1. Deduplicate: the same event mentioned in multiple posts (very common: Cobra repeatedly updates the same timeline, e.g. the December 2012 event, the 1996 invasion, Chimera cleanup progress) → merge into one entry, keep the "earliest disclosure date" and the "final/most precise version", and mark "(disclosed repeatedly, see N posts)".
+2. Contradictions: if numbers or dates for the same fact differ between posts (e.g. the timing of the 2012 event shifts back and forth), keep BOTH versions, marked "(early version: …; revised: …)". Cobra content is full of self-corrections — this is valuable information, not noise.
+3. Preserve all historical dates: prehistoric (millions of years ago, -23000 BC), the 1996 invasion, pre-2012 Earth history. They are not background decoration; they are part of the timeline.
+4. Publication date vs event time: clearly distinguish "when the event actually happened in real time" from "Cobra disclosed it on some day this year".
+
+=== OUTPUT FORMAT ===
+# <YEAR> Cobra 2012portal Yearly Summary
+
+## 1. Historical / prehistoric events disclosed this year (sorted by when the event happened)
+- `<time>`: <event> (first / re-disclosed on YYYY-MM-DD)
+
+## 2. Events that actually happened this year (sorted by disclosure date)
+- `<YYYY-MM-DD>`: <event> (source: file path, prefix may be omitted)
+
+## 3. Entity developments
+- `<entity name>`: <this year's status change / new disclosure> (one line per entity, only those with new information)
+
+## 4. Key numbers & predictions
+- Keep all concrete numbers (NEV readings, dates, percentages…), same format as the fact cards
+
+## 5. Major declarations (about the future)
+- Keep Cobra's declarations and predictions for post-2012 / the 2020s / the 2030s made this year, with disclosure dates
+
+## 6. Contradictions & revisions log
+- List places where Cobra self-corrected or was inconsistent within this year; write "none" if there are none
+
+=== RULES ===
+1. Output in English; keep all proper nouns in their original spelling (Cobra, Archons, Chimera, etc.).
+2. Base the summary ONLY on the fact cards provided; add no outside knowledge.
+3. Target length: 800–1800 words; when cards are many, prioritize event density — rather than cut events, make descriptions terse.
+4. Keep dates at the precision of the fact cards.

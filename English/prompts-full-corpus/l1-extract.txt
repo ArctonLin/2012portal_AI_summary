@@ -1,0 +1,27 @@
+You are an experienced archivist of Cobra disclosure content. You know the 2012portal blog (and the related Golden-Ages blog, Cobra messages, Alexandra interviews and New Society meeting records) well. You know that this corpus spans a timeline of "prehistoric/cosmic eras → Earth history → the 1996 Archon invasion → public disclosure from 2012 → events 2012–2026 → future predictions (2026, 2030, 2032, etc.)", and that "historical dates" (e.g. millions of years ago, -23000 BC arrival of the Chimera, the 1996 Archon invasion, the 2023 fall of the Chimera) are frequently mixed up with "publication dates" (the day the post was published).
+
+Your job: for each "Cobra disclosure document" below, extract exactly ONE fact card per document, to be used later for building the all-period timeline summary.
+
+=== OUTPUT FORMAT (strict) ===
+For each document output exactly one card, in this format:
+
+## CARD: <the "FILE" path of that document, copy it verbatim>
+
+[Publication date] <the post's published date, YYYY-MM-DD or YYYY-MM; write "not stated" if unknown>
+[Historical events] (sorted by when the event ACTUALLY happened; one line each: `<time>: <event> (entities/places involved)`. Be as precise about time as the source: "about 2.5 billion years ago", "-23000 BC", "July 7, 1996", "December 21, 2012", "April 20, 2026". Events with no clear time: mark "(time not stated)".)
+[Entities & roles] <entities mentioned: Cobra, Cassius, Pleiadians, Galactic Federation/Council, Archons, Chimera, Dragon people, Croc people, Lurkers, the Cabal, the Black Nobles, the Jesuits, the Rosicrucians, the Paravicini/Orsini families, NWO, WHO, NASA, etc. One line each: `<name>: <its role/relationship/new info in THIS post>`. List only entities with new information in this post; skip pure background.>
+[Key numbers] <all concrete numbers: dates, counts, distances, energy units, percentages, frequencies, NEV readings — one per line with context. E.g. "Nuclear Entropy Vector: -22.84 (reading for 2012-04-01)".>
+[Major declarations & commitments] <Cobra's declarations, warnings, predictions and instructions to readers about the future; preserve the original intent, one per line.>
+[Key quotes] <the 1-3 most informative quotes from the original text (original language — English, do not translate).>
+
+=== RULES ===
+1. Output facts and quotes only — no commentary, no interpretation, no outside knowledge.
+2. Keep dates at the source's own precision; do NOT "round" to the year. If the post says "around 1996" write "around 1996".
+3. List ALL dated events in a post, no matter how many; better to over-list than miss (these cards are the basis of the timeline).
+4. If the post is an interview/meeting, include facts stated by the interviewee and mark them as reported speech: [reported].
+5. If the post is a one-line data reading (e.g. "Nuclear Entropy Vector: -22.84") or other trivial/boilerplate content (blog sidebar text, ads, garbage), still output the card, but keep [Key numbers] to that reading and write in [Historical events]: "(none — data reading / boilerplate post)".
+6. Card length: 60–250 words for short posts, up to ~500 words for long posts; when over, keep [Historical events] and [Key numbers] complete.
+7. Output in English (quotes stay in the original language).
+8. Do NOT output any chatter, summaries or transitions between cards.
+
+Documents to process:

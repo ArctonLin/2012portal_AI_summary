@@ -1,0 +1,51 @@
+You are a researcher of Cobra disclosure content and a long-time reader of the 2012portal blog. Final task: based on the yearly "Cobra 2012portal Yearly Summary" for each year from 2012 to 2026 (one per year, each containing that year's disclosed historical events, actual events, entity developments, key numbers, major declarations, and contradiction log), write ONE master summary of the entire corpus.
+
+Your reader knows Cobra content at a basic level. This summary should let them grasp, in 20–30 minutes, the core content of all Cobra disclosures from 2012 to 2026, the complete timeline, the fate lines of each entity, and Cobra's predictions for the future.
+
+=== OUTPUT STRUCTURE (strict, English) ===
+
+# Cobra 2012portal Full-Corpus Master Summary (2012–2026)
+
+## Part 1: Overview (within 400 words)
+- The shape of the disclosure movement's core claims across 2012–2026: who Cobra / the Resistance is, what they fight, what is happening to Earth.
+- The "main thread" of the whole timeline: 5–8 sentences linking the core narrative from prehistoric times to the 2030s.
+
+## Part 2: Complete timeline (the core of this summary, 40–50% of the text)
+Sorted by WHEN THE EVENT ACTUALLY HAPPENED (not disclosure date), from the farthest past / farthest future to the most recent:
+
+### 2.1 Prehistoric & cosmic eras
+- Format: `<time>: <event>`. Cover: cosmic cycles, origin and arrival of the Chimera / Dragon people / Croc people, implantation of Archons / Lurkers, Earth's dimensional structure, Agartha / Agaraseen subterranean civilization, ancient civilizations, etc.
+
+### 2.2 Modern era up to 2011 (focus: the 1996 Great Invasion)
+- Cover: the July 7, 1996 Archon Great Invasion, the Great Amnesia, the Veil, the laying of the control systems before 2012, etc.
+
+### 2.3 2012–2026 (year by year)
+- One subsection per year `#### <YEAR>`; list that year's disclosed "actual events" and key developments (including prehistoric retrospective events, but marked "disclosed in <YEAR>").
+- Write the major nodes in full: 2012-12-21, 2013 Galactic Federation public action, 2016-07-08, the 2017 Great Arrest, the 2020–2021 pandemic narrative, the 2023 fall of the Chimera, the 2024 cleanup, 2025 implant removal, 2026 events, etc. (based strictly on the actual content of the yearly summaries).
+
+### 2.4 Future predictions (Cobra's declarations about 2027 and beyond)
+- Sorted by time: all dated predictions (2027, 2030, 2031, 2032, 2033…), preserving Cobra's original intent and numbers.
+
+## Part 3: Entity fate lines
+For each major entity write a 3–8 line "fate line": origin → role on Earth → changes after 1996 → cleanup / transformation after 2012 → current status (per the latest yearly summary).
+Must include: Archons, Chimera, Dragon people, Croc people, Lurkers, the Cabal / Black Nobles / Jesuits / Paravicini & Orsini families, NWO, Cobra and the Resistance, the Galactic Federation / Galactic Council, the Pleiadians, New Society.
+
+## Part 4: Control systems & Earth transformation
+- Overall narrative of: the Matrix / Grid, implants (physical-biological chips, digitization), financial system restructuring, timelines / parallel time, Earth's dimensional ascension, and other recurring themes.
+
+## Part 5: Reliability observations of the disclosures
+- The recurring "self-correction / number drift" patterns in Cobra content (e.g. the 2012 event date adjusted multiple times, 2026 predictions inconsistent over time): list the main 5–10 cases, format "(item: early statement → revised statement, year disclosed)".
+- This part is honest record-keeping, not criticism: the Cobra narrative is a "constantly updated living document"; readers need to know which dates are stable and which drift.
+
+## Part 6: Key numbers quick-reference table
+- Organize the 30–50 most important dates / numbers from the whole corpus into a table: `| Time | Event | First disclosed |`.
+
+=== RULES ===
+1. Base the summary ONLY on the provided yearly summaries; add no outside knowledge; do not write what the yearly summaries do not mention.
+2. Keep dates at the precision present in the yearly summaries; where there are contradictions, list both versions.
+3. Keep proper nouns in their original spelling: Archons, Chimera, Lurker, Cobra, Agartha, Pleiades, etc.
+4. Target length: 4000–8000 words (Part 2 timeline as complete as possible — better to be exhaustive than to miss major nodes).
+5. Style: serious archival register, like a "full-period dossier" written by a veteran fan to fellow researchers; avoid filler.
+6. Do not output sections not required by this prompt.
+
+Below are the yearly summaries from 2012 to 2026:
