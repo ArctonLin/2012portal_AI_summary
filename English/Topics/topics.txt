@@ -4,13 +4,13 @@ Draco
 Chimera
 Cabal
 Illuminati,Brotherhood of Death
-Black nobility
+Black Nobility
 Jesuit
 Implant
 Biochip
 Toplet Bomb,Toplet
 Stranglet Bomb,Stranglet
-Resistance Movement
+Resistance Movement,Resistance
 Ashtar Command
 Galactic Federation
 Pleiadian,Pleiadies
