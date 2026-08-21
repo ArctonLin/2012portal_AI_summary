@@ -1,50 +1,159 @@
 <!-- card: interview/2017-10-18__cobra-interview-with-aaron-on-prepare-for-change | 2017-10-18 | Cobra Interview with Aaron on Prepare for Change -->
 [Publication date] 2017-10-18
 [Historical events]
-- October 1, 2017: Mass shooting in Las Vegas, Nevada (reported 58 deaths; Cobra states actual number is smaller, multiple shooters involved, crisis actors present).
-- September 25, 2017: Deadline for Rothschild funding ultimatum (Cobra denies the reported mass arrests/firings associated with this date).
-- September 26, 2017: Glowing spiral observed over Russia (identified as a scalar weapon test).
-- September 27, 2017: Report of Rothschild trust confiscation (Cobra denies this, stating the trust remains operational).
-- 1960s–1970s: Vietnam War (described as a Cabal-engineered war).
-- (time not stated): Detonation of a small nuclear device below the surface in North Korea (warning shot, no casualties).
-- (time not stated): Removal of the Black Stone.
-- (time not stated): Progressive removal of toplet bombs.
-- (time not stated): Loss of power by Yaldabaoth.
+*   October 1, 2017: Las Vegas shooting.
+*   (time not stated): The Cabal engineered the Las Vegas shooting to create fear and panic.
+*   (time not stated): The Cabal is killing people with chemotherapy and other drugs daily.
+*   (time not stated): The Cabal's weather warfare has created confusion, devastation, and death.
+*   (time not stated): The Cabal is misusing existing storms and steering them towards areas where they can do damage.
+*   (time not stated): The Cabal did this in Puerto Rico lately.
+*   (time not stated): A 250-year-old Rothschild European trust was confiscated on September 27, 2017 (Cobra says this is not true).
+*   (time not stated): The Catalan independence referendum took place; 90% voted yes.
+*   (time not stated): The Spanish government wanted to suppress the election.
+*   (time not stated): The Cabal wants Catalonia to remain under the Spanish government.
+*   (time not stated): Britain will not be leaving the EU (Cobra says this is part of negotiation tactics).
+*   (time not stated): The Rothschilds gave an ultimatum to the UN on September 25, 2017.
+*   (time not stated): 78 countries launched raids; 1100 government officials were fired; 600 were arrested (Cobra says these numbers are much lower).
+*   (time not stated): A glowing spiral over Russia was seen on September 26, 2017.
+*   (time not stated): The glowing spiral was a testing of a scalar weapon.
+*   (time not stated): A small nuke was detonated below the surface in North Korea without casualties.
+*   (time not stated): North Korea is planning to do more testing.
+*   (time not stated): The Black Stone has been completely removed.
+*   (time not stated): Yaldabaoth is losing much of its power.
+*   (time not stated): The toplet bombs are being progressively removed.
+*   (time not stated): The Event will be safe to be outside; no drastic earth changes.
+*   (time not stated): Ensoulment occurs between the 2nd and 3rd month until the 6th or 7th month.
+*   (time not stated): The Central Race had their development completely independent from the Archons.
+*   (time not stated): All negative timelines for planet Earth collapsed on November 11, 2011.
+*   (time not stated): The DNA has 2 strands on the physical plane and 12 strands on the etheric plane.
+*   (time not stated): The speed of the globe's orbit is not 66,600 mph.
+*   (time not stated): The curvature is not one mile squared.
+*   (time not stated): The axis tilt is not 66.6 degrees.
+*   (time not stated): The "Process Correction" is not explained.
+*   (time not stated): Lucid dreaming can be helpful.
+*   (time not stated): Invisibility is a cloaking technology.
+*   (time not stated): The Chimera group uses invisibility in very rare occasions.
+*   (time not stated): Many people will be able to see non-physical planes with their higher chakras after the Event.
+*   (time not stated): Orbs are mostly reflections from the lens.
+*   (time not stated): Orbs that are not reflections are etheric and plasma beings.
+*   (time not stated): Stars that sparkle fast and move are often cloaked ships.
+*   (time not stated): Pleiadian ships are clearing pollution.
+*   (time not stated): 25% of the human race are not human (Cobra says this is not true).
+*   (time not stated): The 144,000 are from many star systems.
+
 [Entities & roles]
-- Cabal: Engineers fear/panic events (Las Vegas), manipulates both US political parties, controls weather via factions, suppresses Catalonia independence.
-- Jesuits: Top members of the Cabal manipulating politicians.
-- Illuminati: Network controlling John McCain (described as a mind-controlled slave).
-- Rothschilds: Claimed to have issued a germ warfare ultimatum (denied by Cobra); maintain operational wealth despite confiscation rumors.
-- Chimera: Rarely visible to humans; involved in invisibility phenomena.
-- Pleiadians: Ships clearing atmospheric pollution.
-- Light Forces: Maintain dynamic equilibrium with dark forces; do not make direct physical contact with surface population.
-- Dark Forces: Do not unleash massive genocides; currently losing power.
+*   **Cobra**: Interviewee; rates individuals and clarifies events.
+*   **Aaron**: Interviewer; asks questions.
+*   **Lynn**: Interviewer; asks questions.
+*   **Steven Paddock**: Shooter in Las Vegas; a patsy.
+*   **Cabal**: Engineered the Las Vegas shooting; killing people with chemotherapy; weather warfare.
+*   **Benjamin Fulford**: Opinion on Las Vegas shooting.
+*   **Saudi Arabia**: Ruling Cabal is more powerful; can suppress more.
+*   **Zimbabwe**: Hyper-inflation situation.
+*   **Vietnam**: War was a Cabal creation.
+*   **John McCain**: Mind controlled slave of the Illuminati network.
+*   **Julian Assange**: No comment.
+*   **Robert Mueller**: Part of the polarization.
+*   **Jeff Sessions**: Part of the polarization.
+*   **Paul Ryan**: Sabotaged the Trump election.
+*   **Carly Fiorina**: Sabotaged the Trump election.
+*   **John Kasich**: Sabotaged the Trump election.
+*   **Lindsey Graham**: Sabotaged the Trump election.
+*   **Kim Jong-un**: "Rocket Man"; stirring up trouble.
+*   **Henry Kissinger**: Rated 10/10 for evil.
+*   **Dick Cheney**: Rated 10/10 for evil.
+*   **Donald Rumsfeld**: Rated 9/10 for evil.
+*   **George H. W. Bush**: Rated 10/10 for evil.
+*   **George W. Bush**: Rated 8/10 for evil.
+*   **Barack Obama**: Rated 5/10 for evil.
+*   **Vladimir Putin**: Rated 2-3/10 for evil.
+*   **Angela Merkel**: Rated 8/10 for evil.
+*   **Rothschilds**: 250-year-old trust; not confiscated.
+*   **Catalonia**: Independence movement; positive if done in the right way.
+*   **Spain**: Government wanted to suppress the election.
+*   **Britain**: Not leaving the EU (negotiation tactics).
+*   **UN**: Ultimatum from Rothschilds.
+*   **Russia**: Glowing spiral over Russia.
+*   **North Korea**: Small nuke detonated; planning more testing.
+*   **Black Stone**: Completely removed.
+*   **Yaldabaoth**: Losing power.
+*   **Toplet Bombs**: Being progressively removed.
+*   **Central Race**: Development independent from Archons.
+*   **Archons**: Not involved in Central Race development.
+*   **DNA**: 2 strands physical, 12 strands etheric.
+*   **Chimera Group**: Uses invisibility in rare occasions.
+*   **Pleiadian Ships**: Clearing pollution.
+*   **144,000**: From many star systems.
+
 [Key numbers]
-- 58: Reported deaths in Las Vegas (Cobra says actual number is smaller).
-- $135 billion: Annual cost of illegal US immigration.
-- 100 trillion: Value of Zimbabwean note (sold for $1–$70; central bank buys for 40 cents).
-- 90%: Percentage of Catalans voting "yes" in independence referendum.
-- 78: Number of countries allegedly launching raids (Cobra denies these numbers).
-- 1100: Number of government officials allegedly fired (Cobra denies).
-- 600: Number of officials allegedly arrested (Cobra denies).
-- 1–10: Evil rating scale. Kissinger: 10; Dick Cheney: 10; Donald Rumsfeld: 9; George H.W. Bush: 10; George W. Bush: 8; Barack Obama: 5; Vladimir Putin: 2–3; Angela Merkel: 8.
-- 2–6 months: Typical window for ensoulment in the womb.
-- 12 strands: DNA on the etheric plane (physical DNA has 2 strands).
+*   October 1, 2017: Date of Las Vegas shooting.
+*   58: Number of people who died in Las Vegas (reported).
+*   500+: Number of casualties in Las Vegas (reported).
+*   135 billion: Cost of illegal US immigration per year.
+*   100 trillion: Value of the Zimbabwe note.
+*   1 dollar to 70 dollars: Price of the Zimbabwe note on eBay.
+*   40 cents: Price the Zimbabwe central bank will buy the note for.
+*   8 countries: Banned from the US (Chad, Iran, Libya, North Korea, Somalia, Syria, Venezuela, Yemen).
+*   1960s-1970s: Era of the Vietnam War.
+*   September 27, 2017: Date the Rothschild trust was supposedly confiscated.
+*   90%: Percentage of Catalans who voted yes for independence.
+*   September 25, 2017: Deadline for the Rothschild ultimatum.
+*   78: Number of countries that launched raids.
+*   1100: Number of government officials fired.
+*   600: Number of people arrested.
+*   September 26, 2017: Date of the glowing spiral over Russia.
+*   10/10: Evil rating for Henry Kissinger.
+*   10/10: Evil rating for Dick Cheney.
+*   9/10: Evil rating for Donald Rumsfeld.
+*   10/10: Evil rating for George H. W. Bush.
+*   8/10: Evil rating for George W. Bush.
+*   5/10: Evil rating for Barack Obama.
+*   2-3/10: Evil rating for Vladimir Putin.
+*   8/10: Evil rating for Angela Merkel.
+*   2nd-3rd month to 6th-7th month: Time of ensoulment.
+*   2 strands: Number of DNA strands on the physical plane.
+*   12 strands: Number of DNA strands on the etheric plane.
+*   66,600 mph: Claimed speed of the globe's orbit (not true).
+*   1 mile squared: Claimed curvature (not true).
+*   66.6 degrees: Claimed axis tilt (not true).
+*   25%: Claimed percentage of non-humans (not true).
+
 [Major declarations & commitments]
-- The Las Vegas shooting was a Cabal operation to create fear and promote crowd control/security profits; Steven Paddock was a patsy.
-- Hyper-inflated currencies (Zimbabwe, Vietnam, Iraq) will not regain value; they will be devalued/rebranded.
-- Immigration issues cannot be solved without addressing global inequality via The Event.
-- No massive nuclear exchange will occur with North Korea; tension is maintained for plasma-plane enslavement.
-- The "Rothschild takedown" claims (mass arrests/firings) are false; real numbers are much lower.
-- The glowing spiral over Russia was a scalar weapon test, not ET activity.
-- Replicators will exist but genuine art will have unique energetic signatures and be marked as copies.
-- The Central Race developed independently of the Archons.
-- There are no parallel Earths; only timelines (possible futures).
-- Physical DNA has 2 strands; 12/24 strands are etheric/New Age concepts.
-- Astral projection is not recommended for beginners; it can be unsafe.
-- Most people on Earth are human; the "25% human" claim is false.
-- The 144,000 come from many star systems.
+*   The Las Vegas shooting was engineered by the Cabal to create fear and panic.
+*   Steven Paddock is a patsy.
+*   The Cabal is killing people with chemotherapy and other drugs daily.
+*   The Cabal's weather warfare is misusing existing storms.
+*   The Cabal did this in Puerto Rico.
+*   The Rothschild trust was not confiscated.
+*   The Catalan independence movement is positive if done in the right way.
+*   Britain will not be leaving the EU (negotiation tactics).
+*   The Rothschild ultimatum numbers are much lower.
+*   The glowing spiral over Russia was a testing of a scalar weapon.
+*   A small nuke was detonated in North Korea.
+*   North Korea is planning more testing.
+*   The Black Stone has been completely removed.
+*   Yaldabaoth is losing power.
+*   The toplet bombs are being progressively removed.
+*   The Event will be safe to be outside.
+*   Ensoulment occurs between the 2nd and 3rd month until the 6th or 7th month.
+*   The Central Race had their development independent from the Archons.
+*   All negative timelines collapsed on November 11, 2011.
+*   The DNA has 2 strands on the physical plane and 12 strands on the etheric plane.
+*   The speed of the globe's orbit is not 66,600 mph.
+*   The curvature is not one mile squared.
+*   The axis tilt is not 66.6 degrees.
+*   Lucid dreaming can be helpful.
+*   Invisibility is a cloaking technology.
+*   The Chimera group uses invisibility in rare occasions.
+*   Many people will be able to see non-physical planes after the Event.
+*   Orbs are mostly reflections.
+*   Orbs that are not reflections are etheric and plasma beings.
+*   Stars that sparkle fast and move are often cloaked ships.
+*   Pleiadian ships are clearing pollution.
+*   25% of the human race are not human (not true).
+*   The 144,000 are from many star systems.
+
 [Key quotes]
-- "Basically it is just one of many attacks that the Cabal engineers to create more fear and panic."
-- "The light forces are not crossing certain lines and the dark forces are also not crossing certain lines. The light forces are not making direct physical contact with the surface populations. And the dark forces are not unleashing massive genocides on the planet."
-- "I would not agree with 24 strands of DNA. It is just another New Age concept that has been introduced."
+*   "Basically it is just one of many attacks that the Cabal engineers to create more fear and panic."
+*   "The Black Stone has been completely removed."
+*   "The DNA has 2 strands on the physical plane and 12 strands on the etheric plane."

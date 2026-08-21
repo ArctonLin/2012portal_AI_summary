@@ -3,26 +3,32 @@
 [Historical events]
 - 1995: Peace treaty signed.
 - 1996: Archon invasion.
-- 2014-11-25: Interview date.
-- 2014 (upcoming): Window of opportunity in Egypt.
+- 2000 years ago: Vision of New Jerusalem.
+- 1940s: New Swabenland base built in Antarctica.
+- 1950s: Schumann resonance proposed.
 [Entities & roles]
-- Cobra: Interviewee; discusses New Jerusalem, Jesus, and Anchara.
-- Rob: Interviewer; asks about New Jerusalem, Jesus, and Anchara.
-- New Jerusalem: Code name for mother ship with 12 layers.
-- Jesus: Star being; mission is distribution of unconditional love.
-- Anchara group: Signed peace treaty in 1995; some crossed to light.
+- Cobra: Emissary of the Light.
+- Rob: Interviewer.
+- Cabal: Controlling media; using chemtrails.
+- Jesuits: Created Euro; controlling Swiss Central Bank partially.
 - White Templars: Organized Swiss gold referendum.
+- Anchara Group: Signed peace treaty in 1995.
+- Maitreya: Ascended Master; will appear after first contact.
 [Key numbers]
-- 12 layers: Layers of New Jerusalem mother ship.
-- 2,000 years: Age of New Jerusalem vision.
-- 50%: Percentage of Jesus' life info fabricated.
+- 13.7 billion years: Age of universe (current estimate).
+- 12 layers: Layers of the New Jerusalem mother ship.
+- 2,000 years: Duration of Jesus's mission.
+- 10 miles: Maximum depth for underground complexes.
 [Major declarations & commitments]
-- The New Jerusalem is a code name for a mother ship.
-- Jesus had a natural birth; 50% of Bible info about him is fabricated.
+- The universe is 13.7 billion years old.
+- The "New Jerusalem" is a code name for a mother ship.
+- Jesus had a natural birth; 50% of Bible info is fabricated.
 - The Anchara group signed a peace treaty in 1995.
-- The Swiss gold referendum is organized by White Templars.
-- The Event will make transition to 4D/5D much easier.
+- The Earth is not hollow; it is honeycombed.
+- The Cabal will not stop chemtrails until the Event.
+- The Light Forces are managing the Fukushima situation.
+- The "Fatima" prophecy is about the real story behind the Catholic church.
 [Key quotes]
-- "It is a code name for the mother ship, yes."
-- "I would say 50% of the information about the life of Jesus has been fabricated."
-- "Yes, there was a peace treaty that was signed in 1995."
+- "The current estimate is 13.7 billion years and that’s quite close to the real value."
+- "I would not agree with the Hollow Earth and I would not agree with the polar opening, but I would agree with the honeycombed Earth."
+- "Yes, it was a UFO related event and a certain craft appears in front of the group of people."

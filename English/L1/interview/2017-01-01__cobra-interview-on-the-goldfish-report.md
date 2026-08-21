@@ -1,19 +1,19 @@
 <!-- card: interview/2017-01-01__cobra-interview-on-the-goldfish-report | 2017-01-01 | Cobra interview on The GoldFish Report -->
 [Publication date] 2017-01-01
 [Historical events]
-- 2017 (recent): Global meditation reached critical mass on a Tuesday to avoid WW3 (Global meditation, WW3).
+- 2017 (recent): Critical mass reached in a Tuesday meditation to avoid WW3 (Meditation, WW3).
+- 2017 (recent): Benjamin Fulford's PayPal account attacked (Fulford, PayPal).
 [Entities & roles]
-- Cobra: States the Cabal is powerful because they work together; states the "light" side needs to stop in-fighting; states each human has weaknesses that are exploited; states the community needs objective study of intel; states the constellation Piscis is a goldfish.
-- KP: States the strongest people are strong within; states "defence" is being who you are; states he is clearing something on his blog.
-- Steve: States the "Ego trap" is why people fight; states standing in your own power is key.
-- Louisa: States she is on the Humanity side; states she is objective when she doesn't have first-hand knowledge.
+- Cobra: States that the "Cabal" is powerful because of teamwork; advises the community to focus on objective analysis of intel; states that "Pisces" is a goldfish constellation.
+- Benjamin Fulford: PayPal account attacked; continues to write; emphasizes the importance of truth.
+- KP (Karl Pille): Emphasizes inner strength and "defence" against attacks.
 [Key numbers]
 - 100: Number of the GoldFish Report episode.
 [Major declarations & commitments]
-- The Cabal is powerful because they work together.
-- The "light" side needs to stop in-fighting.
-- The community needs objective study of intel.
+- The "Cabal" is powerful because of teamwork; the light side needs to stop in-fighting.
+- The community needs to focus on objective analysis of intel, not personalities.
+- "Pisces" is a goldfish constellation.
 [Key quotes]
-- "Why the Cabal is so powerful is because they know, they understand the power of teamwork even the Rothchild's, the Rockefeller’s and the Jesuits and all that…they do it together."
-- "Each human being has weaknesses, without exception, and those weaknesses are being exploited."
-- "This community needs a group effort to come to the Truth, to the bottom of what’s going on on this planet."
+- "Why the Cabal is so powerful is because they know, they understand the power of teamwork... but not like at this scene of the so-called ‘Light’ side, all those factions are not in-fighting."
+- "What is more, important is objective study of the Intel that is released. Compare it, analyse it, study it, feel it, expand it, this is what is needed in this community."
+- "It’s a constellation called Piscies which is a fish but is actually a goldfish."

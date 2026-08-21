@@ -1,22 +1,25 @@
 <!-- card: interview/2016-06-01__cobra-interview-on-animal-sentience-and-evolutio | 2016-06-01 | Cobra Interview on Animal Sentience and Evolution -->
 [Publication date] 2016-06-01
 [Historical events]
-- (Time not stated): Dolphins and whales came from the Sirius Star System to anchor energy grids for planetary transformation (Sirius, Dolphins/Whales).
-- (Time not stated): Some animals were native to Earth, others imported from other planets (Earth, Other planets).
+- Millions of years ago: Souls in animal forms came to Earth before humans (Animals, Earth).
+- Past (time not stated): Dolphins and whales came from the Sirius Star System to anchor energy grids (Dolphins, Whales, Sirius).
+- Post-Event (few months): All forms of animal exploitation and killing will become obsolete and illegal (Earth, Animals).
 [Entities & roles]
-- Cobra: Confirms all animals are sentient beings; states animal souls come from astral/etheric planes; confirms dark rituals of sacrifice are true; states current industrial farming is a manipulated version of sacrifice; confirms slaughterhouses are used for energetic harvest; states animal exploitation will be solved within a few months after the Event; confirms the Galactic Codex will be implemented for both humans and non-humans.
+- Cobra: Confirms all animals are sentient beings; states that animal sacrifice rituals are remnants of older dark practices; explains that slaughterhouses are used for energetic harvest on lower astral, etheric, and plasma planes.
 - Sirius Star System: Origin of dolphins and whales.
-- Cabal: Manipulates human need to eat meat to continue sacrifice practices; forces humans to eat certain foods.
+- Cabal: Manipulates human need for meat to continue sacrifice practices; forces humans to eat certain foods.
+- Galactic Codex: Will be implemented equally for human and non-human beings after the Event.
 [Key numbers]
-- 200,000: Animals killed per minute for food.
-- 600 million: Animals killed every 5 days.
+- 600 million: Number of animal souls killed every 5 days for food.
+- 200,000: Number of animals killed per minute.
 - 25 years: Natural lifespan of a cow.
+- 5 days: Interval for the 600 million animal killings.
 [Major declarations & commitments]
-- All animals are sentient and should be treated as human beings.
-- The killing of animals for food is a violation of universal laws and will be obsolete/illegal within a few months after the Event.
-- Food replicators will be available after the Event to replace animal agriculture.
-- The Galactic Codex will be implemented equally for humans and non-humans.
+- The current system of animal slaughter is a violation of universal laws and part of Archon programming.
+- After the Event, food replicators will provide plant-based alternatives with the same texture and taste.
+- Animals will start living their own lives, more connected with nature, after release from captivity.
+- The Galactic Codex will be implemented for both humans and animals simultaneously.
 [Key quotes]
-- "Yes, of course, all animals are sentient beings and they feel all spectrum of emotions the human beings can so the advice would be to treat them as human beings."
-- "For some animals yes but not for all animals, for example dolphins and whales came from Sirius Star System to anchor a certain specific, energy grid for this particular planetary transformation."
-- "I would say in a few months time all this will be solved throughout the planet."
+- "All animals are sentient beings and they feel all spectrum of emotions the human beings can so the advice would be to treat them as human beings."
+- "The life of a being in cow form is 25 years. Is it not a very serious violation of UNIversal laws to force a soul out of its physical shell before its natural time to transition... Yes, of course it is against the natural laws."
+- "Pleiadians don't eat much food, basically they have a certain elixir, a certain type of beverage they use daily and this is sufficient for them."

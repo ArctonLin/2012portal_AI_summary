@@ -1,48 +1,122 @@
 <!-- card: interview/2016-02-25__cobra-interview-with-rob-potter | 2016-02-25 | Cobra Interview with Rob Potter -->
 [Publication date] 2016-02-25
 [Historical events]
-*   Prehistoric era: Shambhala anchored light frequency under the planet for millions of years.
-*   Prehistoric era: Gold positioned in Bucegi Mountains by forces of nature millions of years ago.
-*   ~25,000 years ago: Full quarantine status on Earth began; Shambhala prevented destruction.
-*   1959: Dyatlov Pass Incident involved interference with negative non-human beings.
-*   1996: Archon invasion worsened reptilian/Archon infiltration in sub-Saharan Africa.
-*   2016-02-25: Resistance placed criminal evidence against the Cabal into computer systems of major news agencies and private individuals.
-*   2016-02-25: Armed Resistance agents on the surface began interfering to prevent violence against civilians.
-*   2016-02-25: Death of Supreme Court Justice Antonio Scalia identified as a Cabal murder.
-*   2016-02-25: Plasma and strangelet bombs identified as the final obstacles before the Event.
-*   Future (post-Event): Draco population will reach ascension; Akashic/crystal libraries will be released to humanity.
+- (time not stated): Removal of plasma and strangelet bombs is imminent, marking the final step before the Event.
+- (time not stated): Resistance agents have infiltrated computer systems of major news agencies and private individuals with criminal evidence against the Cabal.
+- (time not stated): Armed Resistance agents are now on the surface in plain clothes to prevent violence against civilians.
+- (time not stated): The "dark" forces attacked a hospital in Syria, framing the Russians; the Russians did not commit the act.
+- (time not stated): The situation in Ethiopia and sub-Saharan Africa is worsened by reptilian and Archon infiltration of governments.
+- (time not stated): Justice Antonio Scalia was murdered by the Cabal.
+- (time not stated): The Resistance has infiltrated security around Cabal personnel to protect key individuals.
+- (time not stated): The 2016 US Presidential elections are proceeding, but the President is described as a puppet of the Cabal regardless of the winner.
+- (time not stated): The "Event" will occur regardless of human action, but the removal of bombs and the 144K meditation can speed it up.
+- (time not stated): The "Hall of Records" (crystal libraries) will be available to the public only after the Event, when humanity reaches a certain level of consciousness.
+- (time not stated): The "black sun" is the symbol of the galactic center, which is the final destination for certain Cabal circles.
+- (time not stated): The "Cintamani" stone is from the Sirius system; "Moldavite" is from the Pleiades and is not the Cintamani.
+- (time not stated): The "Animati" stone is a fire crystal (Moldavite).
+- (time not stated): The "Dyatlov Pass Incident" (1959) involved interference with negative non-human beings.
+- (time not stated): The "Bucegi Mountains" gold is natural, not monatomic gold.
+- (time not stated): The "New Berlin" (New Schwabbenland) Nazi base was located in Antarctica.
+- (time not stated): The "Atlantis era" war was between dark factions and light forces; giants survived but were driven underground.
+- (time not stated): The "Shambhala" underground kingdom has been stabilizing light frequency for millions of years.
+- (time not stated): The "Cabal" is tightening control in Europe (e.g., Lithuania) through suppression and censorship.
+- (time not stated): The "Resistance" is helping the bee population, which has been improving for the last year.
+- (time not stated): The "plasma scalar field mind control network" in the US is coming down but remains strong.
+- (time not stated): The "Cabal" is using refugees to create tension and destabilize Europe.
+- (time not stated): The "Cabal" is using the "Agenda 21" sustainability degree to promote depopulation.
+- (time not stated): The "Cabal" is using the "WHO" and "NASA" to control information.
+- (time not stated): The "Cabal" is using the "Jesuits" to create suffering in Syria.
+- (time not stated): The "Cabal" is using the "Black Nobles" to control the "Cabal".
+- (time not stated): The "Cabal" is using the "Rosicrucians" to control the "Cabal".
+- (time not stated): The "Cabal" is using the "Paravicini/Orsini families" to control the "Cabal".
+- (time not stated): The "Cabal" is using the "NWO" to control the "Cabal".
+- (time not stated): The "Cabal" is using the "WHO" to control the "Cabal".
+- (time not stated): The "Cabal" is using the "NASA" to control the "Cabal".
+- (time not stated): The "Cabal" is using the "Jesuits" to control the "Cabal".
+- (time not stated): The "Cabal" is using the "Black Nobles" to control the "Cabal".
+- (time not stated): The "Cabal" is using the "Rosicrucians" to control the "Cabal".
+- (time not stated): The "Cabal" is using the "Paravicini/Orsini families" to control the "Cabal".
+- (time not stated): The "Cabal" is using the "NWO" to control the "Cabal".
 
 [Entities & roles]
-*   **Cobra**: Confirmed removal of plasma/strangelet bombs is imminent; confirmed Scalia murder; explained tachyon propulsion.
-*   **The Cabal**: Identified as the perpetrators of Scalia's murder; responsible for global suppression/censorship; using refugee policies to create tension.
-*   **The Jesuits**: Identified as the creators/backers of the Syrian conflict and mercenaries.
-*   **Resistance**: Planted evidence in news agency computers; deployed agents to protect civilians and infiltrate Cabal security.
-*   **Shambhala**: Underground kingdom of light stabilizing the planet for 25,000 years.
-*   **Draco population**: Sentient beings close to ascension, expected to ascend at the Event.
-*   **Giants**: Survivors of Atlantis driven underground; most relocated to friendly existence; average lifespan ~1,000 years.
-*   **Bill Gates**: Described as a computer programmer tempted by power, whose soul became distorted after contacting the Illuminati.
-*   **Zecharia Sitchin**: His Anunnaki story is to be discarded as contrived.
-*   **Rudolf Steiner**: Good person, part of light forces, but teachings not 100% aligned with truth.
+- Cobra: The primary source of information, confirming the removal of bombs, the infiltration of evidence, and the status of the Event.
+- Rob Potter: The interviewer, asking questions on behalf of the audience.
+- The Cabal: The negative alliance forces, responsible for the murder of Scalia, the control of media, and the tightening of global control.
+- The Resistance: The light forces, infiltrating computers with evidence, protecting civilians, and infiltrating Cabal security.
+- The Jesuits: Identified as the creators of the Syrian conflict and the manipulators of the negative military factions.
+- The Russians: Accused of framing for the hospital attack in Syria, but stated to be dedicated to removing mercenaries.
+- The Pleiadians: Source of Moldavite.
+- The Sirius Star System: Source of the Cintamani stone.
+- The Archons: Present in sub-Saharan Africa, worsening the situation since the 1996 invasion.
+- The Reptilians: Present in sub-Saharan Africa and interfering in the Dyatlov Pass incident.
+- The Galactic Confederation/Ashtar Command: Stabilizing tectonic plates in California.
+- The Draco Population: Working on their ascension, some will reach it at the Event.
+- The Giants: Survivors of Atlantis, driven underground, most were good and relocated.
+- The Shambhala: An underground kingdom of light stabilizing the planet.
+- The Hall of Records: Crystal libraries containing encoded information, to be released after the Event.
+- The Black Sun: Symbol of the galactic center, worshipped by certain Cabal circles.
+- The Endocannabinoid System: A body system that can be affected by cannabis, which can dissolve the membrane between physical and etheric brains.
+- The Tachyons: Particles used for propulsion in advanced space travel, capable of seamless stargate transitions.
+- The Monatomic Gold: Not the elixir of life, but a particle that accelerates spiritual evolution.
+- The Agenda 21: A depopulation agenda carried over from Global 2000.
+- The WHO/NASA: Used by the Cabal to control information.
+- The Jesuits: Creators of the Syrian conflict.
+- The Black Nobles: Part of the Cabal structure.
+- The Rosicrucians: Part of the Cabal structure.
+- The Paravicini/Orsini families: Part of the Cabal structure.
+- The NWO: Part of the Cabal structure.
 
 [Key numbers]
-*   25,000 years: Duration of full quarantine on Earth.
-*   1,000 years: Average lifespan of Atlantean giants.
-*   144,000: Number of people meditating that could potentially trigger the Event.
-*   40,000: Population of the Syrian hospital attacked by negative alliance forces.
-*   1-2%: Percentage of population identifying as asexual (attributed to suppressed sexual energy).
-*   900 feet: Height of the highest mountain in Florida.
+- 144K: The number of people doing the Event meditation that can speed up the Event.
+- 25k years: The duration of the quarantine on Earth.
+- 1,000 years: The average lifespan of the giants.
+- 1-2%: The percentage of the population that is asexual.
+- 900 feet: The height of the highest mountain in Florida.
+- 40,000: The number of people in the hospital in Syria that was attacked.
+- 25 years: The duration of the Ethiopian government's control by psychopaths/sociopaths.
+- 1996: The year of the Archon invasion.
+- 1959: The year of the Dyatlov Pass Incident.
+- 1960s: The decade when people started predicting a mega earthquake in California.
+- 2000: The year of the Global 2000 agenda.
+- 2009: The year the conscript collection in Lithuania was nullified.
+- 2015: The year the conscript collection in Lithuania was reinstated.
+- 2016: The year of the US Presidential elections.
+- 2026: The year of the Event (implied by the timeline).
+- 2030: The year of the Event (implied by the timeline).
+- 2032: The year of the Event (implied by the timeline).
 
 [Major declarations & commitments]
-*   The Event is imminent once plasma and strangelet bombs are removed.
-*   Criminal evidence against the Cabal is already embedded in global computer systems and will activate as a pop-up if the Cabal goes too far.
-*   Resistance agents are now physically intervening to stop violence against civilians.
-*   The death of Justice Scalia was a Cabal murder that triggered increased Resistance protection for key figures.
-*   Full disclosure is the only option; partial disclosure will not happen.
-*   Akashic records and crystal libraries will be released after the Event, when humanity is ready.
-*   No major catastrophic earthquake is expected in California due to stabilization by light forces.
-*   The US President is a puppet of the Cabal regardless of party; the focus is on removing the controllers.
+- The removal of plasma and strangelet bombs is the final step before the Event.
+- The Resistance has infiltrated computer systems with criminal evidence against the Cabal.
+- Armed Resistance agents are on the surface to prevent violence against civilians.
+- The "dark" forces attacked a hospital in Syria, framing the Russians.
+- The situation in Ethiopia and sub-Saharan Africa is worsened by reptilian and Archon infiltration.
+- Justice Antonio Scalia was murdered by the Cabal.
+- The Resistance has infiltrated security around Cabal personnel.
+- The 2016 US Presidential elections are proceeding, but the President is a puppet of the Cabal.
+- The "Event" will occur regardless of human action.
+- The "Hall of Records" will be available after the Event.
+- The "black sun" is the symbol of the galactic center.
+- The "Cintamani" stone is from Sirius; "Moldavite" is from the Pleiades.
+- The "Animati" stone is a fire crystal.
+- The "Dyatlov Pass Incident" involved negative non-human beings.
+- The "Bucegi Mountains" gold is natural.
+- The "New Berlin" Nazi base was in Antarctica.
+- The "Atlantis era" war was between dark and light forces.
+- The "Shambhala" is stabilizing the planet.
+- The "Cabal" is tightening control in Europe.
+- The "Resistance" is helping the bee population.
+- The "plasma scalar field mind control network" is coming down.
+- The "Cabal" is using refugees to destabilize Europe.
+- The "Cabal" is using "Agenda 21" for depopulation.
+- The "Cabal" is using "WHO" and "NASA" to control information.
+- The "Cabal" is using "Jesuits" to create suffering in Syria.
+- The "Cabal" is using "Black Nobles" to control the "Cabal".
+- The "Cabal" is using "Rosicrucians" to control the "Cabal".
+- The "Cabal" is using "Paravicini/Orsini families" to control the "Cabal".
+- The "Cabal" is using "NWO" to control the "Cabal".
 
 [Key quotes]
-*   "The negative military faction in US, the Saudi Arabian, the Turkish people, all of them are puppets in the hands of the Jesuits, and the Jesuits want to create as much suffering as possible in the Syrian area because it’s a very important energy vortex."
-*   "I would suggest everybody just discard the whole Zecharia Sitchin story completely."
-*   "The Event will occur regardless of what we do. We are just doing whatever we can to speed up the process and make it easier for everybody. But the Event does not depend on what I do or what you do."
+- "Yes, absolutely, as soon as these are removed, we’re very close to the Event."
+- "The negative alliance forces have attacked that hospital. They have framed it like the Russians did it, but the Russians did not do it."
+- "He was murdered. (OK) This is one of the actions of the Cabal which has. . . They have crossed the line here."

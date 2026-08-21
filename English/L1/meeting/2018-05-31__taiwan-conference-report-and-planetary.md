@@ -3,69 +3,69 @@
 [Historical events]
 - 13.4 billion years ago: Expansion of the cosmic cycle (Galactic Central Sun).
 - 25,000 years ago: Archon grid placed to prevent Soul Mate unions; start of de-manifestation of darkness.
-- 13,000 years ago: Last Galactic Superwave occurrence; mass extinction event.
+- 13,000 years ago: Last Galactic Superwave caused mass extinction.
 - 11,500 years ago: Second Atlantis existed in the Atlantic Ocean.
 - 9564 BC: Destruction of the Second Atlantis.
-- 5,000–6,000 years ago: Archon invasion programming of sexual energy; suppression of Goddess energy.
-- 325 AD: Eusebius created the Bible to unify religions for the Roman Empire.
-- 4th Century AD: Destruction of Goddess traditions and temples.
+- 5,000–6,000 years ago: Archon invasion; sexual energy programming initiated; suppression of Goddess energy.
+- 325 AD: Eusebius created the Bible to unify religions for Roman Empire control.
+- 4th Century AD: Destruction of Goddess traditions/priestesses.
 - 1775: Francis Bacon opened a Mystery School in Paris.
-- 1945: End of WWII; start of transition to Soul Family society.
+- 1945: Transition to Soul Family society began after Galactic Confederation victory.
 - 1950s: Galactic Confederation attempted contact.
-- 1960s: Sexual revolution.
+- 1960s: Sexual revolution driven by Galactic imprints.
 - 1995: Original planned date for The Event; timeline collapsed due to 80% of souls refusing mission.
-- 1996: Chimera invasion; dark forces transported from Orion to this solar system.
-- 1998–2000: Collective work of Light Workers averted nuclear war.
+- 1996: Chimera invasion; Archons transported from Orion.
+- 1998–2000: Light Workers averted nuclear war through meditation.
 - 1999: Liberation of Planet X (took 2 weeks).
-- February 2012: Drake spoke about mass arrests; plan cancelled due to critical mistakes.
+- 2012: Second opportunity for The Event; plan cancelled due to critical mistakes.
+- February 2012: Drake spoke about mass arrests.
 - August 2017: Most successful mass meditation (3–4 million participants).
-- January 27, 2018: Resistance Movement cut off all info to the world; Earth declared Galactic Confederation Domain; Pleiadians initiated New Timeline.
-- April 9, 2018: RM started clearing Archon grids; Archons escalated conflict in Syria.
-- April 14–15, 2018: Ascension Conference held in Hungary; Sisterhood of the Rose reactivated.
+- 27 January 2018: Resistance Movement cut off info; Galactic Confederation declared Earth a Confederation Domain; Pleiadians initiated New Timeline/Galactic Wave of Love.
+- 9 April 2018: RM started clearing Archon grids in Syria; Archons triggered escalation.
+- 14–15 April 2018: Ascension Conference held in Hungary.
 [Entities & roles]
-- Cobra: Presenter of intelligence; instructed to recreate Sisterhood of the Rose.
-- Pleiadians: Fleet present since Thursday; supporting Compression Breakthrough; activating Soul Families.
-- Resistance Movement (RM): Clearing Archon grids; guarding sacred caves; cut off internet info on Jan 27, 2018.
+- Cobra: Conference leader; presents intelligence; initiated Sisterhood of the Rose.
+- Pleiadians: Fleet present since Thursday; supporting Compression Breakthrough; activating Soul Families; 500–1000 watching the conference.
+- Resistance Movement (RM): Clearing Archon grids; guarding sacred caves; cut off internet info on 27 Jan 2018.
 - Archons: Dark forces; controlling media; preventing Soul Mate unions; triggered Syria escalation.
-- Chimera: Invented toplet bombs millions of years ago; invaded in 1996.
+- Chimera: Invented toplet bombs; invaded in 1996.
+- Galactic Confederation: Declared Earth a Domain on 27 Jan 2018; enforcing Galactic Codex.
 - St. Germain: Head of New Atlantis project; supports manifestation.
-- Francis Bacon: Incarnation of St. Germain; released plan for New Atlantis in 18th Century.
-- Eusebius: Created the Bible in 325 AD.
+- Francis Bacon: Incarnation of St. Germain; wrote "New Atlantis"; opened Mystery School in 1775.
 - Mercer Family: Controls pharmaceutical industry and Cambridge Analytical.
-- Jesuits: Control Archon grid; part of NWO plan.
-- Black Nobility: Control Archon grid; Vatican-oriented.
-- Isis Astara: Goddess presence; "crown of her work" in Sisterhood activation.
-- Ashtar Command: Sending 5th dimensional columns of Light (ATVOR).
+- Jesuits/Black Nobles: Control Archon grid; linked to Vatican/Knights of Malta.
+- Sisterhood of the Rose: Ancient Mystery School reactivated at the conference; anchors Goddess energy.
 [Key numbers]
-- 270: Number of people at the conference.
-- 100,000,000: Number of galaxies in the Universe.
-- 14 years: Time since Cobra started building Tachyon chambers.
-- 25,000 years: Precession cycle / wobble in Earth.
+- 6 layers of programming.
+- 100,000,000 galaxies in the Universe.
+- 270 people at the conference.
+- 14 years ago: Cobra started building Tachyon chambers.
+- 25,000 years: Precession cycle.
 - 13,000 years: Interval of Galactic Superwave.
-- 80%: Percentage of souls who refused to awaken in 1995.
-- 20: Number of people who could have changed destiny in 1995.
+- 80% of souls refused the 1995 mission.
+- 20 people could have changed destiny in 1995.
 - 1975–2025: Time window for The Event.
-- 200–300: Number of cloaked ships above the conference center.
-- 500–1,000: Number of Pleiadians watching the room.
-- 15%: Europe's share of global population.
-- 3–4 million: Number of people in the August 2017 mass meditation.
-- 1%: Effectiveness of chemtrails.
-- 500: Number of people who have achieved Light Body ascension.
-- 3 years: Time to recover from birth implantation trauma.
-- 250 years: Time since Rothschilds made NWO decision.
-- 15 EUR: Cost of a silver coin for manifestation.
-- 70%: Percentage of women who cannot experience orgasm due to programming.
-- 20% vs 70%: Divorce rates before 1945 vs now.
+- 15% of global population in Europe.
+- 3–4 million people in August 2017 meditation.
+- 200–300 cloaked ships above the conference.
+- 500–1000 Pleiadians in the room.
+- 5 families control mainstream media.
+- 1% effectiveness of chemtrails.
+- 3 years to recover from birth implantation.
+- 500 people have achieved Light Body ascension.
+- 20% divorce rate before 1945; 70% now.
+- 70% of women cannot experience orgasm due to programming.
+- 15 EUR: Cost of silver coin for manifestation.
 [Major declarations & commitments]
-- The Event will be televised and participants will be active.
-- Earth is a Galactic Confederation Domain as of Jan 27, 2018; laws enforced with military force if necessary.
+- The Event will be televised and participants will be contacted.
+- Earth is a Galactic Confederation Domain as of 27 January 2018.
 - The Compression Breakthrough WILL happen.
 - Readers must de-programme from 6 layers of Matrix programming.
 - Readers must cancel primary contracts with dark forces using the provided protocol.
-- Readers must activate Light Body and connect with Soul Families.
-- The Sisterhood of the Rose will anchor feminine energy for the planet.
-- Mass meditation is required to relieve the situation in Syria.
+- Readers must activate their Light Body and connect with Soul Families.
+- The Sisterhood of the Rose is reactivated to anchor the Galactic Wave of Love.
+- Mass meditation is required to counter Archon grid suppression.
 [Key quotes]
 - "The Event will be televised. We will be active then and you need to be trained for this."
 - "As of 27 January 2018 Earth is a Confederation planet and considered Galactic Confederation Domain."
-- "The Compression Breakthrough WILL happen. When it does, you will know. It will be very real."
+- "The time window for The Event runs from 1975 to 2025."

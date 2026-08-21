@@ -1,27 +1,31 @@
 <!-- card: interview/2014-11-05__cobra-interview-with-untwine | 2014-11-05 | Cobra interview with Untwine -->
 [Publication date] 2014-11-05
 [Historical events]
-- Late 1990s: Group in California ascended to Sirius.
+- Late 1990s: Group from California ascended to Sirius.
+- 1996: Archon invasion; Pleiadians captured and rescued.
 - 14th century: Cathars/templars transferred treasure to Rennes-le-Chateau.
-- 2014-11-05: Interview date.
+- 1940s: Nazis found part of treasure in WWII.
 [Entities & roles]
-- Cobra: Interviewee; discusses Ashtar, Osiris, and holy grail stones.
-- Untwine: Interviewer; asks about Ashtar, Osiris, and grail stones.
-- Ashtar/Ishtar: Same being; twin flame of Ashtar.
-- Osiris: Ashtar; main focus in Sirius.
-- Brotherhood of the Star: 70 ascended masters + Esoteric Brotherhood.
+- Cobra: Emissary of the Light.
+- Untwine: Interviewer.
+- Ashtar/Ishtar/Isis: Same being; main focus in Sirius.
+- Brotherhood of the Star: 70 ascended masters + disciples.
 - Ordo Bucintoro: Part of Esoteric Brotherhood.
-- Moldavite Chalice: In hand of light forces; will be activated at Event.
+- Templars: Positive and negative groups; did not control financial system.
+- Jesuits: Infiltrated Freemasonry.
 [Key numbers]
 - 70: Number of ascended masters (approximate).
 - 1,000 tons: Gold in treasure of Solomon.
+- 14th century: Era of treasure transfer.
 [Major declarations & commitments]
 - Ashtar is Osiris.
 - The Osiris story is a symbolic reflection of late Atlantean wars.
-- The banking system was imported from Orion.
-- The holy grail stones will counter the black stone.
-- The quarantine will open and light forces will liberate etheric/astral planes.
+- The quarantine is the most difficult in the history of the Universe.
+- The banking system was imported from Orion thousands of years ago.
+- The "black stone" in Mecca is a piece of meteorite used in occult rituals.
+- The 13th zodiac sign is the mystery of free will.
+- The moldavite chalice is in the hands of the light forces.
 [Key quotes]
 - "Ashtar is Osiris yes."
-- "The banking system was actually imported from Orion thousands of years ago."
-- "It will be activated at the time of the event, and will serve as a lens."
+- "The banking system was actually imported from Orion thousands of years ago. It was just changing and adapting to the political and economical situation on the planet."
+- "The black stone in mecca is not the black stone i am speaking about... According to some legend there is a small piece of meteorite which has been put into one corner of the kabba in mecca."

@@ -1,25 +1,31 @@
 <!-- card: interview/2015-01-01__cobra-interview-with-rob-on-false-flags-and-nwo | 2015-01-01 | Cobra Interview with Rob on False Flags and NWO Plans -->
 [Publication date] 2015-01-01
 [Historical events]
-- 2014-12: Paris and San Bernardino false flags.
-- 2000: Cabal's target year for NWO completion.
-- 2015-01-01: Interview date.
+- 2000: Target year for NWO completion (failed).
+- 1996: Archon invasion.
+- 1950s: Secret Nazi space program.
+- 1960s: Negative contacts increased.
 [Entities & roles]
-- Cobra: Interviewee; discusses false flags, NWO, and Anunnaki.
-- Rob: Interviewer; asks about false flags, NWO, and Anunnaki.
-- Cabal: Promoting new laws to restrict movement; 80-90% of plans stopped.
+- Cobra: Emissary of the Light.
+- Rob: Interviewer.
+- Cabal: Promoting NWO; using false flags.
+- Osho: Soul from Sirius; killed by Cabal.
 - Anunnaki: Name not acknowledged by sources; stories fabricated.
+- Hyksos: Branch of Khazarians; portal for reptilian hybrids.
 - Moses: Priest initiated in Egypt's mystery schools.
 [Key numbers]
+- 2000: Year NWO was planned to be complete.
 - 80-90%: Percentage of Cabal plans stopped by light forces.
-- 2000: Year Cabal planned NWO completion.
+- 25,000 years: Duration of scalar wave technology.
 [Major declarations & commitments]
-- The Cabal's NWO plan was to complete by 2000; it failed.
-- The Anunnaki stories are fabricated; sources do not acknowledge the name.
-- Monotheistic religions were created to control people's connection to the absolute.
-- The Event will initialize the activation of dormant DNA/brain.
-- The Cabal's goal to reduce population is not successful.
+- The NWO plan was to complete by 2000; it failed.
+- Osho was a soul from Sirius; killed by the Cabal.
+- The Anunnaki stories are fabricated.
+- Moses was initiated in positive mystery schools.
+- The absolute Source is not the Creator; the universe was created by interaction of Absolute and Contingency.
+- The Cabal uses the cube in Mecca to suppress the Goddess vortex.
+- The Kuiper Belt contains both Chimera bases and light forces.
 [Key quotes]
-- "About 80 – 90% of their plans never see the light of day because they are stopped."
-- "My intelligence does not mention that name. They don’t acknowledge that name."
-- "The Event is the moment when this change will be initialized."
+- "Their plan for the NWO, their goal was to complete the process in the year 2000. And obviously it didn't happen."
+- "He was a soul coming from the Sirius star system... He was actually killed by the Cabal."
+- "My intelligence does not mention that name [Anunnaki]. They don't acknowledge that name."

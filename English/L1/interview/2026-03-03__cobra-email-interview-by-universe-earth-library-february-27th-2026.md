@@ -1,23 +1,86 @@
 <!-- card: interview/2026-03-03__cobra-email-interview-by-universe-earth-library-february-27th-2026 | 2026-03-03 | Mr. C Email Interview by Universe Earth Library February 27th, 2026 -->
 [Publication date] 2026-03-03
 [Historical events]
-- 2026-02-27: Interview conducted.
+- Gandhara and Gupta periods: Contact between Western esoteric traditions and Eastern Daoism/Buddhism in India.
+- Past (time not stated): Demons sealed beneath the Vatican were cleared.
+- Past (time not stated): The Mahakaleshwar Temple in Ujjain, India, was established as a location for a very ancient AN/ATVOR pillar of Light.
+- February 2026: Aldebarans achieved a push towards Disclosure.
+- January 2026: Plans for advanced technology releases failed or were delayed.
+- Future (time not stated): The Event will occur; internet may be temporarily offline during it.
+- Future (time not stated): Past life memories will gradually return on their own.
+- Future (time not stated): The Light Forces will restore many damaged Goddess energy sacred sites.
+- Future (time not stated): The Ascension Mystery School will operate like ashrams.
+- Future (time not stated): Human souls may ascend to the level of planetary consciousness.
 [Entities & roles]
-- Mr. C (Cobra): Interviewee.
-- Universe Earth Library: Interviewer.
-- Red Dragon: Low profile in China.
-- Blue Dragons: Connected to Dream of the Red Chamber.
-- Green Dragons: Guardians of Emerald Light; lineage from Atlantis.
+- Mr. C: Interviewee providing updates on planetary situation, minerals, and future events.
+- Universe Earth Library (UEL): Organizer of the interview; positions itself as an information platform for the Chinese lightworker community.
+- Lurkers: Entangled with a "very dark network" originating from another universe; significant progress in clearing this entanglement is not likely soon.
+- The Light Forces: Slowly gaining the upper hand in the war for the planetary energy grid and timeline; responsible for clearing the dark network and restoring sacred sites.
+- The Brotherhood of Death (Illuminati and black nobility): Still have significant influence.
+- Aldebarans: Continuing operations behind the scenes involving Trump and Elon Musk; achieved a push towards Disclosure in February.
+- Pleiadians: Communicated a wish to do a mass display of their fleet of motherships; may or may not do this in the near future.
+- Red Dragon (China): Keeping a very low profile as it is not safe.
+- Blue Dragons: Connected to the authorship of *Dream of the Red Chamber*.
+- Saint Germain: Connected to the New Atlantis plan via North Carolina emeralds.
+- Green Dragons (Islamic world): Guardians of the Emerald Light; lineage originates from the Emerald temple in Atlantis.
+- Guanyin: Deity with whom lightworkers can connect by visualizing her presence in the soul star chakra.
+- Sedna: Minor planet astrologically meaning Platonic year / solar flash half cycle.
+- Phoenix: Symbol of rebirth and transformation.
+- One Piece (Manga): Described by Mr. C as a form of disclosure regarding ruling classes and hidden power structures.
 [Key numbers]
-- 18%: Public expectation of disclosure this year.
-- 50%: Public expectation of first contact by end of decade.
+- February 2026: Month of Aldebarans' push towards Disclosure.
+- January 2026: Month when advanced technology plans failed or were delayed.
+- 2018: Year of the conference where the Phoenix symbol was mentioned.
+- 2026: Year of the interview and current planetary situation updates.
 [Major declarations & commitments]
-- Significant progress not likely early 2026.
-- Silver price rise is natural response to trust collapse.
-- Aldebarans pushing disclosure in February.
-- Dream of the Red Chamber is single author, Blue Dragon connection.
-- Heliodor connects to Golden Timeline.
+- Significant progress in clearing the Lurker/humanity entanglement anomaly is not likely soon.
+- No intelligence can be shared regarding the "very dark network" or "source of cosmic evil."
+- No part of the ATVOR/VENTLA descent operation can be disclosed at this time.
+- Major developments visible to the general public are possible this year but not guaranteed.
+- The price of silver is volatile due to manipulation but will increase in the long term; its exponential rise is an indicator of approaching the Event.
+- The surge in silver prices is a natural response to the collapse of trust in the system, not a Light Forces operation.
+- Light Forces intervention on the surface is not going smoothly.
+- The Brotherhood of Death still has significant influence.
+- Aldebarans' plan to disguise as military, take control of a small country, and broadcast disclosure via TV is still a possibility.
+- A financial collapse triggering the positive quantum financial system earlier is a very unlikely scenario.
+- The Light Forces are slowly gaining the upper hand in the war for the planetary energy grid and timeline.
+- All plans for advanced technology releases in January failed or were delayed.
+- Red Dragon in China is keeping a low profile.
+- *Dream of the Red Chamber* is a work of a single author connected to the Blue Dragons, using Ming history as a code.
+- The Nüwa legend is about restoring cosmic balance.
+- The I Ching is not reliable enough for Light Forces use as it reflects subconscious projections.
+- Burning joss paper creates a spiritual connection and purification.
+- North Carolina emeralds carry codes of the New Atlantis and strengthen the connection between Saint Germain and the USA.
+- Only very experienced energy workers should use Somali emeralds.
+- Phenakite from Russia can have even higher vibration than that from Myanmar.
+- Heliodor connects us with the Golden timeline, and its time has come now.
+- Emeralds can be used as universal hard currency for bartering with extraterrestrials.
+- Chatham Created Emeralds have a very limited role in planetary liberation efforts.
+- No other items besides emeralds, valuable art, and high-quality organic pumpkin seed oil are known for universal trade.
+- Providing specific coordinates for star family meetings before the Event is very unlikely and unsafe.
+- Exhausted lightworkers need to start working on their Golden timeline.
+- The Light Forces can contact individuals in dreams for encouragement and healing.
+- The Phoenix is a symbol of rebirth and transformation.
+- Sedna astrologically means Platonic year / solar flash half cycle.
+- The primary anomaly of the Universe comes from random fluctuations of the contingency wave function.
+- Green Dragons are guardians of the Emerald Light due to their lineage from the Emerald temple in Atlantis.
+- During the Event, the internet may be temporarily offline.
+- The basic approach for lightworkers during the Event remains the same.
+- Past life memories will gradually return on their own, and special techniques for recall will be shared.
+- The Light Forces will restore many damaged Goddess energy sacred sites.
+- The Ascension Mystery School will operate more like ashrams.
+- There will be much freedom of choice after the Event, within certain operational restraints.
+- Lightworkers should decide not to engage in conflict.
+- Demons sealed beneath the Vatican have already been cleared.
+- Varanasi is a very powerful spiritual vortex.
+- The Mahakaleshwar Temple is a location of a very ancient AN/ATVOR pillar of Light.
+- One Piece was a form of disclosure.
+- People need to check all external information with inner guidance.
+- Recommended Renaissance books: Achille Bocchi's *Symbolicarum quaestionum* and Marsilio Ficino's *Theologia platonica de immortalitate animorum*.
+- A planetary consciousness cannot descend to the human level, but a human soul can ascend to the level of planetary consciousness.
+- Starting with learning is a good first step for those who cannot find their path.
+- Lightworkers should start connecting with their Golden timeline and Soul.
 [Key quotes]
-- "Price of silver is very volatile because it is being manipulated, but in the long term price will definitely increase."
-- "It is a work of a single author, connected to the Blue Dragons."
-- "Heliodor connects us with our Golden timeline and its time has come now."
+- "Significant progress is not likely so early, it will take a little longer."
+- "The Light Forces are slowly gaining the upper hand."
+- "Start connecting with your Golden timeline, connect with your Soul and situations will soon start getting better."

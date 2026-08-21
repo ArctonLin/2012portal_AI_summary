@@ -1,25 +1,25 @@
 <!-- card: interview/2013-10-01__cobra-interview-with-alexandra-meadors | 2013-10-01 | Cobra Interview with Alexandra Meadors -->
 [Publication date] 2013-10-01
 [Historical events]
-- 1989: Poland played a crucial role in the fall of communist regimes.
-- 100 years ago: Cabal placed explosives in key infrastructure points.
-- 1930: Last time a country attempted to break free from the IMF (Iceland/Hungary comparison).
+- 2012: Gold removed from the surface by the Resistance (Resistance, Earth).
+- 2013: Truckers strike in the US; sign of mass awakening (US).
+- 2013: Fall of the Muslim Brotherhood government in Egypt (Egypt).
+- 2013: Cameron voted down in the UK; Positive Templars making moves (UK).
 [Entities & roles]
-- Cabal: Trying to get rid of good guys in the military; almost bankrupt.
+- Cabal: Almost bankrupt; fighting over collateral accounts that don't exist.
 - Positive Military: Making themselves more public.
-- Jesuits: Controlling the NSA; creating the matrix.
-- Eastern Alliance: Trying to liberate the planet.
-- White Dragon Society: Working behind the scenes.
+- Eastern Alliance: Trying to liberate the planet from negative factions.
+- Jesuits: Trying to trick and negotiate their way out.
 [Key numbers]
-- 380,000: Number of troops preparing to move into Washington D.C. (disputed).
-- 100 years: Time since Cabal placed explosives.
+- 380,000: Number of troops preparing to move into Washington DC (debunked by Cobra).
+- 13 billion: Amount JP Morgan settled with the US Dept of Justice.
+- 7.6 billion: Amount Russia seized from private pension funds.
 [Major declarations & commitments]
-- The gold has been removed from the surface by the Resistance.
-- The trucker strike is a sign of mass awakening in the US.
+- The "Event" will happen when the bonds are triggered to be cashed.
+- The new financial system will be activated at the time of the Event.
 - The Cabal is almost bankrupt.
-- The new financial system will be reset at the Event.
-- The Cabal will not be allowed to use nuclear weapons.
+- The "Event" will not happen before the mass awakening starts in the US.
 [Key quotes]
-- "All the gold which actually formed the basis of the collateral accounts has been removed from the surface of the planet by the resistance movement."
+- "The cabal has managed to destroy many things on the surface of the planet... So the Cabal is almost bankrupt."
 - "The trucker strike is a very good sign of the mass awakening in the United States."
-- "The Cabal is almost bankrupt."
+- "Several of the bonds they will be triggered to be cashed and this will bankrupt the financial system of the cabal."

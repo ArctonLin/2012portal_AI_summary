@@ -1,72 +1,105 @@
 <!-- card: meeting/2017-07-30__cobra-ascension-conference-taipei | 2017-07-30 | Cobra Ascension Conference Taipei -->
 [Publication date] 2017-07-30
 [Historical events]
-*   Billions of years ago: Galactic Central race expanded, creating "light towns" (pulsars) in Fibonacci sequences.
-*   17th century: New Atlantis project started by St. Germaine (Francis Bacon/Shakespeare) to reclaim energy grid.
-*   1975–2025: 50-year timeline window for clearing the primary anomaly and planetary liberation.
-*   1996: Major setback with Archon invasion of the Congo portal in Africa.
-*   May 17, 1998: Significant reversal reached, clearing much negativity from the 1996 invasion.
-*   February 26, 2017: Solar eclipse; global meditation reached critical mass, dissolving the body of Yaldaboath (dark anomaly in solar system plasma).
-*   July 16, 2016: Huge energy breakthrough for the planet at the Ascension conference in Taiwan.
-*   March 11–12, 2017: Cobra Ascension Conference held in Taipei.
-*   End of Ming Dynasty: Original Ming family went underground and migrated to Taiwan.
-*   Post-World War II: Other Dragon families infiltrated Chinese society.
-*   (time not stated): 4 of 5 Goddess vortexes in Syria liberated as a result of the global meditation on the last solar eclipse.
-*   (time not stated): Cabal placed scalar plasma network in the brain; 95% of illnesses created by this network.
-*   (time not stated): Cabal's most powerful radar stations in Maui and Diego Garcia Island monitor ET activity.
-*   (time not stated): Northern Taiwan holds largest underground project (60km x 100 km), housing 1 billion Pleiadians, expanding to 3 billion; contains teleportation devices and 1000 tons of gold.
-*   (time not stated): Pleiadian mother ships station themselves just outside a 12,000 km range from Earth's surface, beyond the head of Yaldaboath.
-*   (time not stated): 144,000 people saying absolute no to the Cabal would result in the compression breakthrough.
+*   March 11-12, 2017: Cobra Ascension Conference in Taipei.
+*   1975-2025: Timeline window for the clearing of the primary anomaly and liberation of the planet.
+*   1996: Major setback with the Archon invasion of the Congo portal.
+*   May 17, 1998: Significant reversal that cleared much negativity.
+*   February 26, 2017: Solar eclipse; global meditation reached critical mass, resulting in significant reversal of the Archon invasion.
+*   (time not stated): The body of Yaldabaoth completely dissolved; only the head remains surrounding the planet.
+*   (time not stated): The Galactic Central race expanded throughout the galaxy creating "light towns" in the form of pulsars.
+*   (time not stated): The solar system is positioned along a "galactic highway" via Sirius.
+*   (time not stated): The Cabal has placed a scalar plasma network in the brain.
+*   (time not stated): 95% of all illnesses are created as a result of this negative plasma network.
+*   (time not stated): The New Atlantis project was started in the 17th century by St. Germaine (Francis Bacon).
+*   (time not stated): The book "A Work Unfulfilled" is about this project.
+*   (time not stated): Antarctica is a key point in the new energy grid.
+*   (time not stated): The Nazis bought much land in Antarctica.
+*   (time not stated): The Cabal's most powerful radar stations are in Maui and Diego Garcia Island.
+*   (time not stated): The Mother Ships cannot be detected due to their placement inside a plasma cloud.
+*   (time not stated): Northern Taiwan holds the largest underground project (60km x 100 km) which can house 1 billion Pleiadians and is expanding to 3 billion.
+*   (time not stated): The base houses teleportation devices and 1000 tons of gold.
+*   (time not stated): July 16, 2016: Huge energy breakthrough for the planet at the Ascension conference in Taiwan.
+*   (time not stated): The Dragon family goes back to the end of the Ming Dynasty.
+*   (time not stated): The Jesuits and Rothschilds created the opium wars.
+*   (time not stated): After WWII, other dragon families infiltrated Chinese society.
+*   (time not stated): The Taiwanese group in Taipei (Anthem Chang) has grown a large group of Lightworkers.
+*   (time not stated): The Agarthians have asked to bring Cintamani stones into caves.
+*   (time not stated): 4 of the 5 Goddess vortexes in Syria were liberated after the last solar eclipse.
+*   (time not stated): The Cabal has very strategically and successfully implemented ways to atrophy the pineal and pituitary chakras.
+*   (time not stated): The Rothschilds are supreme manifestors.
+*   (time not stated): The Cabal is distracting us by making us think it is selfish to know what we want.
+*   (time not stated): After the Event, manifesting will take place much quicker - immediately in 5D.
+*   (time not stated): 144,000 people saying absolute no would result in the compression breakthrough.
+*   (time not stated): The Cabal is distracting us by making us think it is selfish to know what we want.
+*   (time not stated): The Cabal is distracting us by making us think it is selfish to know what we want.
 
 [Entities & roles]
-*   **Cobra**: Speaker at the conference; source of teachings on ascension, manifestation, and plasma physics; represents the 70 million beings in the Resistance Movement.
-*   **Peter Reed**: Author of the notes; attendee of the Taipei conference; interprets and paraphrases Cobra's material.
-*   **Yaldaboath**: Energetic form of the dark anomaly; body dissolved in Feb 2017, head still surrounds Earth.
-*   **Archons**: Invaded Congo portal in 1996, causing a major setback.
-*   **Pleiadians**: Assisting in personal and planetary ascension; 1 billion housed in Northern Taiwan base; mother ships stationed 12,000 km from Earth.
-*   **Galactic Central Race**: Expanded billions of years ago; overseeing liberation; Mother Ships hidden in plasma clouds.
-*   **Chimera**: Using plasma cloud to hide their plasma anomaly (darkness).
-*   **The Cabal**: Placed scalar plasma network in brains; afraid of Mother Ships; operates radar in Maui/Diego Garcia; hides remnants in Antarctica; distracts humans from manifesting.
-*   **Dragon Family**: Connected to Northern Taiwan underground base; active in planetary liberation; lineage traces to Ming Dynasty.
-*   **Jesuits & Rothschilds**: Created opium wars to stifle Chinese spiritual progress; Rothschilds are "supreme manifestors" controlling the planet.
-*   **St. Germaine**: Incarnation of Francis Bacon (code name Shakespeare); started New Atlantis project in 17th century.
-*   **Agarthians**: Requested Cintamani stones be brought into caves to generate vortices and anchor Angelic Beings.
-*   **Alexandra**: Introduced by Cobra; discussed Light Mandala technology and community of light establishment.
-*   **Anthem Chang**: Founder of the Taipei Lightworker group.
-*   **Tesla**: Discovered plasma standing wave/electron transmission; inventions hijacked by the Cabal.
+*   **Cobra**: Speaker at the conference; presents notes on ascension and manifestation.
+*   **Peter Reed**: Author of the notes; attended the conference.
+*   **Pleiadians**: Here to assist in personal and planetary ascension.
+*   **Galactic Central Race**: Overseeing the liberation of the solar system and planet.
+*   **Chimera Group**: Using the plasma cloud to hide their plasma anomaly.
+*   **Cabal**: Placed a scalar plasma network in the brain; afraid of Mother Ships.
+*   **St. Germaine**: Francis Bacon in that incarnation; started the New Atlantis project in the 17th century.
+*   **Francis Bacon**: Code name Shakespeare; started the New Atlantis project.
+*   **Shakespeare**: Code name for Francis Bacon.
+*   **Nazis**: Bought land in Antarctica.
+*   **Dragon Family**: Connected to the underground base in northern Taiwan; active in liberation.
+*   **Anthem Chang**: Founder of the Taiwanese Lightworker group.
+*   **Agarthians**: Asked to bring Cintamani stones into caves.
+*   **Rothschilds**: Supreme manifestors; used the process to come into power.
+*   **I AM Presence**: Pure light; inner true soul Being.
+*   **Merkaba**: Diamond light body; same geometrical form as Earth, Mother Ships, stars, galaxies.
+*   **Ascended Masters**: Gave ray initiations at the conference.
+*   **Alex**: Spoke about the Light Mandala technology.
+*   **Light Mandala**: Technology utilizing sacred coherent light.
 
 [Key numbers]
-*   225 million years: Time for one galactic rotation.
-*   26,000 years: Approximate interval for super wave/pulse from galactic center.
-*   50 years: Timeline window for clearing primary anomaly (1975–2025).
+*   225 million years: Time for one galaxy rotation.
+*   26,000 years: Time for a super wave/pulse from the galaxy center.
+*   50 years: Timeline window for clearing the primary anomaly (1975-2025).
+*   1996: Year of the Archon invasion of the Congo portal.
+*   May 17, 1998: Date of significant reversal.
+*   February 26, 2017: Date of solar eclipse.
 *   100 billion: Number of stars in our galaxy.
 *   100,000 light years: Width of our galaxy.
-*   95%: Percentage of illnesses created by the negative plasma network in the brain.
-*   17th century: Start of New Atlantis project.
-*   60km x 100 km: Dimensions of the Northern Taiwan underground project.
-*   1 billion: Current capacity of Pleiadians in Northern Taiwan base.
-*   3 billion: Expanded capacity of Northern Taiwan base.
-*   1000 tons: Amount of gold in Northern Taiwan base.
+*   95%: Percentage of illnesses created by the negative plasma network.
+*   17th century: Century the New Atlantis project was started.
+*   60km x 100 km: Size of the underground project in northern Taiwan.
+*   1 billion: Capacity of the northern Taiwan base for Pleiadians.
+*   3 billion: Expanded capacity of the northern Taiwan base.
+*   1000 tons: Amount of gold in the northern Taiwan base.
+*   July 16, 2016: Date of huge energy breakthrough in Taiwan.
 *   4 of 5: Number of Goddess vortexes in Syria liberated.
-*   12,000 km: Distance of Pleiadian mother ships from Earth's surface.
-*   144,000: Number of people saying "no" to trigger compression breakthrough.
-*   3: Number of Galactic Ray/Ascended Master Ray Initiations available for registration.
-*   2: Daily practice frequency for initiations.
-*   3: Steps in the manifestation process (Decision, Will/Invocation, Action).
+*   144,000: Number of people saying absolute no for compression breakthrough.
+*   3: Number of steps in the manifestation process (Decision, Will/Invocation, Action).
+*   2: Number of days of the conference.
+*   3: Number of ray initiations one could register for.
+*   2: Number of times daily to practice the initiation.
 
 [Major declarations & commitments]
-*   The body of Yaldaboath has completely dissolved; only the head remains surrounding the planet, marking the beginning of the second phase of ascension.
-*   The 50-year window for planetary liberation extends from 1975 to 2025.
-*   The global meditation on the February 26, 2017 solar eclipse exceeded expectations and resulted in significant reversal of the 1996 Archon invasion.
-*   The Cabal is most afraid of the Mother Ships (Galactic Central Race).
-*   The Northern Taiwan underground base is a strategic point assisting in the compression breakthrough with the help of the Dragon family.
-*   144,000 people saying absolute no to the Cabal would result in the compression breakthrough.
-*   After the Event, manifesting will take place much quicker—immediately in 5D.
-*   Meeting soul mates will become much easier and more likely after the Event.
-*   Etheric implants will be removed after the Event as the source of negative anomalies dissolves.
-*   The notes are approved by Cobra for release to the public.
+*   The timeline window for the clearing of the primary anomaly is 1975-2025.
+*   The body of Yaldabaoth has completely dissolved; only the head remains.
+*   The Galactic Central race is overseeing the liberation.
+*   The Cabal has placed a scalar plasma network in the brain.
+*   95% of illnesses are created by this network.
+*   The New Atlantis project was started in the 17th century.
+*   The northern Taiwan base is the largest underground project.
+*   The Dragon family is connected to the northern Taiwan base.
+*   The Agarthians want Cintamani stones in caves.
+*   4 of 5 Goddess vortexes in Syria are liberated.
+*   The Cabal has atrophied the pineal and pituitary chakras.
+*   The Rothschilds are supreme manifestors.
+*   After the Event, manifesting will be immediate in 5D.
+*   144,000 people saying no will trigger the compression breakthrough.
+*   The I AM Presence is pure light.
+*   The Merkaba is the diamond light body.
+*   The Light Mandala technology utilizes sacred coherent light.
+*   The Cabal is distracting us by making us think it is selfish to know what we want.
+*   The Cabal is distracting us by making us think it is selfish to know what we want.
 
 [Key quotes]
-*   "We are in the initial phase of that pulse which basically clears the primary anomaly, the source and cause for all darkness."
 *   "The body of the Yaldaboath which is the energetic form describing the dark anomaly that existed throughout the plasma of our solar system, completely dissolved. Now only the head of Yaldaboath exists surrounding our planet."
+*   "95% of all illnesses are created as a result of this negative plasma network."
 *   "144,000 people saying absolute no (to the cabal having any power over us) would result in the compression breakthrough."

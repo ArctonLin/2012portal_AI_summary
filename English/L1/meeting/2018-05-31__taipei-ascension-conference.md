@@ -1,41 +1,38 @@
 <!-- card: meeting/2018-05-31__taipei-ascension-conference | 2018-05-31 | Taipei Ascension Conference -->
 [Publication date] 2018-05-31
 [Historical events]
-*   5000 - 6000 years ago: First Archon invasion targeting women to suppress female energies.
-*   1,600 years ago: Second Archon invasion targeting women.
-*   Time of Atlantis: Implantation of primary implants; start of female programming.
-*   Time not stated: Murder of Isis Astara (triggered new timeline).
-*   Time not stated: Planet X liberation (took about 3 weeks).
-*   May 12-13, 2018: Taipei Ascension Conference held.
-*   Time not stated: Present moment (Earth now a Galactic Domain; Motherships present in Taipei; Galactic Wave of Love building).
+- Time not stated: Atlantis era (implantation of primary implants; start of female programming).
+- 5000 - 6000 years ago: First Archon invasion targeting women.
+- 1,600 years ago: Second Archon invasion targeting women.
+- Time not stated: Murder of Isis Astara (trigger for new timeline).
+- May 12-13, 2018: Taipei Ascension Conference held.
+- Time not stated: Present moment (Earth declared a Galactic Domain; Motherships present in Taipei; Galactic Wave of Love building).
 [Entities & roles]
-*   Cobra: Speaker at conference; declared Earth a Galactic Domain; taught implant removal and manifestation.
-*   Draconians: Previously claimed right to Earth; now being dismantled by Light Forces.
-*   Galactic Confederation/Light Forces: Using military force to dismantle darkness; managing the new timeline.
-*   Chimera: Still pose a dangerous threat; receive live audio-visual feedback from biochips.
-*   Archons: Created programming layers; harvest anomaly energies; trigger male/female opposing programs.
-*   Pleiadians: Ships previously appeared; now joined by Sirian, Andromedan, and other Motherships in Taipei.
-*   St Germain: Project is to teach Humanity manifestation.
-*   Cabal: Subject of collective demanifestation by ~30,000 people.
-*   Reptilians: 3-5% of population are hybrids; employed to break trust between genders.
+- Cobra: Speaker at the conference; declared Earth a Galactic Domain; taught manifestation and implant removal techniques.
+- Draconians: Previously claimed rights over Earth; now being dismantled by Light Forces.
+- Galactic Confederation: Using military force to dismantle darkness unconditionally.
+- Chimera: Still pose a dangerous threat to humanity; receive live audio-visual feedback from biochips.
+- Pleiadians: Previously appeared with ships; now joined by Sirian, Andromedan, and other Star Races.
+- Archons: Kept humanity on personality/biological levels; harvest anomaly energies; trigger male/female opposing programs.
+- St Germain: Project is to teach humanity manifestation.
+- Cabal: Subject of collective demanifestation by approximately 30,000 people.
 [Key numbers]
-*   350: Participants at Taipei conference.
-*   2000: Cintamani stones planted in Taiwan.
-*   2.5 billion: Capacity of underground base in Northern Taiwan.
-*   30,000: Number of people who initiated demanifestation of the Cabal.
-*   144,000: Hypothetical number for greater impact.
-*   3 weeks: Time taken for Planet X to liberate.
-*   10 - 15 minutes: Duration for hexagonal crystal visualization.
-*   14: Points in the vector equilibrium visualization.
-*   3 - 5%: Percentage of population that are Reptilian hybrids.
+- 350: Number of participants at the Taipei conference.
+- 2000: Number of Cintamani stones planted in Taiwan.
+- 2.5 billion: Capacity of the underground base in Northern Taiwan.
+- 3 weeks: Time taken for Planet X to liberate themselves.
+- 30,000: Number of people who initiated demanifestation of the Cabal.
+- 144,000: Hypothetical number cited for greater impact.
+- 3 - 5%: Percentage of population that are Reptilian hybrids.
+- 10 - 15 minutes: Duration for the hexagonal crystal visualization.
 [Major declarations & commitments]
-*   Earth is now a Galactic Domain of the Light Forces; Galactic intervention is the last phase of "Star Wars."
-*   Humanity is not yet ready for Ascension due to Chimera threat and implants.
-*   The "fixed" part of the future shows the Victory of the Light.
-*   The Galactic Wave of Love will restructure the Galaxy and return Goddess energies to the surface.
-*   Light Forces are working round the clock to create Contact; intel will be released on a need-to-know basis.
-*   Readers are instructed to "JUST DO IT" regarding their missions and stop waiting for instructions.
+- Earth is now a Galactic Domain of the Light Forces; Galactic intervention is the last phase of "Star Wars."
+- Humanity is not yet ready for Ascension due to Chimera threats and implants.
+- The "fixed" part of the future shows the Victory of the Light.
+- The Galactic Wave of Love will restructure the Galaxy and return Goddess energies to the surface.
+- Readers are instructed to use the "Spiritual Contract Revocation" and visualize a hexagonal crystal for implant removal.
+- Lightworkers must stop waiting for intel and instead "JUST DO IT" to manifest their missions.
 [Key quotes]
-*   "Earth is now a Galactic Domain of the Light Forces."
-*   "The 'fixed' part of the future can be seen by the Light Forces, and it shows the Victory of the Light."
-*   "We are each one of us, Neo. 'One is enough'. But we have 350."
+"Earth is now a Galactic Domain of the Light Forces."
+"We're on a new timeline now since the murder of Isis Astara."
+"The moment of Contact approaches."

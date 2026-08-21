@@ -1,30 +1,28 @@
 <!-- card: interview/2016-10-01__cobra-september-2016-interview-with-lynn | 2016-10-01 | Cobra September 2016 Interview with Lynn -->
 [Publication date] 2016-10-01
 [Historical events]
-- 1994: Rwanda genocide; preparation for opening the negative portal in Congo (Rwanda, Congo).
-- 1996: Archon invasion of Congo; negative entities entered through the portal (Archons, Congo).
-- 2016 (September): Chimera group lost nerve; attempted to trigger full-scale galactic war but failed (Chimera).
-- 2016 (recent): Hillary Clinton health issues (Parkinson's, brain damage from 2012 plane crash) (Hillary Clinton).
-- 2016 (recent): Trump identified as Jesuit agent (Trump, Jesuits).
-- 2016 (recent): Russia bombed ISIL command center in Syria; positive action (Russia, ISIL).
-- 2016 (recent): Brazil coup; Michel Temer is a Cabal puppet (Brazil, Cabal).
-- 2016 (recent): South Africa election; Zuma leaving; Cabal control remains (South Africa, Cabal).
+- September 2016: Chimera group attempted to trigger full-scale galactic war but failed (Chimera, Solar System).
+- 1996: Archon invasion of Congo; Rwanda genocide one year prior (Archons, Congo, Rwanda).
+- 1996: Biochips upgraded; Archon invasion (Archons, Biochips).
+- 1999: Biochips developed rapidly (Biochips).
 [Entities & roles]
-- Cobra: States the Event is the final beginning of the end of darkness; states the Central Race is 7th dimension; states Yaldabaoth's plasma body is dissolving; states the Andromeda galaxy is the source of the most powerful dark factions; states Hillary Clinton is alive but has health problems; states Trump is a Jesuit agent; states the US election is a distraction; states the financial reset will erase student loans and most credit cards; states Bitcoin was a light forces project; states the US dollar will be devalued ~50%; states the Jesuits were behind 9/11; states Nelson Mandela was a positive being; states the Mayan race went underground.
-- Jesuits: Behind 9/11; controlling Trump; behind the October Revolution.
-- Cabal: Running out of cash; needs billions daily to maintain quarantine; controlling Brazil and South Africa.
-- Pleiadians: Will contact humanity at the time of the Event.
+- Cobra: States that the "Event" is the final beginning of the end of darkness; confirms that the "Chimera" lost nerve in September; identifies the "Central Race" as 7th dimension and above; states that the "Pleiadians" are 5th/6th dimension; confirms that the "Andromeda galaxy" is the source of the most powerful dark factions.
+- Chimera: Lost nerve in September; attempting to trigger war; using AI to control Dracos/Reptilians.
+- Yaldabaoth: Plasma body is being dissolved slowly.
+- Hillary Clinton: Alive; has Parkinson's and brain damage from a 2012 plane crash.
+- Donald Trump: Jesuit agent; not high in the Jesuit structure; policies engineered by Jesuits.
 [Key numbers]
-- 1 million: Deaths in Rwanda genocide.
-- 50%: Expected devaluation of the US dollar.
-- 16,000 years ago: Small group from Sirius came to Earth (not 144,000).
+- 1 million: Approximate deaths in Rwanda genocide.
+- 7th Dimension: Density of the Central Race.
+- 5th/6th Dimension: Density of Pleiadians.
+- 4th Dimension: Density of Reptilians.
 [Major declarations & commitments]
-- The Event will be the final filtering of negativity.
-- The US election is a distraction; it does not matter who wins.
-- The financial reset will erase student loans and most credit cards.
-- Bitcoin was a project of the light forces.
-- The Jesuits were behind 9/11.
+- The "Event" will be the final filtering of negativity; non-cooperating beings will be taken to the central sun.
+- The "Chimera" lost nerve in September 2016.
+- The "Andromeda galaxy" is the source of the most powerful dark factions.
+- The "US Presidential Election" is a distraction; the Cabal is tampering with it.
+- The "Financial Reset" will devalue the US dollar significantly.
 [Key quotes]
-- "Yes, of course The Event is the final beginning of the end of darkness. At the moment of The Event, all negative beings that don’t want to change into positive will be taken to the central sun."
-- "I see a lot of chaos, unpredictability and I think the whole thing is a big distraction."
-- "Actually, yes Bitcoin was one of the projects of the light forces to create another dent in the Matrix."
+- "The Event is the final beginning of the end of darkness. At the moment of The Event, all negative beings that don’t want to change into positive will be taken to the central sun."
+- "The Chimera group lost a little bit of nerve in the beginning of September and they wanted to trigger full scale... the last remnant of the full scale galactic war in the solar system and they were not successful."
+- "The Andromeda galaxy is a spiral galaxy which is the twin galaxy to our own galaxy."

@@ -1,27 +1,28 @@
 <!-- card: interview/2016-08-01__cobra-interview-on-inner-guidance-and-galactic-h | 2016-08-01 | Cobra Interview on Inner Guidance and Galactic Heartbeat -->
 [Publication date] 2016-08-01
 [Historical events]
-- 1996: Archon invasion; soul catching machines used in underground bases (Archons, Underground bases).
-- 1999: Most souls on Earth evacuated from the Astral plane to the Pleiades (Light forces, Pleiades).
-- 2016 (July): Breakthrough allowed light to come through plasma/etheric planes; number of negative beings reducing drastically (Light forces, Plasma plane).
-- 2016 (recent): Removal of toplet bombs; vast majority of plasma strangelet bombs removed (Chimera, RM).
+- 1996: Soul catching machines used in underground bases to trap souls (Archons, Underground Bases).
+- 1999: Most souls on Earth evacuated from the Astral plane to Pleiades (Light Forces, Pleiades).
+- July 2016: Breakthrough allowed light to come through plasma/etheric planes, reducing negative beings (Light Forces, Plasma Plane).
+- 25,000 years: Cycle of the galactic pulse/heartbeat (Galactic Central Sun).
 [Entities & roles]
-- Cobra: Explains the Galactic Heartbeat (pulse every 25,000 years); states the center of the Earth is a Stargate; confirms the Archon leader was arrested in May 2012, then disintegrated in the galactic central sun; states the current Archon leader (near Rome in 2014) has been relocated and lost power; states Yaldabaoth is a plasma energy being from Andromeda/Orion; states the Central Race is 7th dimension and up; Pleiadians are 5th/6th; Reptilians are 4th.
-- Archons: Using technology to send negative thoughts; created the "Law of Karma"; responsible for psychoses.
+- Cobra: Explains that the "Galactic Heartbeat" activates the galactic sun every 25,000 years; states that the "Law of Karma" is an Archon construct; identifies the "Central Race" as 7th dimension and above; confirms that the "Wing-makers" are interpretations of the Central Race.
+- Archons: Use technology to send negative thoughts; created the "Law of Karma"; responsible for psychoses.
 - Jesuits/Black Nobility: Part of the black magicians of old Atlantis.
+- Yaldabaoth: Plasma energy being; leader of the Archons; came from Andromeda via Orion; plasma body is slowly disintegrating.
 - Metatron: Guardian of this sector of the galaxy; overseeing the transformation of the primary anomaly.
 [Key numbers]
-- 25,000 years: Cycle of the galactic heartbeat.
+- 25,000 years: Galactic pulse cycle.
 - 144,000: Critical mass for meditation; symbolic number.
-- 21 grams: Weight of plasma/etheric body (approximate).
-- 8.6 miles: Height of the innermost part of the veil.
+- 21 grams: Approximate weight of the plasma/etheric body (not the soul).
+- 6th Dimension: Where the Soul exists.
 [Major declarations & commitments]
-- The Galactic Heartbeat will trigger The Event.
-- The center of the Earth is a Stargate.
-- The Archon leader does not exist anymore; he was disintegrated in the galactic central sun.
-- The "Prime Directive" is an excuse by Archons; contact is prevented by the hostage situation.
-- The Law of Karma is an artificial construct by Archons.
+- The Event will remove negative forces completely.
+- The "Galactic Central Sun" is a living entity (Pleroma) that times the pulse according to global awareness.
+- The "Law of Karma" is a distorted interpretation of the law of manifestation used by Archons.
+- The "Central Race" is assisting intensely in clearing the Chimera.
+- The "Wing-makers" and "Blue Avians" are individual interpretations of the Central Race.
 [Key quotes]
-- "The galactic heart beat or the galactic pulse is quite regular galactic cycle which activates the galactic sun every 25,000 years and we are now entering a period when such a galactic pulse will happen and this will coincide with a larger cosmic cycle and that will tigger The Event."
-- "He was assisting the light forces for a short period of time but when he had realized what he had done in the past he volunteered to be disintegrated in the galactic central sun and his wish was granted. So he does not exist any more."
-- "The law of Karma is an artificial construct which was created by the Archons to control and enslave spiritually control and enslave beings, entities in this quarantine status."
+- "The galactic heart beat or the galactic pulse is quite regular galactic cycle which activates the galactic sun every 25,000 years."
+- "The law of Karma is an artificial construct which was created by the Archons to control and enslave... It is a distorted interpretation of the law of manifestation."
+- "The plasma body of that entity [Yaldabaoth] is slowly being disintegrating or transformed into pure light as the light forces are progressing."

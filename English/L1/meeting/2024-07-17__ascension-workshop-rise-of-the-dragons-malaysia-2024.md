@@ -1,26 +1,23 @@
 <!-- card: meeting/2024-07-17__ascension-workshop-rise-of-the-dragons-malaysia-2024 | 2024-07-17 | ASCENSION WORKSHOP -->
 [Publication date] 2024-07-17
 [Historical events]
-- 26,000 years ago: Agarthan network core created.
-- 2024 (July 11-22): Planetary activation of Dragon Energy; Dragon Ley Line activation.
+- 2024 (July 11-22): Dragon Ley Line activation period.
 - 2024 (July 22): Full moon; transformation window closes.
-- 2024 (August 1): Date when workshop information can be disclosed.
+- 2024 (August 1): Information release date.
 [Entities & roles]
-- Cobra: Speaker; explains Dragon Energy, Lurker disentanglement, and Agarthan contact.
-- Light Forces: Disentangling Lurkers; using Emerald meditation for Agarthan contact.
-- Dark Forces: Trying to control Dragon Ley Lines; causing geopolitical changes.
-- Agarthan Network: Reactivating; preparing for cooperation with surface.
-- Aldebarans/Andromedans: Increasing activities in solar system.
+- Cobra: Speaker; explains Dragon energy, Lurker disentanglement, and Agarthan contact.
+- Agarthan Network: Preparing for cooperation; using Emerald meditation.
+- Lurker: Parasitic infection being disentangled from humanity.
+- Dragon Families: Activating divine masculine energy.
 [Key numbers]
 - 25,000 years: Duration of Lurker influence.
-- 2024 (July 11-22): Duration of Dragon activation.
-- 2024 (August 1): Disclosure date.
+- 50%: Lurker strength dropped to less than this.
 [Major declarations & commitments]
-- Dragon Energy activation is shifting the planet's energy pattern.
-- Lurkers are being disentangled from human psychological makeup.
-- Emerald meditation connects to Agarthan network.
-- Readers should perform Dragon Ley Line activation at the July 22 full moon.
+- Dragon Ley Line activation in Malaysia/Tibet/Thailand.
+- Readers should perform Emerald meditation to connect with Agartha.
+- Lurker disentanglement will cause personal purification.
+- Financial collapse is the moment of the Event.
 [Key quotes]
-- "The activation started on July 11, and it will continue until 22."
 - "The basic, core parasitic infection has been removed from the surface population."
-- "This dragon leyline in Tibet is the key ley line for the planetary liberation."
+- "Dragon energy is much needed in this process because it is the energy of human Kundalini."
+- "The moment of the financial collapse is the moment of the Event."

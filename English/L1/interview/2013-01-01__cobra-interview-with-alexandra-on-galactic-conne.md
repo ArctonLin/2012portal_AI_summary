@@ -1,32 +1,31 @@
 <!-- card: interview/2013-01-01__cobra-interview-with-alexandra-on-galactic-conne | 2013-01-01 | Cobra Interview with Alexandra on Galactic Connection -->
 [Publication date] 2013-01-01
 [Historical events]
-- February 2013: Russian meteor event; allowed by Galactic Federation for awakening.
-- February 2013: Resignation of Pope Benedict XVI.
-- February 2013: Lightning struck St. Peter's Cathedral.
-- February 2013: Federal Reserve hacked.
-- March 2013: Predicted interesting developments regarding the Vatican.
+- February 2013: Russian meteor impact; allowed by Galactic Federation for awakening (Earth, Galactic Federation).
+- February 2013: Pope Benedict resigned; lightning struck St. Peter's Cathedral (Vatican).
+- February 2013: Federal Reserve hacked (Light Forces).
+- March 2013: Predicted interesting developments regarding the Vatican (Light Forces, Vatican).
 [Entities & roles]
 - Galactic Federation: Allowed the meteor to pass through the protection membrane.
-- Cabal: Controls mass media; factions include Jesuits, Rothschilds.
-- Jesuits: Own the Federal Reserve through shell companies; top of the pyramid with Roman Black Nobility.
-- Light Forces: Exerting pressure on the Vatican.
-- Eastern Alliance: Getting stronger; internal struggles.
+- Cabal: Controls the surface; factions include Jesuits, Rothschilds.
+- Jesuits: Top of the pyramid; control the Vatican and Federal Reserve.
+- Roman Black Nobility: Top of the food chain; choose the Pope.
+- Light Forces: Exerting pressure on the Vatican; preparing for March 2013.
 [Key numbers]
-- 100 million: Estimated viewers of the Superbowl light event.
+- 100 million: Estimated viewers of the Superbowl light outage.
 - 1,000: Number of people wounded by the Russian meteor.
-- 7500 square feet: Size of the Louisiana sinkhole.
-- 3,000 pounds: Estimated total gold circulating in internet pictures.
+- 6 times: Diameter of new sunspots compared to Earth.
+- 48 hours: Time for sunspots to form.
 - 37,000: Number of Resistance agents on the surface.
 - 7 billion: World population.
+- 200 years: Time of Rothschild dedication.
 [Major declarations & commitments]
-- The Superbowl light event was a coordinated action by Light Forces to show the Cabal they are not omnipotent.
-- The Russian meteor was a natural object allowed to hit Earth for awakening.
-- The Pope was fired by the Jesuits/Roman Black Nobility.
-- The Vatican owns the Federal Reserve through thousands of small companies.
+- The Pope was fired by the Jesuits/Black Nobility.
+- The Vatican owns the Federal Reserve through shell companies.
 - The gold has been taken by the Resistance and is waiting for the right time.
 - The Cabal will not be allowed to use nuclear weapons.
+- March 2013 will be a very interesting month for the Vatican.
 [Key quotes]
-- "It was not a UFO, it was coordinated action by the ground personnel of the Light Forces on the surface of the planet."
+- "The Galactic Federation has allowed a natural body which is on a collision course with a planet to skip through the protection membrane."
 - "The Vatican owns the Federal Reserve through hundreds or even thousands of small companies."
 - "The gold was taken by the Resistance about a year ago, and is waiting in a certain location for the right time to be given to humanity."

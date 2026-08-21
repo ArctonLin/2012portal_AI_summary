@@ -1,29 +1,30 @@
 <!-- card: interview/2016-06-20__cobra-interview-with-richard-and-lynn-on-prepare | 2016-06-20 | Cobra Interview with Richard and Lynn on Prepare for Change -->
 [Publication date] 2016-06-20
 [Historical events]
-- 1999: Huge cosmic portal opened, triggering drastic changes; integration of other universes (Cosmic portal).
-- 2016 (recent): Earthquakes in Japan/Ecuador related to Cabal interference and galactic central sun activity (Cabal, Galactic Central Sun).
-- 2016 (recent): Fighting in Aleppo; RM not losing control (RM, Aleppo).
-- 2016 (recent): Impeachment/removal of Brazilian President Dilma Rousseff; Cabal destabilizing Brazil (Cabal, Brazil).
-- 2016 (recent): Brexit vote scheduled for June 23, 2016; Cabal interference expected (Brexit, Cabal).
-- 2016 (recent): Conferences in Chiang Mai, Thailand (first weekend of July) and Taipei, Taiwan (14 days later) (Cobra, PFC).
+- 1999: Huge cosmic portal opened, triggering drastic changes that will liberate the solar system (Cosmic Portal, Solar System).
+- 1940s-1950s: Royal Rife invented frequency machines (Rife, Technology).
+- 1996: Archon invasion; infrasound intensity in media increased since this date (Archons, Media).
+- 4th Century: Compilation of the Bible by a scribe of Archon Constantine (Constantine, Bible).
+- 1917: October Revolution in Russia engineered by Jesuits to introduce communism (Jesuits, Russia).
 [Entities & roles]
-- Cobra: Describes Earth's core as honeycombed; states Neanderthal genes are in some Cabal members; confirms Mary Magdalene was Jesus's soulmate; states the Bible was compiled by a scribe of Archon Constantine in the 4th century; states the mixing of languages was done by Archons after the fall of Atlantis; confirms the Black Nobility has not surrendered; states Sedona is a major energy vortex; confirms the "Hung" (Chinese Freemasonry) is real.
-- Cabal: Misusing corruption in Brazil; interfering with Brexit; responsible for psychoses via Archon technology; plans to reduce population by 90% (rumor).
-- Jesuits: Engineered the October Revolution in 1917 to introduce communism; behind the compilation of the Bible.
-- Dragon Families: Many are not known in the West; no judgment of the West.
+- Cobra: States the Earth is honeycombed with tunnels; confirms the Moon is natural but used extensively; identifies Neanderthal genes in some Cabal members (Khazarian faction); explains that the "Law of Karma" is an Archon construct.
+- Khazarian Faction: Has a high percentage of Neanderthal genes; practices inbreeding.
+- Jesuits: Engineered the Russian Revolution; part of the Cabal.
+- Black Nobility: Has not surrendered; will surrender at the time of the Event.
+- Dou Mu: Asian goddess in a physical body, channeling feminine energy for the planet.
+- Sedona: One of the most important energy vortexes on the planet.
 [Key numbers]
-- 90%: Cabal plan to reduce Earth's population (rumor).
-- 7.4 billion: Current world population estimate.
+- 90%: Percentage of Earth's population the Cabal plans to reduce (7.4 billion -> 6.66 billion).
 - 144,000: Critical mass for meditation.
-- 4th century: Time of Bible compilation by Constantine's scribe.
+- 8.6 miles: Height of the innermost part of the veil.
+- 4th Century: Time of Bible compilation.
 [Major declarations & commitments]
-- The Earth is not hollow but honeycombed with tunnels and caverns.
-- The Moon is not artificial but has been used extensively with underground cities.
-- The Black Nobility will surrender at the time of the Event.
-- The legal system will be restructured; judges and lawyers will be drastically reduced.
-- The Cabal will not be successful in their population reduction plans.
+- The Event will restructure the legal system; judges and lawyers will be drastically reduced.
+- The "Brexit" vote will likely be for removal from the EU, but the vote will not be respected due to Cabal interference.
+- The "Venusian hierarchy" (Sanat Kumara) is assisting by uplifting the atmosphere and preventing dramatic disruptions.
+- The "Bible" is a mixture of ancient texts and Archon control; some positive fragments exist.
+- Infrasound in Hollywood movies/TV has been implemented for decades and increased since 1996.
 [Key quotes]
-- "The scientific model is to a certain degree correct but while we have inside especially in the outer layer of the so-called earth skin it is honeycombed."
-- "It is a collection of ancient text which has been compiled and presented and spinned in a certain way to get a certain psychological effect. This compilation was done by a scribe of a certain Archon called Constantine."
 - "The Black Nobility has to yet surrendered. When they will surrender it will be at the time of the Event."
+- "The law of Karma is an artificial construct which was created by the Archons to control and enslave... We are experiencing bad things because this planet is occupied."
+- "The mixing of the languages was done basically after the fall of Atlantis with the purpose of creating more division... this was done by the Archons."

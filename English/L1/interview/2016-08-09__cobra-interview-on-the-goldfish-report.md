@@ -1,23 +1,24 @@
 <!-- card: interview/2016-08-09__cobra-interview-on-the-goldfish-report | 2016-08-09 | Cobra Interview on The GoldFish Report -->
 [Publication date] 2016-08-09
 [Historical events]
-- 2010 (October 15): Fleet decloak over Manhattan (Stanley Fullham).
-- 2016 (recent): "Cracks in the matrix of the veil" appearing; technology not 100% waterproof (Veil).
-- 2016 (recent): Removal of ley lines used against humanity by Max Steel's galactic family (Max Steel, Ley lines).
+- 2010 (October 15): Fleet decloaked over Manhattan (per Alfred Lambremont-Webre's report on Stanley Fullham) (Galactic Fleet, NYC).
+- 2016 (recent): "Cracks in the matrix of the veil" are forming; technology is not 100% waterproof (Veil, Matrix).
+- Post-Event: Workday will be reduced to 4 hours or less; money will become obsolete (Earth, Society).
 [Entities & roles]
-- Cobra: States the monetary system was imported from Orion; states replicators will make money obsolete; states teleportation is a simple process; states humanity was always ready but manipulated; states the Event is a complete paradigm shift; states belief systems will not be needed.
-- Max Steel: Claims to be a galactic commander from the 17th universe/21st dimension; claims to have removed ley lines; claims a giant craft is coming to remove the Cabal.
-- Alfred Lambremont-Webre: Discusses "ExoPolitics"; claims to have evidence of CIA time travel; claims to have been gang-stalked; promotes Andrew Basiago.
-- Red Dragon Ambassador: States the financial system is built on sin; states NATO is a terrorist organization; states 98% of media is rubbish.
+- Cobra: States that the "monetary system" was imported from the Orion Constellation; describes "replicators" that materialize blueprints from etheric substance; confirms that the "Veil" is thinning; states that the "Event" will be a surprise and accelerate very fast.
+- Alfred Lambremont-Webre: Claims to have documented "chronogarchy" (time travel) and pre-identification of US Presidents; cites Stanley Fullham's book.
+- Captain Max Steel: Claims to be a galactic commander from the 17th universe; states that his galactic family removed ley lines used for mind control; describes a vision of a giant craft coming to remove the Cabal.
+- Red Dragon Ambassador: Emphasizes the need for unity and practical solutions; warns of trauma from belief system breakdowns.
 [Key numbers]
-- 2025: Ideal portal for 4th density to begin (per Alfred).
-- 100 pages: Length of Cobra's book "The Event".
+- 4 hours: Expected workday length post-Event.
+- 90%: Percentage of people who will accept new technologies without problem.
+- 1,000 pages: Length of Cobra's book "The Event".
 [Major declarations & commitments]
-- The monetary system will become obsolete with replicators.
-- Teleportation and materialization will be everyday reality after First Contact.
-- The Event is a complete change of life, not just a clean-up.
-- Belief systems are firewalls to face the harsh reality of the primary anomaly.
+- The "monetary system" is a debt slavery system from Orion; it will be replaced by replicators and energetic exchange.
+- The "Veil" is thinning; the Event will be a sudden transition.
+- "Replicators" will materialize physical objects from etheric substance.
+- The "Event" will be a complete paradigm shift, not just a cleanup.
 [Key quotes]
-- "Basically, the monetary system that we have on this planet has been imported from the Orion Constellation star system. It is a debt slavery system which is actually used to control populations, and it is absolutely not necessary."
-- "We are going through a complete paradigm shift. It’s not just a small change we are going into. It is not just the arrest of the cabal, it’s not just disclosure, it’s not just a release of intel, and it’s a complete change of life on this planet as we know it."
-- "One of the most important things is to hold the vision. Everybody has a certain understanding or feeling or intuition or certain inner knowing about the coming change about the new age about the new cycle about the new reality."
+- "The monetary system that we have on this planet has been imported from the Orion Constellation star system. It is a debt slavery system."
+- "We are going through a complete paradigm shift... It’s an entrance into a new reality system without money, without struggle, without suffering and without duality."
+- "The controlling forces work holding their focus for centuries... But now we need to realign our forces to hold our vision."

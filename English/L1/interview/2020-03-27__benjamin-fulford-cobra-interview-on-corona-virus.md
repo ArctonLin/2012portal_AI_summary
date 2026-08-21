@@ -5,24 +5,21 @@
 - 65 million years ago: Dinosaurs wiped out (Ben Fulford).
 - April 4/5, 2020: Upcoming mass meditation (Cobra).
 [Entities & roles]
+- Benjamin Fulford: Interviewee, discusses cabal factions and economic collapse.
+- Cobra: Interviewee, confirms virus is bio-weapon and quantum war is ongoing.
 - Cabal/Illuminati: Cult of death; wants to eliminate 90% of population.
-- White Hats: Using virus for mass arrests; stopped 5G attack on Tokyo.
-- Bill Gates Foundation/Davos: Planned pandemic exercise.
-- Jesuits: Polarizing population.
-- Trump: Used by Light and Dark factions; not briefed at highest levels.
+- Bill Gates/Davos: Planned pandemic exercise.
+- Jesuits: Minions of Black Nobility faction.
 [Key numbers]
-- 80: Number of senior satanists arrested in Vatican (Ben Fulford).
-- 90%: Percentage of population dark forces want to eliminate.
-- 15 million: Targeted dead by virus (Cobra).
-- 1000: Number of corporate executives quitting (Ben Fulford).
+- 90%: Percentage of population dark faction wants to eliminate.
+- 15 million: Targeted deaths by virus (Cobra).
+- 80 arrests: Senior satanists in Vatican (Ben Fulford).
 [Major declarations & commitments]
-- The virus was a pre-meditated attack.
-- The dark forces' goal was to kill 15 million people.
-- The Italian strain of the virus was put in Piacenza as a signal.
-- The 5G network is a weapon that compromises the immune system.
-- The Event is the end of the old cycle and beginning of a new one.
-- The mass meditation on April 4/5 is crucial.
+- The virus is a bio-weapon released by dark forces.
+- The dark forces are aware of the Event and are acting out of despair.
+- The quantum war is taking place, and Light Forces are winning.
+- 5G is a weapon that compromises the immune system.
 [Key quotes]
-- "Their goal with this pandemic was to have at least 15 million people killed by the virus... This plan is not going to be successful."
-- "The 5G network is the most dangerous of all of them and it can actually severely compromise the immune system."
-- "This endtime scenario... is the end of the old cycle of darkness and the beginning of a new cycle of light."
+- "The Illuminati cult is widespread... It's actually a cult of death... One aspect of this network really wants to eliminate I would say 90% of the human population."
+- "There is a war with quantum technologies and the Light Forces are winning."
+- "This virus is a bio-weapon which was released by the dark forces."

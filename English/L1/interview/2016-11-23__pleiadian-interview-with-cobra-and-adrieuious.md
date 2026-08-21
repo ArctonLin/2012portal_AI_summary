@@ -1,28 +1,27 @@
 <!-- card: interview/2016-11-23__pleiadian-interview-with-cobra-and-adrieuious | 2016-11-23 | Pleiadian Interview with Cobra and Adrieuious -->
 [Publication date] 2016-11-23
 [Historical events]
-- 2016 (recent): Election polarization engineered by Archons (Archons, US Election).
-- 2016 (recent): North Dakota Pipeline (NDPL) battle; light forces counteracting harmful effects (NDPL, Light forces).
-- 2016 (recent): New tachyon membrane being built around Earth to cut Yaldabaoth tentacles (Pleiadians, Yaldabaoth).
-- 2016 (recent): Biochips upgraded in 1983 and 1996; fast development in 1996/1999 (Biochips, Archons).
+- 1958: A'drieiuous arrived on Earth (A'drieiuous, Earth).
+- 1996: Archon invasion; biochips upgraded (Archons, Biochips).
+- 1999: Biochips developed rapidly (Biochips).
+- 2016 (recent): Pleiadians building a tachyon membrane inside the Earth-Moon orbit (Pleiadians, Earth-Moon Orbit).
 [Entities & roles]
-- Cobra: States Trump is a Jesuit puppet but has light potential; states the Cabal is tampering with elections; states the NDPL suppresses a ley line; states the tachyon membrane is being built; states Elon Musk and Julian Assange are working for the light; states biochips were developed in WW2 Nazi Germany; states the scalar network triggers implants; states Planet X is not Nibiru; states Saturn's color change is seasonal; states the Mars disclosure was forced by SSP factions; states the Galactic Central Sun is the home of the Pleroma; states the Event will happen through people.
-- A'drieiuous: Pleiadian from New Lyra; arrived in 1974 (44 years ago); crashed in Nevada; held at Area 51 for 2 years; broke a treaty to stay; describes photoradionic drives; describes time as frequency; states Semjase is his clan leader; states he has been alone for 42 years.
-- Jesuits: Engineering Trump's policies; using the election to create division.
-- Cabal: Tampering with elections; investing in NDPL.
+- Cobra: States that the "Pleiadians" are building a tachyon membrane to cut off Yaldabaoth's tentacles; confirms that "Elon Musk" and "Julian Assange" are working for the light; explains that "biochips" were developed in WW2 and upgraded in 1996; states that "Planet X" is not Nibiru.
+- A'drieiuous: Pleiadian from New Lyra; arrived in 1958; held at Area 51 for 2 years; explains "photoradionic drives" and time travel as frequency manipulation; states that "Semjase" is his clan leader.
+- Semjase: Famous Pleiadian; clan leader of A'drieiuous; active in planetary liberation.
+- Trump: Jesuit puppet; not high in the structure; susceptible to influence.
 [Key numbers]
-- 44 years: A'drieiuous's time on Earth.
-- 2 years: A'drieiuous's time at Area 51.
+- 44 years: Time A'drieiuous has been on Earth.
 - 24 years: Time A'drieiuous took to learn English.
 - 3.16 billion miles per second: Speed of Pleiadian vehicles.
+- 1,494 years: Approximate time since A'drieiuous's last descent.
 [Major declarations & commitments]
-- The Cabal is tampering with the US election.
-- The NDPL is suppressing a ley line.
-- A new tachyon membrane is being built to cut Yaldabaoth's tentacles.
-- Biochips were developed in Nazi Germany and upgraded in 1983/1996.
-- Planet X is not Nibiru; it is the home of the RM.
-- The Event will happen through the people; we are the channels.
+- The "Pleiadians" are building a tachyon membrane to cut off Yaldabaoth's tentacles.
+- "Planet X" is not Nibiru; it is the home of the RM.
+- "Biochips" were developed in WW2 and upgraded in 1996.
+- "Time travel" is a manipulation of frequency, not a machine.
+- The "Event" will happen through the people; we are the channels.
 [Key quotes]
-- "The Pleiadians and other light forces are building a special membrane at a certain location inside the Earth-Moon orbit. The purpose of that membrane is to cut off the tentacles of the Yaldaboth Octopus entity away from the head."
-- "On the physical plane there are the physical biochips, which were starting to be developed already in World War 1 and their development was complete in World War 2 in Nazi Germany."
-- "The Event will happen through the people, we are the channels for the Event, we are the transmitters of the Event. It can’t bypass us, its not possible."
+- "The Pleiadians and other light forces are building a special membrane at a certain location inside the Earth-Moon orbit. The purpose of that membrane is to cut off the tentacles of the Yaldaboth Octopus entity."
+- "Planet X is not Nibiru. The whole concept of Nibiru is intentional disinformation... Planet X is officially an undiscovered planet... which was and still is inhabited below the surface with underground bases and the source of the Resistance Movement."
+- "The Galactic Central Sun is the home of the Galactic entity The Pleroma... The Event will happen through the people, we are the channels for the Event."

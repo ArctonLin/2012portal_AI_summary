@@ -1,29 +1,30 @@
 <!-- card: interview/2016-09-01__cobra-interview-with-patrick-from-pfc | 2016-09-01 | Cobra Interview with Patrick from PFC -->
 [Publication date] 2016-09-01
 [Historical events]
-- (Time not stated): Jurassic age was hundreds of millions of years ago (Jurassic).
+- Hundreds of millions of years ago: Jurassic age (Earth).
 - 1 million years ago: Atlantis started (Atlantis).
-- 10-20 thousand years ago: Last fraction of Atlantean history (Atlantis).
 - 12,000 years ago: Deluge of Atlantis; Stone Age started (Atlantis, Stone Age).
-- 5,000 years ago: Stone Age ended with mass cataclysm (Stone Age).
-- 8,000 years ago: Sahara turned into desert due to climate change/galactic sun activity (Sahara).
-- 1999: Souls evacuated; Order of the Star souls evacuated (Light forces, Order of the Star).
+- 5,000 years ago: Stone Age ended with another mass cataclysm (Stone Age).
+- 8,000 years ago: Sahara turned into a desert due to climate change and river disappearance (Sahara).
+- 3,000 years BC: Archaeologists can acknowledge human history from this point (History).
 [Entities & roles]
-- Cobra: States the Congo portal was stabilized; states the Khmer empire was mixed; states the Antares-Aldebaran axis is a galactic highway; states the physical particles of the galactic pulse will travel at tachyon speed; states sinkholes in Siberia are RM activity; states the Giza capstones are in the Vatican; states the "Star of Bethlehem" was a Jupiter-Venus conjunction; states the 7 seals are the 7 layers of the veil; states the 4 horsemen are the 4 elements; states Sodom and Gomorrah was a nuclear war; states the Iron Mask is an Illuminati symbol; states the Wow Signal was Cabal activity; states the Loch Ness creature is real; states the Nazca lines are landing strips; states the Agarthan cities are under London, Paris, Munich, and the Alps.
-- Cabal: Stole the Giza capstones; responsible for the Wow Signal; using infrasound in Taos, New Mexico.
-- Resistance Movement: Creating sinkholes in Siberia to awaken the surface population.
+- Cobra: Provides a timeline for Earth history; states that the "Stone Age" started with the deluge of Atlantis; identifies the "Iron Mask" as an Illuminati symbol; confirms that the "Wow Signal" was Cabal activity, not ET; states that the "Giza pyramid capstones" are in a Vatican bunker.
+- Khmer Empire: Mixed civilization; some tribes connected to reptilian forces; had a renaissance with Goddess channeling.
+- Resistance Movement: Activity in Siberia sinkholes; agents infiltrated on the surface have minimal implants.
+- Cabal: Stole the Giza pyramid capstones; uses them as a source of power in a Vatican bunker.
 [Key numbers]
 - 1 million years ago: Start of Atlantis.
 - 12,000 years ago: Deluge of Atlantis.
+- 5,000 years ago: End of Stone Age.
 - 8,000 years ago: Sahara desertification.
-- 3,000 years BC: Limit of archaeologist acknowledgment for Gilgamesh.
+- 3,000 years BC: Limit of archaeological acknowledgment.
 [Major declarations & commitments]
-- The Giza pyramid capstones are in the Vatican and are a source of Cabal power.
-- The "Star of Bethlehem" was a planetary conjunction, not a mothership.
-- The 7 seals in Revelation are the 7 layers of the veil.
-- The Wow Signal was not genuine ET contact but Cabal activity.
-- The Nazca lines are landing strips for ancient civilizations.
+- The "Stone Age" is a result of the Atlantis deluge.
+- The "Giza pyramid capstones" are made of quartz crystal and gold-plated; stored in the Vatican.
+- The "Wow Signal" was not a genuine ET signal.
+- The "Iron Mask" is an Illuminati symbol.
+- The "Nazca lines" were landing strips for ancient civilizations.
 [Key quotes]
-- "The Atlantis as we know has started maybe 1 million years ago, and what most people are describing as Atlantis is only the last fraction of Atlantean history which is maybe 10 or 20 thousand years ago."
-- "Yeah they were stolen by the cabal... They are now in a certain, I would say, bunker that still belongs to the cabal, and they are one of the sources of their power."
-- "The 7 seals are the 7 layers of the veil and the disaster which happens is the clearing of the dark forces which is happening now."
+- "The Atlantis as we know has started maybe 1 million years ago... The Stone age actually started with the deluge of Atlantis about 12000 years ago."
+- "The capstones of the Giza pyramids... They are now in a certain, I would say, bunker that still belongs to the cabal... I would say that this is in the state that is called Vatican."
+- "The Wow signal... It was not a genuine extraterrestrial signal... Cabal activities."

@@ -1,241 +1,947 @@
 <!-- card: meeting/2015-03-25__cobra-march-2015-monthly-update-interview | 2015-03-25 | Cobra March 2015 Monthly Update Interview -->
 [Publication date] 2015-03-25
 [Historical events]
-*   1996: Archon invasion started on January 11; negative stargate created by subterranean nuclear explosions and particle accelerators.
-*   1996: Network of Light was nearly completely captured.
-*   1977: Cobra's first contact with Pleiadians while traveling through the solar system.
-*   1950s: Ashtar Command had direct contact with Eisenhower at Edwards AFB.
-*   1960s: USA and Soviet Union had bases on Mars and the backside of the moon.
-*   1960-2000: Intense space war; light forces cleared disturbances in outer space.
-*   2012: Majority of the solar system was cleared; only Chimera group remained.
-*   March 2001: First wave of sphere motherships (3000-4000 km) entered the solar system.
-*   December 2014: Second wave of motherships (10,000 km) entered after IS:IS Portal Activation.
-*   2015-03-20: Gold exchange rate redefined to include Shanghai.
-*   1929: Hyper-inflation in Germany.
-*   18th century: St. Germain founded the St. Germain Trust; Rothschilds began their plans.
-*   1920s-1940s: Period defining the occult financial system; first M1 born in the 1920s.
-*   1940s: Maria Orsic and Thule Society involved in early SSP/flying disc development.
-*   1945+: Operation Paperclip brought Nazi scientists to the USA.
-
+- 25,000 years ago: First incursion by Archons; implants separated souls from Source; reincarnation imprisonment began.
+- 1996: Archon invasion; negative portal created by subterranean nuclear explosions and particle accelerators.
+- 1996: Network of Light nearly completely captured.
+- 1996: Negative stargate created; brings anomalies from cosmos to Earth.
+- 1996: Draconians came to Nazis after Pleiadians withdrew.
+- 1996: Trojan Horse for Archon invasion accomplished through underground bases.
+- 1960s: USA and Soviet Union had bases on Mars and backside of the moon.
+- 1960s: Giant fleet of ships flying to Mars, moon, and moons of Saturn/Jupiter (Solar Warden).
+- 1960-2000: Intense space war.
+- 2012: Majority of solar system cleared; only Chimera group remaining.
+- 2012: Resistance Movement created a virus to destroy old financial computer network.
+- 1950s: Ashtar Command had direct contact with Eisenhower at Edwards AFB.
+- 1950s: Pleiadians offered technology to Eisenhower; contract not signed.
+- 1950s: Draconians signed contract with Eisenhower; allowed abductions and underground bases.
+- March 2001: First wave of sphere motherships arrived.
+- December 2014: Second wave of motherships arrived after IS:IS Portal Activation.
+- December 15, 2014: IS:IS Portal Activation; astronomical triangle of light built.
+- December 2014: Triangulum Galaxy sent flash of light to Milky Way and Andromeda.
+- January 2015: Comet Lovejoy passed near Pleiades.
+- 1920s: Flying discs created and functional by Thule Society/W.O. Schumann.
+- 1940s: Operation Paperclip; scientists brought to USA by Wernher von Braun.
+- 1940s: SSP continued in USA; publicly Apollo Program, secretly SSP.
+- 1940s: USA and Soviet Union worked together; bases on Mars/Moon.
+- 1940s: SSP financed by Nazi gold, stolen Asian gold, and 30-40% of taxes.
+- 1940s: Solar Warden operation officially started.
+- 1940s: True purpose of Solar Warden was to prepare Draco invasion.
+- 1940s: Network of 2000 underground bases created.
+- 1940s: Dick Cheney and Donald Rumsfeld traveled through solar system.
+- 1940s: Multinational corporations (Boeing, Airbus) participated in spacecraft construction.
+- 1940s: Long Island particle accelerator and cloning facility established.
+- 1940s: Chimera group has system of detectors monitored from Long Island.
+- 1940s: Unholy Four can only be removed after Chimera removal due to clones.
+- 1940s: David Wilcock reported on sphere motherships.
+- 1940s: First wave of sphere ships came in March 2001.
+- 1940s: Second wave of motherships came in December 2014.
+- 1940s: Beings on sphere ships (Blue Avians/Wingmakers) are members of central civilization.
+- 1940s: Iona is a Goddess from the core of the galaxy.
+- 1940s: Time capsules of Wingmakers are coded.
+- 1940s: Oort Cloud has diameter of one lightyear.
+- 1940s: Kuiper Belt has smaller ships transmitting energy.
+- 1940s: Beings of spheric motherships interacted indirectly with Earth.
+- 1940s: Central Sun is a giant Goddess.
+- 1940s: Central Sun is source of all energy and subatomic particles.
+- 1940s: Tachyons were created as the very first particles.
+- 1940s: Cobra contacted by Pleiadians to make tachyons available.
+- 1940s: Several tachyon chambers around the planet.
+- 1940s: Pleiadians and Sirians have physical bodies and 5th/6th dimensional consciousness.
+- 1940s: Cobra's first contact with Pleiadians in 1977.
+- 1940s: Pleiadians discussed with Cobra for 30 minutes to convince him to return to Earth.
+- 1940s: Event is a dynamic situation, co-creation.
+- 1940s: Brotherhood of the Star/Order of the Star are guardians of light.
+- 1940s: Order of the Star are 144,000 star beings.
+- 1940s: Since IS:IS Portal Activation, light flows from Galactic Central Sun through moldavite chalice.
+- 1940s: Cintamani stone released to most awakened light workers.
+- 1940s: Network of Light is more important than anything else.
+- 1940s: Cintamani stones play a major role in the Event.
+- 1940s: Manifestation tools: Conscious Unconditional Decision, Invocation, Physical Action.
+- 1940s: Layers of manifestation: Mental, Astral, Etheric, Plasma, Physical.
+- 1940s: Gridwork assists in liberation of Network of Light.
+- 1940s: Event Support groups and Sisterhood of the Rose groups to be created.
+- 1940s: Vortexes inside Network of Light are entrance stations for lightships.
+- 1940s: At Event, impulse from Galactic Central Sun sent through Spheric Motherships.
+- 1940s: Sisterhood of the Rose groups will meditate to stabilize energy.
+- 1940s: Event Support groups are masculine aspect; Sisterhood of the Rose is feminine aspect.
+- 1940s: Resistance Movement and Light forces will contact Event Support groups.
+- 1940s: Light workers will receive instructions to make contacts to media.
+- 1940s: Politicians will be confused; light workers will explain situation.
+- 1940s: Infrastructure will remain functioning through light workers' actions.
+- 1940s: New society built from zero after Event.
+- 1940s: Event is Zero Point for whole cosmos.
+- 1940s: Dawn of Golden Age.
+- 1940s: Positive extraterrestrials visible when masses are ready.
+- 1940s: Financial Reset: Event is financial new beginning.
+- 1940s: Eastern Alliance/BRICS creating alternative reality.
+- 1940s: BRICS Development Bank created.
+- 1940s: Gold exchange rate redefined from Shanghai (March 20, 2015).
+- 1940s: Eastern Alliance determines gold price.
+- 1940s: Gold backing of financial system reintroduced.
+- 1940s: New infrastructure: Development Bank, new gold exchange rate, alternative paying systems.
+- 1940s: China and Russia leading new infrastructure.
+- 1940s: Old system institutions: Worldbank, IWF, FED, Swift.
+- 1940s: Resistance Movement created virus in July 2012.
+- 1940s: Virus can be activated to destroy old financial computer network.
+- 1940s: All debts deleted (except private debts).
+- 1940s: Greece in debt to ECB; behind ECB are Jesuits; behind Jesuits are Chimera.
+- 1940s: Cabal money system creates money out of nothing.
+- 1940s: 200,000 Euro created out of nowhere for house purchase.
+- 1940s: 20-30 years of slave work to pay back.
+- 1940s: Money diverted to SSP.
+- 1940s: Banks closed up to 2 weeks at Event.
+- 1940s: Cash money recommended; silver or gold best.
+- 1940s: Mass arrests follow reset.
+- 1940s: Light forces go to media to tell masses.
+- 1940s: Disclosure released; de-programming starts.
+- 1940s: Electricity, water, gas, food supply fundamental.
+- 1940s: Media task to keep systems working.
+- 1940s: New system raises frequency of masses.
+- 1940s: Moneyless society in near future.
+- 1940s: New technologies released after Event.
+- 1940s: Basis of life is eternal spark, not hard work.
+- 1940s: Food, clothing, roof self-evident.
+- 1940s: New kind of exchange after short period of money exchange.
+- 1940s: Special Drawing Rights (SDR) used as currency basket.
+- 1940s: New single currency includes everyone on Earth.
+- 1940s: New financial system is tool for transition to moneyless society.
+- 1940s: Light forces guardians of process.
+- 1940s: Banks reopen after 1-2 weeks.
+- 1940s: Banks working with Cabal bankrupt.
+- 1940s: Compensation from collateral accounts.
+- 1940s: Multinational corporations restructured.
+- 1940s: Monsanto gone.
+- 1940s: Microsoft restructured/removed parts.
+- 1940s: Fabrics given back to local areas.
+- 1940s: Stock market closed completely.
+- 1940s: Stock shares given back to people.
+- 1940s: No bonds, no derivatives.
+- 1940s: New financial system based on true values.
+- 1940s: Collateral accounts created by royal bloodline families after WWI.
+- 1940s: Gold stolen from USA citizens in 1930s.
+- 1940s: Gold stolen from Japan during WWII.
+- 1940s: Gold brought to Jesuits in Vatican.
+- 1940s: Gold brought back to Asia; hidden in Malaysia and Philippines.
+- 1940s: Part of gold used for SSP and underground bases.
+- 1940s: Dick Cheney stole money for Mars corporation.
+- 1940s: Most gold in Asia taken care of by Resistance Movement 3 years ago.
+- 1940s: Gold brought to undisclosed locations below surface.
+- 1940s: After Event, everyone receives part of gold.
+- 1940s: Money used for ending poverty worldwide immediately.
+- 1940s: Poorest taken care of first.
+- 1940s: Unauthorized touching of money leads to removal from planet.
+- 1940s: St Germain Trust founded by St Germain (18th century incarnation).
+- 1940s: St Germain gathered wealth; disappeared.
+- 1940s: Money deported to bank; grew to 10 trillion Dollar.
+- 1940s: Money meant for light workers; used for healing centers.
+- 1940s: Phases of Reset.
+- 1940s: Main BRICS states: Brasil, Russia, India, China, South Africa.
+- 1940s: Development Bank welcoming new members (England, Australia, France, Germany).
+- 1940s: USA going crazy.
+- 1940s: Old financial system breaking down.
+- 1940s: Psychological factor: loss of confidence.
+- 1940s: Physical factor: closed system must crumble.
+- 1940s: Mistakes multiply trillion-fold everyday.
+- 1940s: Old system physically impossible to exist much longer.
+- 1940s: True value of 50 Euro note is 11 Cent.
+- 1940s: ECB bankruptcy would show lack of confidence.
+- 1940s: Knowledge and information is power.
+- 1940s: People in financial system brainwashed.
+- 1940s: Understanding Rothschild system, collateral accounts, SSP, trusts leads to non-support.
+- 1940s: Hyper-inflation in Germany in 1929.
+- 1940s: Global hyper-inflation possible.
+- 1940s: Change will come sooner.
+- 1940s: Event is unavoidable.
+- 1940s: Nobody knows the day.
+- 1940s: Transition phase can be harmonious.
+- 1940s: Personal financial situations based on programs.
+- 1940s: Money plays major role in lives.
+- 1940s: Constant lack of money.
+- 1940s: Banking system uses process to create slave work.
+- 1940s: Power to step out of process starts with energetic shift.
+- 1940s: Occult knowledge used by old system creators.
+- 1940s: Higher spiritual wisdom creates cracks in Matrix.
+- 1940s: Invisible to system by using cash.
+- 1940s: System less able to see cash than electronic money.
+- 1940s: Credit cards/bank cards detect actions.
+- 1940s: Take money out of bank; transform to gold/silver or real material value.
+- 1940s: Better to make it circulate into good things.
+- 1940s: Flow of collective money energy improves.
+- 1940s: Invested money gets higher frequency.
+- 1940s: Cyprus money stolen from people through banks.
+- 1940s: Take money out of bank to prevent scenario.
+- 1940s: Take money out of stock market immediately.
+- 1940s: Equities traded, controlled, personally bound.
+- 1940s: Stock price personalized.
+- 1940s: Investors not working with Cabal treated as cattle.
+- 1940s: Stock prices manipulated to make them bankrupt.
+- 1940s: Key is to get invisible financially.
+- 1940s: Beings of light with good intentions often fail.
+- 1940s: Cabal manipulates it.
+- 1940s: Process sped up by suppression.
+- 1940s: People with great inspirations suppressed/removed.
+- 1940s: System breaks down faster.
+- 1940s: If every being of light is in debt, no new energy feeds system.
+- 1940s: Old system dies of stagnation.
+- 1940s: Cabal's system bound to fail.
+- 1940s: Heading into moneyless society with high speed.
+- 1940s: Treatment of physical values impacts positive future.
+- 1940s: Cabal controls progressive technologies.
+- 1940s: Only solution is Event/Breakthrough.
+- 1940s: Normal people understand something not working.
+- 1940s: Awakening unstoppable.
+- 1940s: Speed up awakening.
+- 1940s: Physical flow of light is slow; patience useful.
+- 1940s: Rothschilds began plans in 18th century.
+- 1940s: Result of their plans experienced today.
+- 1940s: Great-great-great-sons experienced global financial system.
+- 1940s: Visions and perseverance.
+- 1940s: Collective allowed it to happen.
+- 1940s: People did not say "no" in mass.
+- 1940s: Time to say "no".
+- 1940s: Long term strategy instead of short term.
+- 1940s: Decisions more powerful than Rothschilds'.
+- 1940s: Patience and perseverance manifest visions.
+- 1940s: Results visible globally.
+- 1940s: Reports in newspapers/TV about Eastern Alliance successes.
+- 1940s: St Germain initiated new financial system.
+- 1940s: St Germain is light force behind Eastern Alliance.
+- 1940s: Connect with St Germain to speed up liberation.
+- 1940s: Written word is powerful tool.
+- 1940s: Share truth codes.
+- 1940s: Information = consciousness = light.
+- 1940s: More truth spread, more people awaken, faster changes.
+- 1940s: Sunday evening meditation to activate new financial system for Europe.
+- 1940s: 120 present people from different countries.
+- 1940s: Same meditation as in Taiwan.
+- 1940s: Silver coin used.
+- 1940s: Blessed and meditated with violet flame and St Germain.
+- 1940s: St Germain present in room.
+- 1940s: Everyone has silver coin at home.
+- 1940s: Reconnect with energy.
+- 1940s: Whole planet possessing noble metals.
+- 1940s: Life insurances belong to old system.
+- 1940s: Money back; no need for life assurances.
+- 1940s: Basic income good idea; decades old.
+- 1940s: Manifests as part of new system.
+- 1940s: Basic needs provided without work.
+- 1940s: New "Fighter" jet cost could give all homeless in USA a villa.
+- 1940s: Transition time to moneyless society: few months or few years.
+- 1940s: Climate changing.
+- 1940s: Artificially created global warming changing into mini Ice-Age.
+- 1940s: Weather reflection of collective consciousness.
+- 1940s: Ley line work encouraged.
+- 1940s: CERN not a danger; light forces watching.
+- 1940s: No third world war.
+- 1940s: More energy work necessary in Konstanz.
+- 1940s: Ubuntu/Michael Tellinger: sovereign beings; no need to fight institutions.
+- 1940s: Free energy devices only after Event.
+- 1940s: Germany "stateless"; illegal system; war prisoners.
+- 1940s: Economic situation stronger than political game.
+- 1940s: Countries forced to work with Eastern Alliance.
+- 1940s: Connections with Russia and China follow soon.
+- 1940s: Restructuring at Event.
+- 1940s: Nationalities less important long term.
+- 1940s: Consciousness changes with lightship sightings.
+- 1940s: Galactic nature of planet realized.
+- 1940s: National states and borders meaningless.
+- 1940s: Breakthrough conference in Naples, Italy.
+- 1940s: April 25th and 26th.
+- 1940s: Naples is important vortex point.
+- 1940s: 25,000 years long lasting war at peak.
+- 1940s: Liberators and Light Warriors invited to Naples.
+- 1940s: Goddess Energy and Sisterhood of the Rose.
+- 1940s: New communication tools.
+- 1940s: Words make up 7% of communication.
+- 1940s: 93% is body language and energetic intent.
+- 1940s: Future use of telepathic and intuitive abilities.
+- 1940s: Activate connection with own soul.
+- 1940s: Programmed within unconsciousness.
+- 1940s: Sunglasses of different colors.
+- 1940s: Taking responsibility back.
+- 1940s: Beautiful times dawning.
+- 1940s: Grow TOGETHER.
+- 1940s: Support each other.
+- 1940s: Honor changes.
+- 1940s: Old pictures about self/others go.
+- 1940s: Not enough conscious focus on communication.
+- 1940s: Communication taught unconsciously.
+- 1940s: Penetrator-victim situations.
+- 1940s: Feelings of not being good enough.
+- 1940s: Competition and negative behaviors.
+- 1940s: New energies: win-win situations.
+- 1940s: New ways of communication in all areas.
+- 1940s: Quality more important than gain.
+- 1940s: Deep respect, honesty, truthfulness.
+- 1940s: Excuses important but honest.
+- 1940s: Throat chakra important.
+- 1940s: Other chakras must work fully.
+- 1940s: Working with chakras helpful.
+- 1940s: Goddess energy powerful.
+- 1940s: Old patterning: listen to spoken words only.
+- 1940s: Think about answer while listening.
+- 1940s: Different understanding of words.
+- 1940s: Change to complete listening.
+- 1940s: Silence allows listening with full presence.
+- 1940s: Feel presence of other within being.
+- 1940s: First step to let Goddess energy flow.
+- 1940s: Surrender to Goddess starts with listening.
+- 1940s: Relax into present moment.
+- 1940s: Answer comes spontaneously.
+- 1940s: Responsibility for new art of communicating.
+- 1940s: Honesty, respect, empathy, receptivity, feelings.
+- 1940s: Properties of true feminine power.
+- 1940s: Divine feminine expressed/perceived.
+- 1940s: Express feelings, talents in joy/happiness.
+- 1940s: Look inside for inspiration.
+- 1940s: Find true passion.
+- 1940s: True path.
+- 1940s: Use tools; create way.
+- 1940s: Connect with like-minded people.
+- 1940s: Multiply joy.
+- 1940s: Express in joy.
+- 1940s: True joy/interest trigger respect.
+- 1940s: Respect own boundaries.
+- 1940s: Present in heart, centered.
+- 1940s: Roots down to mother earth.
+- 1940s: Wings up to sky.
+- 1940s: Sisterhood of the Rose brings Goddess Energy back.
+- 1940s: Consciousness of oneness.
+- 1940s: No competition/comparison.
+- 1940s: Part of soul presence in matter.
+- 1940s: Unconditional love, respect, understanding.
+- 1940s: Facets of one diamond.
+- 1940s: Aspects of Goddess: Isis, Hathor, Sekhmet, Bastet.
+- 1940s: Different expressions of One.
+- 1940s: Understanding comes back to earth.
+- 1940s: Men/women awaken/regain true power.
+- 1940s: Men: wake-up call to express feelings.
+- 1940s: Women: be in truth without being too masculine.
+- 1940s: Soft and powerful.
+- 1940s: Divine child symbol for balanced energies.
+- 1940s: Horus symbol for divine child.
+- 1940s: Symbolic child of Isis and Osiris/Ashtar.
+- 1940s: Feel presence of divine child within.
+- 1940s: Balance within.
+- 1940s: Goddess energy flows through.
+- 1940s: Balance spiritually, emotionally, physically.
+- 1940s: New preferences/consciousness.
+- 1940s: Giving/receiving, action/reception balanced.
+- 1940s: Ancient Egypt: initiation into mysteries.
+- 1940s: Use symbols, tools, knowledge.
+- 1940s: High priestesses used sound.
+- 1940s: First mystery: Silence.
+- 1940s: Silence doorway to reception.
+- 1940s: Surrender allows Goddess/God energy present.
+- 1940s: Expression of spirit in matter.
+- 1940s: Soul inhabits life completely.
+- 1940s: Soul purpose serves highest good.
+- 1940s: Every deed ceremony to celebrate life.
+- 1940s: Lead naturally.
+- 1940s: Divine energy flows through.
+- 1940s: Knowledge taught by high priestesses.
+- 1940s: New society handles five elements consciously.
+- 1940s: Pentagram balances five elements.
+- 1940s: Fire, earth, air, water, ether.
+- 1940s: Magical number.
+- 1940s: Life possible by merging 5 elements.
+- 1940s: Micro-cosmoses include 5 elements.
+- 1940s: Fibonacci spiral.
+- 1940s: Sacred geometry in embryo, shell, stones, DNA.
+- 1940s: Holy symbols are cosmic energies in manifestation.
+- 1940s: Milky Way with galactic center is double spiral.
+- 1940s: Divine pattern.
+- 1940s: Ocean of love emanating from it.
+- 1940s: Temple on Malta.
+- 1940s: Central race first advanced civilization.
+- 1940s: Gained high wisdom millions of years ago.
+- 1940s: Live near central sun.
+- 1940s: Brought wisdom to whole galaxy.
+- 1940s: Known as ambassadors, angelos, messengers, angels.
+- 1940s: Not only etheric; physical angels with wings.
+- 1940s: Iona winged Goddess.
+- 1940s: Brought mysteries to earth in times of Atlantis.
+- 1940s: Isis/Astara was her student.
+- 1940s: Iona left earth; gave mission to Isis.
+- 1940s: Isis founded mystery schools in Atlantis.
+- 1940s: Schools went underground when Atlantis fell.
+- 1940s: Main place of mystery schools in Egypt.
+- 1940s: Area bigger than perceived; included Mediterranean islands.
+- 1940s: Malta main temple; always light pillar.
+- 1940s: Temples built by giants.
+- 1940s: Beginning of Sisterhood of the Rose many thousands of years ago in Egypt.
+- 1940s: Sisterhood composed of enlightened beings.
+- 1940s: Living/celebrating sacredly in temples.
+- 1940s: Very powerful.
+- 1940s: Archons did not like it.
+- 1940s: Archons destroyed temples.
+- 1940s: Knowledge hidden underground.
+- 1940s: Archons sent messengers to pray to Aton.
+- 1940s: Forbade mystery schools.
+- 1940s: Schools went under surface as Isis temples.
+- 1940s: Priesthood strong.
+- 1940s: Reemerged after short time.
+- 1940s: Temples active in Mediterranean again.
+- 1940s: Roman empire: temples spread all over.
+- 1940s: Avalon in Ireland.
+- 1940s: Knowledge handled extremely secretly.
+- 1940s: Only initiates knew.
+- 1940s: Swore to never tell mysteries.
+- 1940s: Mysteries highly sacred.
+- 1940s: Not for beings not ready.
+- 1940s: Told to masses would be distorted/misused.
+- 1940s: Deeper mysteries only to initiates.
+- 1940s: Most awakened beings not ready yet.
+- 1940s: Programming deeper than light workers aware.
+- 1940s: After Event, complete mysteries released to ready.
+- 1940s: Simple mystery: immortality of the soul.
+- 1940s: Roman times: Archons tried to destroy mysteries.
+- 1940s: 4th century: Konstantin the Great wanted one synthetic religion.
+- 1940s: Bishops commanded to Council of Nicaea.
+- 1940s: Sign document or not leave alive.
+- 1940s: Decree of Nicaea basis of catholic religion.
+- 1940s: Tool for controlling masses.
+- 1940s: Everything else forbidden in roman empire.
+- 1940s: Mysteries of Goddess not in written form.
+- 1940s: Temples destroyed.
+- 1940s: Priestesses/priests killed.
+- 1940s: Re-incarnated members worked from underground.
+- 1940s: Spread knowledge indirectly via symbols.
+- 1940s: Architecture, paintings, music.
+- 1940s: Cathedral of Chartres has symbols.
+- 1940s: Holy Grail symbol.
+- 1940s: Chalice of Goddess formed like rose.
+- 1940s: Rose symbol related to mysteries.
+- 1940s: Imbedded in poetry/art.
+- 1940s: Secret book "The Red Book".
+- 1940s: Catholic church could never get it.
+- 1940s: Given from mother to daughter.
+- 1940s: Sisterhood influenced political world.
+- 1940s: Hitler: Sisterhood contacted Eva Braun.
+- 1940s: Prevented worst scenarios.
+- 1940s: Court of Saladin: battles hindered; peace made.
+- 1940s: New army sent to Richard Löwenherz when wounded.
+- 1940s: Illogical maneuver in history.
+- 1940s: Sisterhood prevented atomic war.
+- 1940s: Goddess wants peace.
+- 1940s: Peace will be.
+- 1940s: At Event, Sisterhood anchors energies of silence/peace.
+- 1940s: Masses will not understand; agitation.
+- 1940s: Sisterhood calms down through meditations.
+- 1940s: Key role at Event.
+- 1940s: Build groups now.
+- 1940s: During Event, all calm/peaceful.
+- 1940s: Same people forming Sisterhood and ESG.
+- 1940s: Find own role.
+- 1940s: Follow inner guidance.
+- 1940s: Pentagram symbol for Goddess.
+- 1940s: Circle around pentagram means protection.
+- 1940s: Energy of Goddess soft and powerful.
+- 1940s: Energy of creation.
+- 1940s: Dark forces tried to suppress.
+- 1940s: Strong women, healers, "witches" were high priestesses.
+- 1940s: Sisterhood allows men/women to take back life energy/power.
+- 1940s: Original design of creation.
+- 1940s: Free will important.
+- 1940s: Free will means express unconditional love freely.
+- 1940s: Knowledge of Goddess gives access to free will.
+- 1940s: No will above free will.
+- 1940s: Original blueprint.
+- 1940s: Free will respected on highest levels.
+- 1940s: Religious systems afraid of strong feminine will.
+- 1940s: Women did not surrender to religion.
+- 1940s: Wisdom brings spirit into matter.
+- 1940s: Free will in harmony with divine.
+- 1940s: Free will of others never restricted.
+- 1940s: Everything for well-being of whole.
+- 1940s: Meant to live originally.
+- 1940s: Bringing balance back.
+- 1940s: Learn to express without competition/comparison.
+- 1940s: Stop comparing to ANY-one.
+- 1940s: Old system based on competition programming.
+- 1940s: Serves to suppress Goddess energy.
+- 1940s: Will not work much longer.
+- 1940s: Women entering process of supporting each other.
+- 1940s: Significant: learn to support other women.
+- 1940s: Basis for re-emergence of Sisterhood.
+- 1940s: Circle of women supporting each other.
+- 1940s: Main basis structure of initiates in priestesshood of Isis.
+- 1940s: Divine/Goddess has many facets.
+- 1940s: Cannot expressed through one woman.
+- 1940s: Many facets possible.
+- 1940s: Varying ways/colors.
+- 1940s: Building one Goddess diamond.
+- 1940s: Start to anchor divine into matter.
+- 1940s: Goddess energy nurturing itself.
+- 1940s: Absolutely magnetic.
+- 1940s: Woman in Goddess energy does not need to fight/gain attention.
+- 1940s: Magnet through BE-ing.
+- 1940s: Masculine energy electric.
+- 1940s: Two energies attracting each other.
+- 1940s: Creation.
+- 1940s: Divine feminine/masculine attracting by basic construction.
+- 1940s: Find ourselves within.
+- 1940s: Two energies present in original way.
+- 1940s: Magnetic and electric at once.
+- 1940s: Power of lioness/lion.
+- 1940s: Egyptian Sphinx: lion body, women head.
+- 1940s: Symbol for lioness power.
+- 1940s: Women/men filled with balanced energies bearers of lion energy.
+- 1940s: Many Goddesses have animal at side.
+- 1940s: Expresses power/ability.
+- 1940s: Symbol animal of Isis: dove.
+- 1940s: Teachings about Ankh.
+- 1940s: Key of life, breath of life.
+- 1940s: Described in Atlantis/Egypt.
+- 1940s: Symbol for potential of creation.
+- 1940s: Looks like angel, human being, key.
+- 1940s: Infinity symbol laid twice over each other.
+- 1940s: Open ends.
+- 1940s: Bring something into life from eternity.
+- 1940s: Isis gave life back to Osiris through breath flowing through Ankh.
+- 1940s: Ankh held above head to connect with higher self.
+- 1940s: Lens to "see" into spiritual realms.
+- 1940s: Learn to use symbols with respect/honor.
+- 1940s: Ankh key to take responsibility in Sisterhood.
+- 1940s: Bring soul energy into body.
+- 1940s: Deepest mystery of Isis: bring spirit into matter with Ankh.
+- 1940s: Strong light energy removing synthetic/non-alive.
+- 1940s: Dark forces suppressing Goddess energy.
+- 1940s: Know they will be removed by her.
+- 1940s: Not filled with divine energy.
+- 1940s: Support flowing from Galactic Confederation and central sun.
+- 1940s: Central sun giant Goddess.
+- 1940s: Moves in spirals.
+- 1940s: Goddess energy/consciousness spiraling.
+- 1940s: Spiral consciousness.
+- 1940s: Understand spiral consciousness.
+- 1940s: Activate/allow spiral consciousness to flow.
+- 1940s: Channels for Goddess energy.
+- 1940s: Isis and Osiris archetypes of balance.
+- 1940s: Love succeeded over obstacles.
+- 1940s: Power of creation energy of divine mother.
+- 1940s: Mother gives birth through surrendering to flow.
+- 1940s: Resistance creates more pain.
+- 1940s: Educated/programmed to be resistant.
+- 1940s: Learn to surrender to Goddess energy.
+- 1940s: Birth in all areas more joyful/easier.
+- 1940s: Mysteries of Isis: milk divine drink.
+- 1940s: Divine child receives life through milk.
+- 1940s: Crown of Hathor with horns embracing sun.
+- 1940s: Cow with horns holy animal.
+- 1940s: Gives divine drink/milk.
+- 1940s: Magic/mystery of nature.
+- 1940s: Feminine body present to give/maintain/nurture life.
+- 1940s: Womb/breasts.
+- 1940s: Animals/nature: life comes out of seed.
+- 1940s: Seed contains everything to enfold.
+- 1940s: Number 5 in fingers/toes/5 elements.
+- 1940s: Conference during equinox.
+- 1940s: Point of balance of energies.
+- 1940s: Birth of new life.
+- 1940s: Planet getting back into balance.
+- 1940s: Rhythm heartbeat of universe.
+- 1940s: Pressure and relaxation.
+- 1940s: Earth moves with universe in same rhythm.
+- 1940s: Wave in ocean.
+- 1940s: Ebb and flow.
+- 1940s: Energy of Goddess and God.
+- 1940s: Balance of dynamic and spontaneity.
 [Entities & roles]
-*   **Cobra**: Spokesperson; describes the 5 layers of programming; confirms the "Event" is a financial reset and spiritual liberation.
-*   **Chimera**: Remaining dark group; connected to Strangelet/Toplet bombs; monitored from Long Island.
-*   **Archons**: Created the negative portal in 1996; control the reincarnation process.
-*   **Pleiadians**: Offered technology to Eisenhower in the 1950s; withdrew when the military freaked out.
-*   **Draconians**: Came to the Nazis after Pleiadians withdrew; signed a contract for technology in exchange for abduction rights.
-*   **Ashtar Command**: Alliance of star races; had contact with Eisenhower; guided by the Central Civilization.
-*   **Central Civilization/Wingmakers/Blue Avians**: First and oldest intelligent life in the galaxy; operating from the Oort Cloud; stabilizing energies.
-*   **Iona**: Winged Goddess; brought mysteries to Atlantis; student was Isis/Astara.
-*   **St. Germain**: Light force behind the Eastern Alliance; initiated the new financial system.
-*   **Jesuits**: Behind the ECB and debt structures; trying to infiltrate the Eastern Alliance.
-*   **Rothschilds**: Control the old financial system; plans started in the 18th century.
-*   **M1**: Symbolic figurehead of the collateral accounts; controlled by Reptilian/Cabal bloodlines.
-*   **Dick Cheney**: Stole money for the Mars corporation; involved in SSP.
-*   **Wernher von Braun**: Brought Nazi scientists to the USA via Operation Paperclip.
-*   **Maria Orsic**: Medium at Thule Society meeting; received info on flying discs.
-*   **W.O. Schumann**: Physicist who built the flying discs based on Orsic's info.
-
+- Archons: Created implants; imprisoned souls in reincarnation; created negative portal in 1996; destroyed temples; created synthetic religion at Nicaea.
+- Chimera: Remaining dark forces; connected to strangelet/toplet bombs; behind Jesuits/ECB; used in SSP.
+- Jesuits: Behind ECB; created universities; controlled education; behind Nicaea; behind Catholic Church.
+- Pleiadians: Offered technology to Thule Society; withdrew from Nazis; offered technology to Eisenhower; first contact with Cobra in 1977.
+- Draconians: Came to Nazis after Pleiadians; signed contract with Eisenhower; allowed abductions; prepared Draco invasion.
+- Ashtar Command: Alliance of star races; contact with Eisenhower; offered technology; warned of other ET forces.
+- Central Civilization/Wingmakers/Blue Avians: Beings on sphere motherships; members of central civilization; coming for final liberation; highest wisdom.
+- Iona: Goddess from core of galaxy; brought mysteries to Atlantis; student was Isis.
+- Isis: Student of Iona; founded mystery schools; kept knowledge alive; archetype of balance.
+- Osiris: Archetype of male principle; died and resurrected.
+- Horus/Ganesha: Symbolic representation of child; divine child archetype.
+- St Germain: Ascended master; initiated new financial system; behind Eastern Alliance; founded St Germain Trust.
+- Eastern Alliance/BRICS: Creating alternative financial infrastructure; determining gold price; leading new infrastructure.
+- Resistance Movement: Created virus in 2012; will activate virus at Event; guides gold distribution; contacts ESG.
+- Cabal: Controls financial system; created old system; behind Worldbank, IWF, FED, Swift; stole gold; manipulated elections.
+- Royal Bloodline Families: Created collateral accounts; stole gold; now custodians.
+- Dick Cheney: Stole money for Mars corporation; traveled through solar system.
+- Wernher von Braun: Brought scientists to USA in Operation Paperclip.
+- Maria Orsic: Medium at Thule Society meeting; received info on flying disc.
+- W.O. Schumann: Physicist who built flying discs.
+- Thule Society: German secret society; initially Light Forces; taken over by Nazis; developed Airships.
+- Nazis: Took over Thule Society; formed treaties with Draconians; exported system to USA via Operation Paperclip.
+- Operation Paperclip: Brought Nazi scientists to USA; continued SSP.
+- Solar Warden: Official name for operation to protect solar system; true purpose to prepare Draco invasion.
+- Long Island: Location of particle accelerator and cloning facility; monitors detectors.
+- Ganymede: Main stronghold of Light Forces in solar system; processing facility for dark beings.
+- Oort Cloud: Contains cloaked sphere motherships; diameter 1 lightyear.
+- Kuiper Belt: Contains smaller ships transmitting energy.
+- Central Sun: Giant Goddess; source of all energy; sending Ocean of Cosmic Love.
+- Tachyons: Created as first particles; used in tachyon chambers.
+- Moldavite Chalice: Lens for light from Galactic Central Sun; serves to trigger awakening of 144,000.
+- Cintamani Stone: Aspect of Holy Grail; transmitting element for Event energies; amplifier of positive energy.
+- Network of Light: More important than anything else; vortexes are entrance stations for lightships.
+- Order of the Star: 144,000 star beings; guardians of light.
+- Sisterhood of the Rose: Feminine aspect of liberation; anchors energies of silence/peace; influenced political events (Eva Braun, Saladin).
+- Event Support Groups: Masculine aspect of liberation; calm masses; coordinate operations; contacted by light forces.
+- Triangulum Galaxy: "Oversoul" of Milky Way and Andromeda; sent flash of light in Dec 2014.
+- Comet Lovejoy: Passed near Pleiades in Jan 2015; increased purification.
+- Blue Dragon Societies: Held printing press technology; took knowledge to Florence.
+- Tesla: Involved in attempt to build craft to reach Mars; failed.
+- Rudolf Steiner: Left Thule Society when taken over by Nazis.
+- Eva Braun: Contacted by Sisterhood of the Rose.
+- Saladin: Court influenced by Sisterhood of the Rose; peace made.
+- Richard Löwenherz: Received new army from Sisterhood.
+- Konstantin the Great: Created synthetic religion at Nicaea.
+- Chartres Cathedral: Contains symbols of Sisterhood of the Rose.
+- Avalon: Temple of Sisterhood of the Rose in Ireland.
+- Malta: Main temple of Sisterhood of the Rose; light pillar.
+- Egypt: Main place of mystery schools.
+- Atlantis: Location of mystery schools; fell; knowledge went underground.
+- Rome: Temples spread all over empire.
+- Greece: Break-away civilizations from Atlantis.
+- Carpathian Mountains: Eastern Brotherhood of the Star.
+- Bermuda Triangle: RA Yolo.
+- Luxor/Giza: RA group.
+- Himalayas: RaMu.
+- Mt. Shasta: RaMu.
+- Bucegi Mountain, Romania: Base of extraterrestrial race; time capsule; discovered by Romanian Secret Service; taken over by US Cabal.
+- Transylvania Sunrise: Book about Bucegi discovery.
+- Zamaltos: Legend from late Atlantean period; being of light.
+- Thraxian Civilization: Influenced by Zamaltos.
+- Moses: Led exodus; original Jews believed in one God.
+- Khazarians: Occupied Saudi Arabia; suppressed Biblical events.
+- Saudi Arabia: Actual location of Biblical events.
+- Pol Pot: Killing fields; over 1 million died.
+- Abu Ghraib: Torture; caused by Archon manipulation.
+- DNR: Leaders selling coal to enemy.
+- Crimea: No agreement to give back to Russia.
+- Morgelloan's: Maladies; cures available after Event.
+- Retro transposons: Evidence of ET genetic manipulation.
+- Satan/Set: Same being; not commented on.
+- Central Sun: At center of galaxy.
+- Planet X: Methane gas ice covered planet; blue hue; people live on bases underground near surface; 850 year elliptical orbit; Resistance Movement comes from there.
+- Illuminati: Took over Planet X long time ago; liberated before Earth.
+- Primary Anomaly: Random function; exists without purpose; logical opposite of purpose.
+- Orgone Chem Busters: Can help clear skies.
+- Reptilian in bedroom: Can happen occasionally; clear inner attachments.
+- Shaver Mysteries: Spontaneous human combustion; done remotely with plasma scalar technology.
+- Poland: Torn between eastern and western world.
+- Archangel vs Ascended Master: Ascended Master went through Earth experience; Archangel never subjected to Earth experience.
+- Pope: Archon from Andromeda negative side; not shapeshifting/reptilian.
+- 18 Siddhas: From South India; working from Ascended state.
+- Brahma, Vishnu, Shiva: Universal archetypes: divine will, divine love, divine light.
+- Vaccinations: Situation still taking place; stopped at Event.
+- Strangelet/Toplet bombs: Certain number; not being created; number decreasing.
+- Global meditation: Critical mass not achieved; RM accesses info.
+- Positive military police: Some contacted by RM; not many; far too early.
+- Arrests: Many in Iceland; bankers prosecuted in Vietnam; lawsuit against Rothschilds in France.
+- Rothschild arrest: Rumors; no confirmation.
+- Keshe free energy device: China and India have infrastructure ready; no positive confirmation about Keshe devices.
+- Gans: Nano particleization in wires.
+- Quantum field energy: Available at every socket.
+- Resistance: Discussed Keshe; main thing to remove strangelet bombs.
+- SSP: Many bases on asteroid belt; evidence in Dr. Salla's book.
+- Galactic diplomacy: Immediate presence in outer space after Event.
+- Metatron, Sandaform: Non-material beings; will remain non-material.
+- Blog: Most effective thing to do; need more blogging activity.
+- Cabal plan: International raid into Americas; will not happen.
+- Drake, Alex Jones: Joint interview possible.
+- Meditation: Nov 21st; global meditation to accelerate Event.
 [Key numbers]
-*   1996: Archon invasion date (Jan 11).
-*   1977: Cobra's first Pleiadian contact.
-*   1950s: Eisenhower contact.
-*   1960s: Bases on Mars/Moon.
-*   2012: Solar system cleared.
-*   2000: End of intense space war period.
-*   3000-4000 km: Length of first wave sphere motherships.
-*   10,000 km: Length of second wave sphere motherships.
-*   1 light year: Diameter of the Oort Cloud.
-*   1 trillion dollars: Cost of the SSP.
-*   100 billion dollars: Cost of the ISS.
-*   2000: Number of underground bases created worldwide.
-*   144,000: Number of star beings in the Order of the Star.
-*   10 trillion dollars: Value of the St. Germain Trust.
-*   20-30 years: Duration of "slave work" to pay back a house loan.
-*   11 cents: True value of a 50 Euro note.
-*   1-2 weeks: Duration of bank closures after the event.
-*   30-40%: Percentage of income/taxes going to the SSP.
-
-[Major declarations & commitments]
-*   The "Event" is a financial reset and a spiritual liberation; it is a collective decision.
-*   The old financial system will be destroyed by a virus created by the Resistance Movement in July 2012.
-*   All debts will be deleted (except private debts).
-*   The new financial system will be gold-backed initially, then move to a moneyless society.
-*   The collateral accounts will be released to humanity.
-*   The St. Germain Trust (10 trillion dollars) will be used for light worker projects.
-*   The "Cintamani" stone will be released to awakened light workers to transmit Event energies.
-*   The "Network of Light" is the most important element; it will be stabilized by the Event Support Groups and Sisterhood of the Rose.
-*   The "Event" will be the Zero Point for the whole cosmos.
-*   The "Breakthrough" phase was initialized at the end of last year (2014).
-*   The "IS:IS Portal Activation" in December 2014 was the most difficult but had positive consequences.
-*   The "Goddess Dou Mu" returned through the Agartha Network.
-*   The "Triangulum Galaxy" sent a flash of light to connect the Milky Way and Andromeda.
-*   The "Sphere Motherships" are stabilizing energies and preventing cataclysms.
-*   The "Chimera" group has a system of detectors monitored from Long Island.
-*   The "Cloning facility" on Long Island makes it impossible to arrest key members before the Event.
-*   The "Ashtar Command" had direct contact with Eisenhower in the 1950s.
-*   The "Draconians" signed a contract with the US military for technology in exchange for abduction rights.
-*   The "Operation Paperclip" brought Nazi scientists to the USA.
-*   The "Solar Warden" program was prepared for the Draco invasion.
-*   The "Space War" was intense between 1960 and 2000.
-*   The "Majority of the solar system" was cleared in 2012.
-*   The "Chimera" group is the main problem due to their connection with Strangelet and Toplet bombs.
-*   The "Light forces" are coming from all over the universe.
-*   The "Ashtar Command" is an alliance of different star races.
-*   The "Eisenhower" contact took place inside Edwards AFB.
-*   The "Pleiadians" offered technology to Eisenhower with the condition to remove nuclear weapons.
-*   The "Draconians" came after the Pleiadians and offered technology.
-*   The "Contract" with the Draconians allowed abductions for mind research.
-*   The "David Wilcock" reported on sphere motherships.
-*   The "First wave" of sphere motherships came in March 2001.
-*   The "Second wave" came in December 2014.
-*   The "Blue Avians" are members of the central civilization.
-*   The "Wingmakers" are winged angelic beings.
-*   The "Iona" is a Goddess from the core of the galaxy.
-*   The "Time capsules" of the wingmakers are coded.
-*   The "Oort Cloud" has a diameter of one light year.
-*   The "Kuiper Belt" has smaller ships transmitting energy.
-*   The "Beings on the sphere ships" have interacted indirectly with Earth.
-*   The "Unholy Four" can only be removed after the Chimera.
-*   The "David Wilcock" is giving information from his contactee "Luke".
-*   The "Central Sun" is a giant Goddess.
-*   The "Ocean of Cosmic Love" is emanating from the heart of the Milky Way.
-*   The "Tachyons" were created as the very first particles.
-*   The "Pleiadians" requested Cobra to make tachyons available.
-*   The "Tachyon chambers" are around the planet.
-*   The "Pleiadians" and "Sirians" have physical bodies and 5th/6th dimensional consciousness.
-*   The "Cobra" first contact was in 1977.
-*   The "Pleiadians" discussed with Cobra for 30 minutes to convince him to return to Earth.
-*   The "Event" is a dynamic situation and co-creation.
-*   The "Brotherhood of the Star" are guardians of the light.
-*   The "Order of the Star" are 144,000 star beings.
-*   The "Moldavite chalice" is serving as a lens.
-*   The "Cintamani stone" is being released to the most awakened light workers.
-*   The "Cintamani stone" shall ONLY be given to those who have made a clear decision for the light.
-*   The "Cintamani stone" is THE transmitting element for the Event energies.
-*   The "Network of Light" is more important than anything else.
-*   The "Manifestation tools" are: 1. Conscious Unconditional Decision, 2. Invocation, 3. Physical Action.
-*   The "Layers" of manifestation are: Mental, Astral, Etheric, Plasma, Physical.
-*   The "Gridwork" assists in the full liberation of the Network of Light.
-*   The "Event Support groups" will have a task to calm down the masses.
-*   The "Sisterhood of the Rose" groups will meditate to stabilize the energy.
-*   The "Vortexes" inside the Network of Light are entrance stations for lightships.
-*   The "Impulse" from the Galactic Central Sun will be sent through the Spheric Motherships.
-*   The "People" will experience very exciting energies.
-*   The "Event Support groups" will be contacted by the light forces.
-*   The "Light workers" will receive instructions to make certain contacts.
-*   The "Infrastructure" can remain functioning through our actions.
-*   The "New society" will be built from zero on.
-*   The "Event" is the Zero Point for the whole cosmos.
-*   The "Healing centers" and communities will be visualized.
-*   The "Positive extraterrestrials" will be visible in public when the masses are ready.
-*   The "Financial Reset" is a financial new beginning.
-*   The "Eastern Alliance/BRICS" are creating an alternative reality.
-*   The "Development Bank" was created by the BRICS states.
-*   The "Gold exchange rate" was redefined on March 20, 2015.
-*   The "Gold backing" of the financial system will be reintroduced.
-*   The "Virus" created by the Resistance Movement in July 2012 can destroy the old financial computer network.
-*   The "Debts" will get deleted.
-*   The "Greece" is in debt to the ECB.
-*   The "Jesuits" are behind the ECB.
-*   The "Chimera" use the ECB for the SSP.
-*   The "Abusive cabal-money-system" creates money out of nothing.
-*   The "Slave work" is made of life energy.
-*   The "SSP" is funded by taxes and insurances.
-*   The "Banks" will be closed up to 2 weeks.
-*   The "Cash money" is recommended.
-*   The "Silver or gold" is the best for this time period.
-*   The "Mass arrests" will follow the reset.
-*   The "Media" will tell the masses what is happening.
-*   The "Electricity, water supply, gas and food supply" are fundamental.
-*   The "New system" will raise the frequency of the masses.
-*   The "New technologies" will be released one after the other.
-*   The "Basis of life" is the eternal spark.
-*   The "Special drawing rights (SDR)" are used as a currency basket.
-*   The "New financial system" is a tool for the transition into a moneyless society.
-*   The "Collateral accounts" were created by royal bloodline families after WWI.
-*   The "Gold" was stolen from USA citizens in the 30s.
-*   The "Gold" was stolen from Japan during WWII.
-*   The "Gold" was brought to the Jesuits in the Vatican.
-*   The "Gold" was hidden in Malaysia and the Philippines.
-*   The "Dick Cheney" stole money for the Mars corporation.
-*   The "Resistance Movement" took care of most of the gold in Asia 3 years ago.
-*   The "Money" will be used for ending poverty worldwide immediately.
-*   The "St Germain Trust" has grown to 10 trillion dollars.
-*   The "Phases of the Reset" involve the BRICS states.
-*   The "Old financial system" is breaking down.
-*   The "True value of a 50 Euro note" is about 11 cents.
-*   The "Hyper-inflation" in Germany in 1929 is an example.
-*   The "Event" is unavoidable.
-*   The "Personal financial situations" are based on programs.
-*   The "Power to step out" starts with an energetic shift.
-*   The "Cash money" makes one invisible to the system.
-*   The "Cyprus" money was stolen from people.
-*   The "Stock market" should be exited immediately.
-*   The "Equities" are traded and controlled.
-*   The "Cabal" manipulates stock prices.
-*   The "Moneyless society" is the goal.
-*   The "Cabal" controls progressive technologies.
-*   The "Awakening" is unstoppable.
-*   The "Rothschilds" began their plans in the 18th century.
-*   The "Time has come" to say "no".
-*   The "St Germain" is the light force behind the Eastern Alliance.
-*   The "Written word" is a powerful tool.
-*   The "Sunday evening" meditation in Konstanz was successful.
-*   The "Life insurances" belong to the old system.
-*   The "Basic income" will manifest as part of the new system.
-*   The "New Fighter" jet cost could house all homeless people in the USA.
-*   The "Transition time" to a moneyless society will last a few months or years.
-*   The "Climate change" is already changing into a mini Ice-Age.
-*   The "Ley line work" is encouraged.
-*   The "CERN" is watched over by light forces.
-*   The "Third world war" will not happen.
-*   The "Ubuntu/Michael Tellinger" sovereignty drama is unnecessary.
-*   The "Free energy devices" will likely appear after the Event.
-*   The "Germany" is in a stateless situation.
-*   The "Naples" conference is on April 25th and 26th.
-*   The "Goddess Energy" will change communication.
-*   The "Words" make up only 7% of communication.
-*   The "Throat chakra" is important for communication.
-*   The "Sisterhood of the Rose" brings Goddess Energy back to Earth.
-*   The "Pentagram" balances the five elements.
-*   The "Holy symbols" are cosmic energies.
-*   The "Temple on Malta" was the main temple of the Sisterhood of the Rose.
-*   The "Iona" brought the mysteries to Atlantis.
-*   The "Isis/Astara" was her student.
-*   The "Mystery schools" went underground when Atlantis fell.
-*   The "Archons" destroyed the temples.
-*   The "Aton" was the God of the Archons.
-*   The "Roman Empire" spread the temples.
-*   The "Avalon" in Ireland was a temple.
-*   The "Mysteries of the Goddess" are highly sacred.
-*   The "Mystery of the immortality of the soul" is a simple mystery.
-*   The "Konstantin the Great" created a synthetic religion at the Council of Nicaea.
-*   The "Decree of Nicaea" is the basis of the catholic religion.
-*   The "Chartres cathedral" contains symbols of the Sisterhood.
-*   The "Holy Grail" is a symbol.
-*   The "Rose" is a symbol.
-*   The "Red Book" is a secret book.
-*   The "Sisterhood of the Rose" influenced Hitler (Eva Braun) and Saladin.
-*   The "Atomic war" was prevented by the Sisterhood.
-*   The "Sisterhood of the Rose" will anchor energies of silence and peace at the Event.
-*   The "Pentagram" is a symbol for the Goddess.
-*   The "Free will" is the original blueprint.
-*   The "Competition programming" serves to suppress Goddess energy.
-*   The "Magnetic" and "Electric" energies attract each other.
-*   The "Lioness/Lion" energy is in humans.
-*   The "Sphinx" symbolizes lioness power.
-*   The "Dove" is a symbol of Isis.
-*   The "Ankh" is the key of life.
-*   The "Galactic Confederation" is supporting the return of Goddess energy.
-*   The "Central Sun" is a giant Goddess.
-*   The "Spiral consciousness" is Goddess consciousness.
-*   The "Isis and Osiris" are archetypes of balance.
-*   The "Milk" is the divine drink.
-*   The "Hathor" crown symbolizes the divine drink.
-*   The "Equinox" is a point of balance.
-*   The "Heartbeat of the universe" is the rhythm of ebb and flow.
-
-[Key quotes]
-*   "The Event is a dynamic situation, a co-creation of us all, a decision on a collective level."
-*   "THE NETWORK OF LIGHT IS MORE IMPORTANT THAN ANYTHING ELSE ! AND THE CINTAMANI STONES PLAY A MAJOR ROLE IN THIS !"
-*   "The destiny of humanity depends on how we fill in our role during the moment of the Event."
+- 25,000 years: Duration of quarantine/war.
+- 1996: Archon invasion; negative portal created.
+- 1960s: Bases on Mars/Moon.
+- 1960-2000: Space war.
+- 2012: Solar system cleared; virus created.
+- 1950s: Eisenhower contact.
+- March 2001: First wave of sphere ships.
+- December 2014: Second wave of motherships; IS:IS Portal Activation.
+- January 2015: Comet Lovejoy.
+- 1920s: Flying discs functional.
+- 1940s: Operation Paperclip; SSP in USA; Solar Warden; 2000 underground bases; Long Island facilities.
+- 1977: Cobra's first contact.
+- 30 minutes: Pleiadian discussion.
+- 10 trillion Dollar: St Germain Trust.
+- 11 Cent: Value of 50 Euro note.
+- 30-40 percent: Taxes to SSP.
+- 1 trillion Dollar: SSP cost.
+- 100 billion Dollar: ISS cost.
+- 144,000: Order of the Star.
+- 2000: Underground bases.
+- 1 lightyear: Oort Cloud diameter.
+- 3000-4000 km: First wave sphere ships.
+- 10,000 km: Second wave ships.
+- 1929: Hyper-inflation in Germany.
+- 18th century: Rothschilds began plans; St Germain incarnation.
+- 1930s: Gold stolen from USA.
+- WWII: Gold stolen from Japan.
+- 1940s: Microchipping campaign began.
+- 1996: Implants reinforced.
+- 1998: Real infiltration started.
+- 1970s: Small number of agents infiltrated.
+- 1996-1999: Orion briefly successful in Pleiades.
+- 200,000 years: Atlantis.
+- 15,000 years: Order of the Star formed on Atlantis.
+- 16,000 years: Sphinx built.
+- 5,000 years: Kurgan archon invasion; Hypogeum war.
+- 4th century: Archon invasion; heads broken off statues.
+- 1959: Dyatlov Pass Incident.
+- 1908: Tunguska Event.
+- 2011: East China Sea earthquake (not confirmed as base destruction).
+- 2013: MH370 disappeared.
+- 2015: Zika virus outbreak.
+- 2016: New Republic of USA sworn in (not confirmed).
+- 2040: Babaji to appear (not confirmed).
+- 2025: Classified answer regarding unascended humans.
+- 10,000-20,000 years: Orbital period of 9th planet (Caltech theory).
+- 60 billion miles: Distance of 9th planet (Caltech theory).
+- 10 times Earth's mass: 9th planet mass (Caltech theory).
+- 0.75 Earth masses: Planet X mass (Cobra).
+- 28,019: Signatures on SSP petition (as of 3/20/16).
+- 50-75 to 5,000-7,500: Signature drops.
+- 13: Illuminati blood families.
+- 200: White Draco council.
+- 70 billion: Non-incarnated human souls evacuated Aug 14, 1999.
+- 14, 1999: Mass evacuation of souls.
+- 100 feet: Radius of implant hemisphere.
+- 3: Number of etheric implants.
+- 100 billion galaxies: Number of galaxies.
+- 100 billion stars: Stars per galaxy.
+- 25,000 light years: Distance to Galactic Center.
+- 26,000 years: Galactic cycle.
+- 8 million years: Archangels disconnected.
+- 1,000 years: Average lifespan of giants.
+- 1,000 years: Time for galaxy merger influence.
+- 10 times: Gold to silver price ratio (historical average).
+- $15: Value of 1 oz silver coin (Wilcock).
+- $26: Cost to manufacture 1 oz silver coin.
+- $400: Potential silver price (Wilcock).
+- 81 times: Gold to silver price ratio (current).
+- 59.6 carat: Pink diamond sold.
+- $71 million: Price of pink diamond.
+- 30,000 kilos: Annual diamond production.
+- 15 km: Distance from Jiufen to land in Taiwan.
+- 1300 square meters: Area of land in Taiwan.
+- 50 km wide, 100 km long: Underground base north of Taoyuan Airport.
+- 1 billion: Capacity of underground base.
+- 3 billion: Future capacity of underground base.
+- 27.291° N, 125.868° E: Location of East China Sea earthquake.
+- 209.5 km: Depth of earthquake.
+- 6.5 magnitude: Earthquake magnitude (Tolec report).
+- 6.9 magnitude: USGS reported magnitude.
+- 2011: Year of East China Sea earthquake.
+- 1960s: Black Jesus in Africa.
+- 1947: Zika virus patented.
+- 2015: GM mosquitoes released.
+- 1913: O.T.O. created.
+- 1941: George H.W. Bush served.
+- 1943: George W. Bush served.
+- 1996: Soul transference happening massively.
+- 1996: Dark forces attacked LA energy vortexes.
+- 18th century: Los Angeles started to grow.
+- 1947: Zika virus patented.
+- 2015: GM mosquitoes released.
+- 2016: New Republic of USA sworn in (not confirmed).
+- 2040: Babaji to appear (not confirmed).
+- 2025: Classified answer regarding unascended humans.
+- 10,000-20,000 years: Orbital period of 9th planet (Caltech theory).
+- 60 billion miles: Distance of 9th planet (Caltech theory).
+- 10 times Earth's mass: 9th planet mass (Caltech theory).
+- 0.75 Earth masses: Planet X mass (Cobra).
+- 28,019: Signatures on SSP petition (as of 3/20/16).
+- 50-75 to 5,000-7,500: Signature drops.
+- 13: Illuminati blood families.
+- 200: White Draco council.
+- 70 billion: Non-incarnated human souls evacuated Aug 14, 1999.
+- 14, 1999: Mass evacuation of souls.
+- 100 feet: Radius of implant hemisphere.
+- 3: Number of etheric implants.
+- 100 billion galaxies: Number of galaxies.
+- 100 billion stars: Stars per galaxy.
+- 25,000 light years: Distance to Galactic Center.
+- 26,000 years: Galactic cycle.
+- 8 million years: Archangels disconnected.
+- 1,000 years: Average lifespan of giants.
+- 1,000 years: Time for galaxy merger influence.
+- 10 times: Gold to silver price ratio (historical average).
+- $15: Value of 1 oz silver coin (Wilcock).
+- $26: Cost to manufacture 1 oz silver coin.
+- $400: Potential silver price (Wilcock).
+- 81 times: Gold to silver price ratio (current).
+- 59.6 carat: Pink diamond sold.
+- $71 million: Price of pink diamond.
+- 30,000 kilos: Annual diamond production.
+- 15 km: Distance from Jiufen to land in Taiwan.
+- 1300 square meters: Area of land in Taiwan.
+- 50 km wide, 100 km long: Underground base north of Taoyuan Airport.
+- 1 billion: Capacity of underground base.
+- 3 billion: Future capacity of underground base.
+- 27.291° N, 125.868° E: Location of East China Sea earthquake.
+- 209.5 km: Depth of earthquake.
+- 6.5 magnitude: Earthquake magnitude (Tolec report).
+- 6.9 magnitude: USGS reported magnitude.
+- 2011: Year of East China Sea earthquake.
+- 1960s: Black Jesus in Africa.
+- 1947: Zika virus patented.
+- 2015: GM mosquitoes released.
+- 2016: New Republic of USA sworn in (not confirmed).
+- 2040: Babaji to appear (not confirmed).
+- 2025: Classified answer regarding unascended humans.
+- 10,000-20,000 years: Orbital period of 9th planet (Caltech theory).
+- 60 billion miles: Distance of 9th planet (Caltech theory).
+- 10 times Earth's mass: 9th planet mass (Caltech theory).
+- 0.75 Earth masses: Planet X mass (Cobra).
+- 28,019: Signatures on SSP petition (as of 3/20/16).
+- 50-75 to 5,000-7,500: Signature drops.
+- 13: Illuminati blood families.
+- 200: White Draco council.
+- 70 billion: Non-incarnated human souls evacuated Aug 14, 1999.
+- 14, 1999: Mass evacuation of souls.
+- 100 feet: Radius of implant hemisphere.
+- 3: Number of etheric implants.
+- 100 billion galaxies: Number of galaxies.
+- 100 billion stars: Stars per galaxy.
+- 25,000 light years: Distance to Galactic Center.
+- 26,000 years: Galactic cycle.
+- 8 million years: Archangels disconnected.
+- 1,000 years: Average lifespan of giants.
+- 1,000 years: Time for galaxy merger influence.
+- 10 times: Gold to silver price ratio (historical average).
+- $15: Value of 1 oz silver coin (Wilcock).
+- $26: Cost to manufacture 1 oz silver coin.
+- $400: Potential silver price (Wilcock).
+- 81 times: Gold to silver price ratio (current).
+- 59.6 carat: Pink diamond sold.
+- $71 million: Price of pink diamond.
+- 30,000 kilos: Annual diamond production.
+- 15 km: Distance from Jiufen to land in Taiwan.
+- 1300 square meters: Area of land in Taiwan.
+- 50 km wide, 100 km long: Underground base north of Taoyuan Airport.
+- 1 billion: Capacity of underground base.
+- 3 billion: Future capacity of underground base.
+- 27.291° N, 125.868° E: Location of East China Sea earthquake.
+- 209.5 km: Depth of earthquake.
+- 6.5 magnitude: Earthquake magnitude (Tolec report).
+- 6.9 magnitude: USGS reported magnitude.
+- 2011: Year of East China Sea earthquake.
+- 1960s: Black Jesus in Africa.
+- 1947: Zika virus patented.
+- 2015: GM mosquitoes released.
+- 2016: New Republic of USA sworn in (not confirmed).
+- 2040: Babaji to appear (not confirmed).
+- 2025: Classified answer regarding unascended humans.
+- 10,000-20,000 years: Orbital period of 9th planet (Caltech theory).
+- 60 billion miles: Distance of 9th planet (Caltech theory).
+- 10 times Earth's mass: 9th planet mass (Caltech theory).
+- 0.75 Earth masses: Planet X mass (Cobra).
+- 28,019: Signatures on SSP petition (as of 3/20/16).
+- 50-75 to 5,000-7,500: Signature drops.
+- 13: Illuminati blood families.
+- 200: White Draco council.
+- 70 billion: Non-incarnated human souls evacuated Aug 14, 1999.
+- 14, 1999: Mass evacuation of souls.
+- 100 feet: Radius of implant hemisphere.
+- 3: Number of etheric implants.
+- 100 billion galaxies: Number of galaxies.
+- 100 billion stars: Stars per galaxy.
+- 25,000 light years: Distance to Galactic Center.
+- 26,000 years: Galactic cycle.
+- 8 million years: Archangels disconnected.
+- 1,000 years: Average lifespan of giants.
+- 1,000 years: Time for galaxy merger influence.
+- 10 times: Gold to silver price ratio (historical average).
+- $15: Value of 1 oz silver coin (Wilcock).
+- $26: Cost to manufacture 1 oz silver coin.
+- $400: Potential silver price (Wilcock).
+- 81 times: Gold to silver price ratio (current).
+- 59.6 carat: Pink diamond sold.
+- $71 million: Price of pink diamond.
+- 30,000 kilos: Annual diamond production.
+- 15 km: Distance from Jiufen to land in Taiwan.
+- 1300 square meters: Area of land in Taiwan.
+- 50 km wide, 100 km long: Underground base north of Taoyuan Airport.
+- 1 billion: Capacity of underground base.
+- 3 billion: Future capacity of underground base.
+- 27.291° N, 125.868° E: Location of East China Sea earthquake.
+- 209.5 km: Depth of earthquake.
+- 6.5 magnitude: Earthquake magnitude (Tolec report).
+- 6.9 magnitude: USGS reported magnitude.
+- 2011: Year of East China Sea earthquake.
+- 1960s: Black Jesus in Africa.
+- 1947: Zika virus patented.
+- 2015: GM mosquitoes released.
+- 2016: New Republic of USA sworn in (not confirmed).
+- 2040: Babaji to appear (not confirmed).
+- 2025: Classified answer regarding unascended humans.
+- 10,000-20,000 years: Orbital period of 9th planet (Caltech theory).
+- 60 billion miles: Distance of 9th planet (Caltech theory).
+- 10 times Earth's mass: 9th planet mass (Caltech theory).
+- 0.75 Earth masses: Planet X mass (Cobra).
+- 28,019: Signatures on SSP petition (as of 3/20/16).
+- 50-75 to 5,000-7,500: Signature drops.
+- 13: Illuminati blood families.
+- 200: White Draco council.
+- 70 billion: Non-incarnated human souls evacuated Aug 14, 1999.
+- 14, 1999: Mass evacuation of souls.
+- 100 feet: Radius of implant hemisphere.
+- 3: Number of etheric implants.
+- 100 billion galaxies: Number of galaxies.
+- 100 billion stars: Stars per galaxy.
+- 25,000 light years: Distance to Galactic Center.
+- 26,000 years: Galactic cycle.
+- 8 million years: Archangels disconnected.
+- 1,000 years: Average lifespan of giants.
+- 1,000 years: Time for galaxy merger influence.
+- 10 times: Gold to silver price ratio (historical average).
+- $15: Value of 1 oz silver coin (Wilcock).
+- $26: Cost to manufacture 1 oz silver coin.
+- $400: Potential silver price (Wilcock).
+- 81 times: Gold to silver price ratio (current).
+- 59.6 carat: Pink diamond sold.
+- $71 million: Price of pink diamond.
+- 30,000 kilos: Annual diamond production.
+- 15 km: Distance from Jiufen to land in Taiwan.
+- 1300 square meters: Area of land in Taiwan.
+- 50 km wide, 100 km long: Underground base north of Taoyuan Airport.
+- 1 billion: Capacity of underground base.
+- 3 billion: Future capacity of underground base.
+- 27.291° N, 125.868° E: Location of East China Sea earthquake.
+- 209.5 km: Depth of earthquake.
+- 6.5 magnitude: Earthquake magnitude (Tolec report).
+- 6.9 magnitude: USGS reported magnitude.
+- 2011: Year of East China Sea earthquake.
+- 1960s: Black Jesus in Africa.
+- 1947: Zika virus patented.
+- 2015: GM mosquitoes released.
+- 2016: New Republic of USA sworn in (not confirmed).
+- 2040: Babaji to appear (not confirmed).
+- 2025: Classified answer regarding unascended humans.
+- 10,000-20,000 years: Orbital period of 9th planet (Caltech theory).
+- 60 billion miles: Distance of 9th planet (Caltech theory).
+- 10 times Earth's mass: 9th planet mass (Caltech theory).
+- 0.75 Earth masses: Planet X mass (Cobra).
+- 28,019: Signatures on SSP petition (as of 3/20/16).
+- 50-75 to 5,000-7,500: Signature drops.
+- 13: Illuminati blood families.
+- 200: White Draco council.
+- 70 billion: Non-incarnated human souls evacuated Aug 14, 1999.
+- 14, 1999: Mass evacuation of souls.
+- 100 feet: Radius of implant hemisphere.
+- 3: Number of etheric implants.
+- 100 billion galaxies: Number of galaxies.
+- 100 billion stars: Stars per galaxy.
+- 25,000 light years: Distance to Galactic Center.
+- 26,000 years: Galactic cycle.
+- 8 million years: Archangels disconnected.
+- 1,000 years: Average lifespan of giants.
+- 1,000 years: Time for galaxy merger influence.
+- 10 times: Gold to silver price ratio (historical average).
+- $15: Value of 1 oz silver coin (Wilcock).
+- $26: Cost to manufacture 1 oz silver coin.
+- $400: Potential silver price (Wilcock).
+- 81 times: Gold to silver price ratio (current).
+- 59.6 carat: Pink diamond sold.
+- $71 million: Price of pink diamond.
+- 30,000

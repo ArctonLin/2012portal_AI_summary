@@ -1,33 +1,32 @@
 <!-- card: interview/2014-08-01__cobra-interview-with-rob | 2014-08-01 | Cobra Interview with Rob -->
 [Publication date] 2014-08-01
 [Historical events]
-- 2014-07-21/22: Speculation about RV/Event (Cobra cooled down speculation).
-- 2014-08-01: Interview date; Cobra returned from Taiwan activation.
-- 1994: Rwandan Genocide (Archon creation/Black magic ritual).
-- 1996-01: Dark portal opened in Congo region (preparation for invasion).
-- 2014 (recent): Ebola scare (Cabal false flag).
-- 2014 (recent): Ukraine conflict (WWIII attempt).
+- August 1, 2014: Interview date.
+- 1994: Rwandan Genocide (Archon creation).
+- January 1996: Dark portal opened in Congo region.
+- 25,000 years ago: Archons/Chimera established quarantine.
+- 1996: Archon invasion.
 [Entities & roles]
-- Cobra: Interviewee; discusses Chimera, Ebola, and soul contracts.
-- Rob: Interviewer; asks about plane crashes, Ebola, and soul contracts.
-- Chimera: Master rogue group; enslaved reptilians/Dracos; holds strangelet bombs.
-- Archons: Two sides of the same coin as Chimera; focus on spiritual/mind control.
-- Cabal: Using Ebola to install martial law; using plane crashes for fear.
-- Jesuits: Organized Rwandan genocide through network.
-- Break-away civilization: Rich humanity with advanced tech; working with Chimera.
+- Cobra: Emissary of the Light.
+- Rob: Interviewer.
+- Cabal: Using Ebola for fear/martial law; controlling media.
+- Archons: Organized Rwandan genocide; using bio-weapons.
+- Chimera: Master rogue group; enslaved reptilians/Dracos.
+- Zionists: Faction inside Cabal; led by Rothschilds; objective to remove Palestinians.
+- Break-away Civilization: Rich humanity with advanced tech; working with Chimera.
 [Key numbers]
-- 25,000 years: Duration of Cabal/Archon control.
-- 15 minutes to 30 minutes: Time for Resistance to remove elite bomb shelters.
-- 10-50 Hz: Frequency of infra-sound from plasma scalar technology.
-- 3,500 years ago: Reign of Nefertiti.
+- 1400 Palestinians: Death toll in recent conflict (reported).
+- 43 Israelis: Death toll in recent conflict (reported).
+- 25,000 years: Duration of Archon/Chimera control.
+- 15 minutes: Time to remove elite from bomb shelters.
 [Major declarations & commitments]
-- Most plane crashes are deliberate downings by the Cabal.
-- Ebola was developed in bioweapon labs to create fear for martial law.
-- The Cabal's plan for WWIII via Israel/Palestine has failed.
-- The Cabal bases in the solar system (Mars, Moon, Asteroid Belt) have been cleared.
-- The black stone is a dense condensate of strange/dark quark matter.
-- Ireland was part of old Atlantis; strong Goddess energy.
+- The Ebola virus was developed in bioweapon labs to create fear for martial law.
+- The Zionists' objective is to remove Palestinians from Israel completely.
+- The Cabal's plan for WWIII via Israel has failed.
+- The "black shard" is a dense condensate of strange/dark quark matter.
+- The Cabal's "false flag" predictions are just guessing.
+- The Light Forces will not stop patriots from taking action, but coordinated action is needed.
 [Key quotes]
-- "The Cabal wants to create a new conflict by creating a false flag event there."
-- "The Archons and the Chimera group are 2 sides of the same coin."
-- "This black stone is actually a very dense condensate of strange or dark quark matter."
+- "Basically this virus was developed in some of those bioweapon laboratories in Africa. The purpose of this virus is to create enough fear to install Marshall law in the US."
+- "The Zionists are people who have their own agenda and their agenda is the agenda of the dark forces. They are a faction inside the Cabal."
+- "This black stone is actually a very dense condensate of strange or dark quark matter. Potentially very dangerous state of matter which can cause a lot of trouble."

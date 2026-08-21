@@ -1,27 +1,24 @@
 <!-- card: interview/2013-06-25__cobra-interview-with-alexandra-meadors | 2013-06-25 | Cobra Interview with Alexandra Meadors -->
 [Publication date] 2013-06-25
 [Historical events]
-- 1999-2000: Resistance members arrived from Planet X.
-- 11,500 years ago: Great flood; Syria was one of the first places populated.
-- 1989: Poland played a crucial role in the fall of communist regimes.
-- 100 years ago: Cabal started suppressing/destroying challenging historical evidence.
+- June 2013: Summer Solstice; big victory of light forces; beginning of offensive on non-physical planes (Earth).
+- 1999-2000: Resistance members arrived from Planet X (Planet X, Earth).
+- 11,500 years ago: Great flood; Syria populated after (Earth).
 [Entities & roles]
-- Resistance Movement: Members from Planet X; integrating with Galactic Confederation.
-- Agarthan Society: Deeper underground network; making contact with various races.
-- Positive Military: Will back up the will of the people.
-- Jesuits: Controlling the Vatican; negotiating their way out.
-- Rothschilds: Losing power; negotiating.
+- Resistance Movement: Members from Planet X; integrating into Galactic Confederation.
+- Agarthan Society: Deeper underground network; 3 miles and deeper.
+- Cabal: Losing power; top dogs in panic; middle management not aware.
+- Positive Templars: Making moves in England; working with Eastern Alliance.
 [Key numbers]
-- 3 miles: Depth of the underground network.
-- 11,500 years: Time since the great flood.
-- 100 years: Time since Cabal suppression of history began.
+- 3 miles: Depth of the Agarthan network.
+- 161 miles: Distance the magnetic north pole moved in 6 months.
+- 2,135: Number of soul families (debunked by Cobra).
 [Major declarations & commitments]
-- The summer solstice marked a big victory of the light forces.
-- The Resistance is integrating with the Galactic Confederation.
+- The "Event" will not involve two Earths; there is only one Earth.
+- The Cabal will be taken to the central sun.
 - The reincarnation process will be discontinued on this planet.
-- The Cabal will not be allowed to use nuclear weapons.
-- The new financial system will be asset-based and a basket of currencies.
+- The "Event" will take a week or two for the initial transformation.
 [Key quotes]
-- "The summer solstice was very powerful. It marked a big victory of the light forces."
+- "I don’t agree with the idea of separating 2 earths. There is only 1 earth."
 - "The whole reincarnation or recycling process will be discontinued on this planet."
-- "The new financial system is asset based. It will not just include US dollars."
+- "The top dogs are in panic. The middle management is not in panic because they haven’t realized what is going on on the planet."

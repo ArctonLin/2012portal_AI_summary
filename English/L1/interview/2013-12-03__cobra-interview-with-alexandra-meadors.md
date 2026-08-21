@@ -1,28 +1,26 @@
 <!-- card: interview/2013-12-03__cobra-interview-with-alexandra-meadors | 2013-12-03 | Cobra interview with Alexandra Meadors -->
 [Publication date] 2013-12-03
 [Historical events]
-- December 21, 2013: "Return To Innocence" portal opening.
-- December 25, 2013: Window of opportunity closes.
-- August 25, 2013: Peace Portal opening; drastic improvement in Syria.
-- 1975: Opening of a very important portal; start of purification process.
-- 2012: Passed a very important milestone.
+- December 21, 2013: "Return To Innocence" portal opening; main vortex in Glastonbury (Earth).
+- December 25, 2013: End of the window of opportunity (Earth).
+- 1975: Opening of a very important portal; start of the purification process (Earth).
+- 2025: End of the 50-year transformational window (Earth).
 [Entities & roles]
-- Cabal: Soulless ones; lost connection with Source.
-- Jesuits: Controlling the Pope; manipulating.
-- Eastern Alliance: Making steady progress.
-- Resistance Movement: Aware of conditions on the surface.
+- Cabal: Soulless ones; lost connection with soul and Source.
+- Jesuits: Trying to fake the reset; exposed.
+- Eastern Alliance: Aware of the Jesuit plan; will not let it happen.
+- Resistance Movement: Aware of the conditions on the surface.
 [Key numbers]
-- 1975: Year the purification process started.
-- 2025: Year the transformation needs to be complete.
-- 99%: Percentage of human population infested by Invisibles.
-- 2-3 billion: Daily amount Cabal needs to keep the show running.
+- 70%: Percentage of postings/information that is disinformation or inaccurate.
+- 99%: Percentage of human population infested by "Invisibles".
+- 144,000: Critical mass.
+- 50 years: Duration of the transformational window (1975-2025).
 [Major declarations & commitments]
-- The "Return To Innocence" portal is a very important activation.
-- The Cabal are the soulless ones.
-- The new financial system will be a basket of currencies.
-- The Cabal will not be allowed to use nuclear weapons.
-- The Event will be a physical and non-physical objective event.
+- The "Event" will not be faked.
+- The Jesuits are trying to fake the reset.
+- The "Event" will happen when the bonds are triggered.
+- The "Event" will not happen before the non-physical planes are cleared.
 [Key quotes]
-- "The Cabal are the soulless ones, because they lost their connection with their soul and with the Source."
-- "The new financial system will be a basket of currencies."
-- "The Event will be a physical and non-physical objective event."
+- "The cabal are the soulless ones, because they lost their connection with their soul and with the Source."
+- "It’s not possible to fake the event."
+- "The Stargate, the time window for the whole process, started in 1975 and will be over in 2025."

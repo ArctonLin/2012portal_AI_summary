@@ -2,33 +2,30 @@
 [Publication date] 2020-01-01
 [Historical events]
 - 1996: Draco invasion (Cobra).
-- August 11, 1999: Interdimensional portal opened (Cobra).
+- 1999: Interdimensional portal reversed invasion trend (Cobra).
 - 2019: Key Lightworkers made crucial mistakes (Cobra).
 - December 21, 2020: Age of Aquarius Final Activation meditation; Jupiter-Saturn grand conjunction (Cobra).
 - 2021: Dark forces will try to hijack timelines (Cobra).
 [Entities & roles]
-- Chimera: Fleet is gone; underground bases being cleared; "Spider Queen" is gone.
+- Cobra: Interviewee, explains Dec 21 meditation and galactic situation.
+- Light Forces: Will begin deconstructing matrix if critical mass reached.
+- Chimera: Fleet gone; underground bases being cleared.
 - Archons: Still guarding souls in reincarnation cycle.
-- Galactic Confederation: Showing ships more; preparing for disclosure.
-- M87 Galaxy: Source of cosmic love energy; Goddess Iona originates from there.
-- Jesuits: Trying to create civil war; polarizing population.
-- Bill Gates/Dr. Fauci: Not arrested yet.
-- Queen of England: Connected to Rothschilds; sees herself as "good guy" against depopulation.
+- M87 Galaxy: Source of cosmic love energy; Goddess Iona originates here.
+- Jesuits/Black Nobility: Aware of Event; acting out of despair.
 [Key numbers]
 - 200 years: Time since last conjunction in air sign.
 - 600-800 years: Closest grand conjunction.
 - 144,000: Critical mass.
-- 25,000 years: Time of control by dark technologies.
-- 25-26%: Chance of US civil war.
+- 25,000 years: Duration of matrix control.
+- 2025: Event expected before end of this year.
 [Major declarations & commitments]
-- The Event is extremely unlikely on December 21, 2020, but the meditation will stabilize the timeline.
-- The Chimera fleet is gone; they cannot go beyond Low Earth Orbits.
-- The "Spider Queen" is gone; dark females worship a thought form.
-- The US election outcome will not influence the overall plan for planetary liberation.
-- The mass arrests plan is not happening yet; it will be public knowledge when it occurs.
-- The monoliths are part of an artistic project and a sign of incoming Aquarius energy.
-- The Event will be triggered by a Galactic pulse, not a solar flash.
+- The Dec 21, 2020 meditation is the entering trigger point for the Age of Aquarius.
+- If critical mass is reached, deconstruction of the matrix construct begins.
+- The Event is extremely unlikely on Dec 21, 2020.
+- The Chimera fleet is gone; only underground bases remain.
+- The US President is not part of the mass arrest plan.
 [Key quotes]
-- "The Chimera fleet is gone. It has been removed."
+- "This is not just a regular grand conjunction... it is the first conjunction in an air sign... in about 200 years."
+- "The ships are gone. The Chimera fleet is gone. It has been removed."
 - "The planetary liberation plan, the Event plan, the mass arrest plan does not include the president of the United States."
-- "The Event will not be a solar flash. It will be, I would say, a Galactic pulse... So when the Event happens, there will be no global cataclysm."

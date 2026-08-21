@@ -1,133 +1,61 @@
 <!-- card: interview/2016-01-26__q-a-with-cobra-on-the-promise-revealed | 2016-01-26 | Q&A with Cobra on The Promise Revealed -->
 [Publication date] 2016-01-26
 [Historical events]
-- Late 1970s to 2001-2002: Cloning for ritual use occurred.
-- 2014: Anna von Reitzinger letter circulated.
-- 2015-12-31: Skyscraper fire in Dubai.
-- 2016-01-25: Cobra posted about the 9th planet (Resistance planet).
-- 2016-01-26: Q&A interview conducted.
-- (time not stated): Fall of Atlantis.
-- (time not stated): Pre-WWII invasion of Ethiopia by Italian troops.
-- (time not stated): Disappearance of Emperor Haile Selassie.
-- (time not stated): Fatima incident.
-- (time not stated): Recent radiation spikes in the USA (Nov-Dec).
-- (time not stated): Recent earthquakes off Malibu and Alaska.
-- (time not stated): Recent death of 4 Hillary Clinton Secret Service agents in a car crash.
-- (time not stated): Recent death of comedian Bernie Mac.
-- (time not stated): Recent North Korea hydrogen bomb test claim.
+- Prehistoric: Original singularity created a hyper-dimension tunnel for continuous energy flow.
+- Post-Atlantis: Göbekli Tepe society developed with strong connections to Draco Overlords.
+- Late 1970s – 2001/2002: Cloning for ritual use occurred in Cabal programs.
+- 2014: Anna von Reitzinger letter circulated calling for end to financial system.
+- 2015-12-31: Skyscraper fire in Dubai (New Year's Eve).
+- 2016-01 (recent): North Korea claimed hydrogen bomb test.
+- 2016-01 (recent): 4 Hillary Clinton Secret Service agents died in car crash.
+- 2016-01 (recent): Radiation spikes observed across the U.S.
+- 2016-01 (recent): Earthquakes off Malibu and Alaska.
+- 2016-01 (recent): Increased volcanic activity and weather disruptions attributed to the galactic pulse.
+- Future: Negative vortexes will be dissolved or transferred to positive ones.
+- Future: Implants and plasma networks will be removed, allowing stronger higher-self connections.
+- Future: Black goo will be completely removed from the planet at the time of the event.
+
 [Entities & roles]
 - Cobra: Resistance Movement representative; provides updates on financial reset, control matrix, and historical events.
-- Rob: Interviewer; host of "Victory of Light"; discusses Nibiru, vaccines, and financial systems.
-- Alex Collier: Attended Rob's conference; stated frequency fence is down.
-- Randy Kramer: SSP figure; claims Nibiru returns every 3600 years.
-- Billy Meyers: Author of notes regarding Nibiru orbit changes.
-- Len Horowitz: Dentist/virologist; uncovered AIDS origins; expert on Cabal vaccination plans.
-- Dr. Frank Strange: Scientist who transferred from inner earth to Venus with Commander Valiant Thor.
-- Commander Valiant Thor: Pleiadian commander.
-- Fred Bell: Scientist/priest; developed body-scanning machine controlled by Jesuits; worked with Rob on crystals.
-- The Cabal: Negative elite; income from oil; funding minions; responsible for Dubai fire and North Korea test.
-- The Jesuits: Behind Italian invasion of Ethiopia; controlled Fred Bell's technology.
-- The Chimera: Created A.I. as a control tool; control deep underground space center on Maui.
-- The Archons: Manipulated sexual energy; linked to Vatican.
-- The Pleiadians: Energy present in Norway; monitored by negative military bases.
-- The Resistance Movement (RM): Mastered A.I.; will eradicate black goo; monitors vortexes.
-- The Galactic Federation/Council: Implied benevolent forces; using positive plasma network.
-- The Draco Overlords: Connected to Göbekli Tepe society.
-- The Roman Catholic Church: Origin exposed by Fatima's 3rd prophecy.
-- The Rosicrucians: Taken over but contain positive information; source of "morning dew" code.
-- The Order of the Golden Dawn: Split from Rosicrucians.
-- The Morning Star: Order referring to Venus.
-- The Mui-hai: Chinese entity working with a trading platform individual.
-- The WHO: Implied in vaccination context.
-- The Negative Military: Conducted radiation experiments; controls black goo; monitors Pleiadians in Norway.
-- The Light Forces: Removing hostile elements in Europe; using positive plasma.
-- The Galactic Federation: Implied in benevolent confederation.
-- The Andromidans: Contacted by Fred Bell.
-- The Agarthan Network: Benevolent network.
-- The Galactic Federation Council: Implied.
-- The Galactic Federation: Implied.
-- The Galactic Federation Council: Implied.
-- The Galactic Federation: Implied.
-- The Galactic Federation Council: Implied.
-- The Galactic Federation: Implied.
-- The Galactic Federation Council: Implied.
-- The Galactic Federation: Implied.
-- The Galactic Federation Council: Implied.
-- The Galactic Federation: Implied.
-- The Galactic Federation Council: Implied.
-- The Galactic Federation: Implied.
-- The Galactic Federation Council: Implied.
-- The Galactic Federation: Implied.
-- The Galactic Federation Council: Implied.
-- The Galactic Federation: Implied.
-- The Galactic Federation Council: Implied.
-- The Galactic Federation: Implied.
-- The Galactic Federation Council: Implied.
-- The Galactic Federation: Implied.
-- The Galactic Federation Council: Implied.
-- The Galactic Federation: Implied.
-- The Galactic Federation Council: Implied.
-- The Galactic Federation: Implied.
-- The Galactic Federation Council: Implied.
-- The Galactic Federation: Implied.
-- The Galactic Federation Council: Implied.
-- The Galactic Federation: Implied.
-- The Galactic Federation Council: Implied.
-- The Galactic Federation: Implied.
-- The Galactic Federation Council: Implied.
-- The Galactic Federation: Implied.
-- The Galactic Federation Council: Implied.
-- The Galactic Federation: Implied.
-- The Galactic Federation Council: Implied.
-- The Galactic Federation: Implied.
-- The Galactic Federation Council: Implied.
-- The Galactic Federation: Implied.
-- The Galactic Federation Council: Implied.
-- The Galactic Federation: Implied.
-- The Galactic Federation Council: Implied.
-- The Galactic Federation: Implied.
-- The Galactic Federation Council: Implied.
-- The Galactic Federation: Implied.
-- The Galactic Federation Council: Implied.
-- The Galactic Federation: Implied.
-- The Galactic Federation Council: Implied.
-- The Galactic Federation: Implied.
-- The Galactic Federation Council: Implied.
-- The Galactic Federation: Implied.
-- The Galactic Federation Council: Implied.
-- The Galactic Federation: Implied.
-- The Galactic Federation Council: Implied.
-- The Galactic Federation: Implied.
-- The Galactic Federation Council: Implied.
-- The Galactic Federation: Implied.
-- The Galactic Federation Council: Implied.
-- The Galactic Federation: Implied.
-- The Galactic Federation Council: Implied.
-- The Galactic Federation: Implied.
-- The Galactic Federation Council: Implied.
-- The Galactic Federation: Implied.
-- The Galactic Federation Council: Implied.
-- The Galactic Federation: Implied.
-- The Galactic Federation Council: Implied.
-- The Galactic Federation: Implied.
-- The Galactic Federation Council: Implied.
-- The Galactic Federation: Implied.
-- The Galactic Federation Council: Implied.
-- The Galactic Federation: Implied.
-- The Galactic Federation Council: Implied.
-- The Galactic Federation: Implied.
-- The Galactic Federation Council: Implied.
-- The Galactic Federation: Implied.
-- The Galactic Federation Council: Implied.
-- The Galactic Federation: Implied.
-- The Galactic Federation Council: Implied.
-- The Galactic Federation: Implied.
-- The Galactic Federation Council: Implied.
-- The Galactic Federation: Implied.
-- The Galactic Federation Council: Implied.
-- The Galactic Federation: Implied.
-- The Galactic Federation Council: Implied.
-- The Galactic Federation: Implied.
-- The Galactic Federation Council: Implied.
-- The Galactic Federation: Implied.
-- The Galactic
+- Rob (Interviewer): Host of "Victory of Light"; asks questions regarding Nibiru, vaccines, and specific incidents.
+- Resistance Movement (RM): Has mastered AI and black goo in their environment; will eradicate black goo on Earth.
+- Chimera: Created Artificial Intelligence (A.I.) as a tool for planetary control.
+- Cabal: Target of financial attrition via oil price drops; responsible for Dubai fire and North Korea test to instill fear; funds minions to keep them in line.
+- Jesuits: Behind the Italian invasion of Ethiopia to impose religious programming.
+- Pleiadians: Have strong energy presence in Norway; monitored by negative military bases.
+- Draco Overlords: Had strong connections with the Göbekli Tepe society.
+- Negative Military: Conducted experiments causing radiation spikes; controls black goo in secret programs.
+- Light Forces: Creating positive plasma networks; working on removing hostile elements in Europe.
+- Joseph Smith: Had genuine contacts initially, which were later distorted.
+- Emperor Haile Selassie: Taken by negative forces after being quarantined by communists.
+
+[Key numbers]
+- 9th planet: Described as a blue methane gas water planet with rectangular glass windows.
+- 3600 years: Cycle for Nibiru's return (per Randy Kramer).
+- 1200 years: Time until Nibiru's next arrival (per Randy Kramer).
+- 26,000 years: Cycle for the galactic pulse.
+- 10 pixels: Gradient level to see windows on the 9th planet.
+- $50: Cost of a small radiation monitoring app/device.
+- 10%: Percentage of Göbekli Tepe monuments discovered/excavated.
+- 16th color: Code name for the essence referred to as "morning dew."
+- 4: Number of Hillary Clinton Secret Service agents who died.
+- 21: Number of clones claimed to be killed by Dick Cheney (unverified claim in text).
+- 9–16: Age range of a boy used as a sex slave in Cabal parties (per anonymous SSP source).
+
+[Major declarations & commitments]
+- No celestial body will cause catastrophic tectonic activity or impact Earth in the near future.
+- Radiation spikes are real but not extremely dangerous; caused by negative military experiments, not Fukushima.
+- Oil prices are being lowered to bring the Cabal to their knees.
+- People should take money out of banks to avoid giving free loans to the Cabal and to protect against microchip tracking.
+- Vaccines are deadly poison; no microchips are currently in them, but side effects must be fought.
+- Black goo exists only in controlled negative military environments and will be eradicated at the event.
+- Cloning for rituals stopped after 2001/2002, but rituals involving non-clones still occur.
+- The North Korea "hydrogen bomb" was a regular underground nuclear test devised by the Cabal to create fear.
+- The Dubai skyscraper fire was a Cabal operation to lower planetary vibrational frequency.
+- The third Fatima prophecy was not revealed because it exposed the origin of the Roman Catholic Church.
+- Continue weekly event meditations and meditations for Europe.
+
+[Key quotes]
+- "The A.I. is not a problem. The main problem is the free will of beings that went on the negative side."
+- "Vaccines are deadly poison. This is not something to laugh about. It’s something to fight against severely."
+- "The center of the planet is a portal. And the energy is coming from that portal."
