@@ -24,7 +24,7 @@
 
 [Resistance Movement](Resistance%20Movement)
 
-[Ashtar Command](Ashtar Command)
+[Ashtar Command](Ashtar%20Command)
 
 [Galactic Federation](Galactic%20Federation)
 
