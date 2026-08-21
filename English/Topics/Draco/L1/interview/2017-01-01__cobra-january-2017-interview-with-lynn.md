@@ -1,0 +1,5 @@
+<!-- topic: Draco | doc: interview/2017-01-01__cobra-january-2017-interview-with-lynn | 2017-01-01 | Cobra January 2017 Interview with Lynn | keywords: draco -->
+[Relevant content] Cobra addressed a question about a "high ranking Draconian" being dismantled into the central sun, clarifying that the dissolution of an entity in the Central Sun does not necessarily reflect in an individual's inner state. Cobra denied the claim that "Pindar" is the king of the Dracos, stating that the being with that name has been removed from the Solar System. Cobra also identified Thuban (Alpha-Draconis) as the main star in the Draco constellation, noting that Changjie, the creator of traditional Chinese characters, had contact with positive beings from the Thuban star system.
+[Key quotes] "So if a certain entity, negative entity or I would say Draconian or an Archon would be dissolved in the Central sun, that does not mean necessarily that would reflect in your inner state."
+"I would not agree with the information that Pindar is the king of the Dracos."
+"Thuban, Alpha-Draconis that is the main star in the Draco constellation."

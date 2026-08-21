@@ -1,0 +1,5 @@
+<!-- topic: Reptilian | doc: interview/2017-05-03__cobra-interview-by-rob-potter | 2017-05-03 | Cobra Interview by Rob Potter | keywords: reptilian -->
+[Relevant content] COBRA explained that the death experience for Reptilian souls differs from humans; an average Reptilian ends up on the lower plasma, etheric, or astral planes, while highly developed souls may skip these planes. [reported] COBRA confirmed that most Draco and Reptilian forces have been cleared out, with their influence on the planetary situation significantly reduced. [reported] COBRA stated that the number of Draco and Reptilian forces on Earth has been decreased by at least 95% in the last few years. [reported]
+[Key quotes] "So for an average Reptilian, he will end up on the lower plasma plane or lower etheric plane or lower astral plane."
+"Regarding the Reptilians, the Draco, that you have just mentioned, most of those have been cleared out and they are not having as much influence on the planetary situation anymore."
+"I would say that the number of Draco and Reptilian forces on Earth have been decreased by at least 95% in the last few years."

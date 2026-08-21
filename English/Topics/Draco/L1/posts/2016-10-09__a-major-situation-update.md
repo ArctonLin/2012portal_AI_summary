@@ -1,0 +1,3 @@
+<!-- topic: Draco | doc: posts/2016-10-09__a-major-situation-update | 2016-10-09 | A Major Situation Update | keywords: draco -->
+[Relevant content] The post states that the Chimera has ordered their remaining "Draco minions" to activate all remaining scalar plasma weapons secretly installed by the Draco into the majority of low Earth orbit (LEO) satellites. These weapons are targeting awakened Lightwarriors and Lightworkers.
+[Key quotes] "Also, the Chimera has ordered their remaining Draco minions to activate all remaining scalar plasma weapons which have been secretly installed by the Draco into the majority of all low Earth orbit (LEO) satellites."

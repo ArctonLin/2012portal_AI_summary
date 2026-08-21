@@ -1,0 +1,5 @@
+<!-- topic: Draco | doc: interview/2016-03-07__cobra-interview-on-galactic-super-wave-and-event | 2016-03-07 | Cobra Interview on Galactic Super-wave and Event Timing | keywords: draco -->
+[Relevant content] Cobra identifies Confucius as a "Draconian" who attempted to express wisdom through a limited, hierarchical point of view. He states that Pangu, Fu Xi, and NuWa (primogenitors of the Chinese nation) were "positive Draconians," mostly from Thuban (Alpha Draconis). He identifies the Sanxingdui civilization as the main anchor point of an extraterrestrial faction from Thuban (alpha Draconis), described as the most prominent faction of the positive Draconians.
+[Key quotes] "He was a Draconian who tried to express wisdom through his limited, hierarchical point of view."
+"Yes they were positive Draconians, mostly from Thuban (Alpha Draconis)"
+"Sanxingdui civilization was the main anchor point of an extraterrestrial faction from Thuban (alpha Draconis), the most prominent faction of the positive Draconians."

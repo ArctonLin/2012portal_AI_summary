@@ -1,0 +1,3 @@
+<!-- topic: Draco | doc: interview/2015-09-23__q-a-with-cobra-on-the-promise-revealed | 2015-09-23 | Q&A with Cobra on The Promise Revealed | keywords: draco -->
+[Relevant content] [reported] COBRA describes the Reptilian/Draco faction as having a strong impact throughout the planet and working hand in hand with criminal syndicates on the surface.
+[Key quotes] "There was, of course, the Reptilian/Draco faction, who has a strong impact throughout the planet. Actually, those reptilian factions had contact with criminal elements on the surface... They were working hand in hand with those reptilians and with the Draco’s."

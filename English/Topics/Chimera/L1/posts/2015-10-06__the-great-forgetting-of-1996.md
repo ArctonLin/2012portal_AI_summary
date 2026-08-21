@@ -1,0 +1,4 @@
+<!-- topic: Chimera | doc: posts/2015-10-06__the-great-forgetting-of-1996 | 2015-10-06 | The Great Forgetting of 1996 | keywords: chimera -->
+[Relevant content] During the 1996 invasion, the Archons and Chimera placed a negative barrier at the heliopause. All beings within the Solar System were implanted with plasma implants tied to Chimera's AI network (the Veil). The Chimera controls the strangelet/toplet bomb mechanisms that cut connections to Ascended beings. The Chimera locked many physical Pleiadian hostages in prisons on the surface in Syria and Afghanistan, captured during the 1996 invasion, to block the Pleiadian fleet's progress toward Earth.
+[Key quotes] "During the invasion of 1996, the Archons and the Chimera have put a negative barrier at the edge of the Solar System (the heliopause)."
+"Years ago, the Chimera has locked many physical Pleiadian hostages in prisons on the surface in Syria and Afghanistan."

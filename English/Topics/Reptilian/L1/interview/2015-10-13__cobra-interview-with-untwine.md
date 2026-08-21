@@ -1,0 +1,4 @@
+<!-- topic: Reptilian | doc: interview/2015-10-13__cobra-interview-with-untwine | 2015-10-13 | Cobra Interview with Untwine | keywords: reptilian -->
+[Relevant content] [reported] Cobra stated that positive forces on the etheric and astral planes are working under cover because there is still much of a reptilian presence. He confirmed that in 1996, there was an actual presence of strong reptilian and draco forces throughout the whole solar system on every plane.
+[Key quotes] "It is a little bit early to speak about it because the positive forces on the etheric and astral planes are now pretty much working under cover, because there is still much of a reptilian presence."
+"There was an actual presence of strong reptilian and draco forces in 1996 throughout the whole solar system, on every plane, physical plasma etheric astral and mental planes."

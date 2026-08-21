@@ -1,0 +1,4 @@
+<!-- topic: Draco | doc: interview/2015-07-15__cobra-q-a-with-rob-on-the-promise-revealed | 2015-07-15 | Cobra Q&A with Rob on The Promise Revealed | keywords: draco -->
+[Relevant content] [reported] COBRA identifies Henry Kissinger as a Draconian incarnated in a human body. COBRA states that the Chimera group developed nanites millions of years ago and that the Draco reptilian alliance was completely infected by this, which was a means of control the Chimera had over the Draco-Reptilian Alliance until very recently.
+[Key quotes] "He is a Draconian incarnated in a human body."
+"The Chimera group has developed nanites millions ago and Draco reptilian alliance was completely infected by this. This was one of the means of control that the Chimera group had over the Draco-Reptilian Alliance until very recently..."

@@ -1,0 +1,4 @@
+<!-- topic: Chimera | doc: posts/2016-06-03__joint-cobra-corey-goode-interview-by | 2016-06-03 | Joint Cobra / Corey Goode Interview by Rob Potter Part 2 | keywords: chimera -->
+[Relevant content] [reported] Cobra stated that the Chimera group invented artificial intelligence millions of years ago and spread its infection through scalar plasma networks. The Chimera group maintains the plasma virus/signal using people who are most mind-controlled and under plasma influence.
+[Key quotes] "And the Chimera group has invented so-called artificial intelligence millions upon millions of years ago and has tried to spread its infection throughout the galaxy through scalar plasma networks."
+"And, again, it was not 100% successful because the Chimera group have their own means in maintaining this, and the easiest way for them to maintain this is with people who are the most mind-controlled and the most under the plasma influence."

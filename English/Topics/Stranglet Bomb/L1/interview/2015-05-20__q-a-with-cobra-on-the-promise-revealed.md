@@ -1,0 +1,4 @@
+<!-- topic: Stranglet Bomb | doc: interview/2015-05-20__q-a-with-cobra-on-the-promise-revealed | 2015-05-20 | Q&A with Cobra on The Promise Revealed | keywords: stranglet bomb, stranglet -->
+[Relevant content] Rob asks why the galactics do not neutralize "stranglet plasmatic and toplet bombs" given their advanced technology. Cobra states they do not have the technology to do so. Rob asks what prevents the dark forces from exploding the "stranglet bombs" if they feel their time is up; Cobra replies that the dark forces do not believe it is over until it is really over.
+[Key quotes] "Someone asked, why don’t the galactics just neutralize the stranglet plasmatic and toplet bombs considering they have advanced technologies?"
+"It is because, I will put it this way, they don’t really believe it’s over until it’s really over."

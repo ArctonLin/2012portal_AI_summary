@@ -1,0 +1,3 @@
+<!-- topic: Draco | doc: interview/2016-11-16__cobra-prepare-for-change-november-interview | 2016-11-16 | Cobra Prepare For Change November Interview | keywords: draco -->
+[Relevant content] A questioner reported feeling the connection break when focusing mental energies to prevent "dark draconian Reptilian energies" from interfering with group meditations. Cobra advised that the best method for protection is to focus on the purpose of the meditation rather than being distracted by Archons or other negative forces.
+[Key quotes] "But when I focused my energies on not allowing the dark draconian Reptilian energies to interfere, I felt the connection break immediately and almost painfully leaving me disturbed and slightly dazed for a few hours."

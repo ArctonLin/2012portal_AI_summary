@@ -1,0 +1,3 @@
+<!-- topic: Chimera | doc: meeting/2022-12-16__ascension-conference-report-and-short | 2022-12-16 | ascension-conference-report-and-short | keywords: chimera -->
+[Relevant content] [reported] During the Paris Ascension Conference, Cobra stated that Chimera has the technology for particle accelerators as large as a solar system, which the dark forces built on Orion and brought to Earth to prevent Light Forces from intervening.
+[Key quotes] "Chimera has the technology. There are particle acceleration devices as large as a solar system. The dark forces built them on Orion and brought them to Earth."

@@ -1,0 +1,5 @@
+<!-- topic: Draco | doc: posts/2024-02-18__planetary-situation-update-and-phoenix | 2024-02-18 | Planetary Situation Update and Phoenix Conference Report | keywords: draco -->
+[Relevant content] The Illuminati Breakaway Complex (IBC) has approximately 18 million members, mainly Reptilian and Draco, in humanoid bodies on the physical plane, scattered throughout bases in the Solar system. The main physical stronghold of the IBC is a network of underground tunnels in Western Africa containing about 100,000 Reptilians and Dracos in humanoid bodies. A smaller stronghold in a tunnel network beneath Colombia and northwestern Brazil contains about 15,000 Reptilians and Dracos in humanoid bodies.
+[Key quotes] "The IBC has currently about 18 million mainly Reptilian and Draco members in humanoid bodies on the physical plane...
+On the physical plane, the main stronghold of the IBC is a network of underground tunnels in Western Africa... This network consists of about 100,000 Reptilians and Dracos in humanoid bodies.
+Another smaller stronghold is in a tunnel network beneath Colombia and northwestern Brazil, with about 15,000 Reptilians and Dracos in humanoid bodies."

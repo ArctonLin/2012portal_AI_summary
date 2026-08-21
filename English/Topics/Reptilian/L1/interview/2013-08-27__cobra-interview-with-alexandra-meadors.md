@@ -1,0 +1,5 @@
+<!-- topic: Reptilian | doc: interview/2013-08-27__cobra-interview-with-alexandra-meadors | 2013-08-27 | Cobra Interview with Alexandra Meadors | keywords: reptilian -->
+[Relevant content] [reported] Cobra states that Reptiles started a massive campaign starting in 1996 to create a false light hierarchy, but Ascended Masters are not part of this. He confirms that masses of reptilians are being escorted daily out of implant hemispheres toward destinations where they cross into the light or go to the central sun. This clearing process was drastically accelerated in August.
+[Key quotes] "Reptiles have started a massive campaign. Starting in 1996. They are not part of the false light."
+"Yes, this is happening daily. This is something that is really happening every day. I will not comment on the numbers. There are masses being escorted daily out of the implant hemispheres toward certain destinations and they are receiving guidance and cross into the light and those that refuse go to the central sun."
+"Yes. The clearing process has been drastically accelerated in August and will be further accelerated in September."

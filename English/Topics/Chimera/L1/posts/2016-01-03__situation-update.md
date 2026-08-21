@@ -1,0 +1,4 @@
+<!-- topic: Chimera | doc: posts/2016-01-03__situation-update | 2016-01-03 | Situation Update | keywords: chimera -->
+[Relevant content] The Kuiper Ring, a network of physical Chimera bases in the outer Solar System, has been almost completely removed. The last remnants of the Chimera fleet are in disarray, hiding near plasmatic nodes with high concentrations of strangelet and toplet bombs, using them as shielding. As Chimera power decreases, the Resistance will release intel to positive factions without fear of interception or retaliation. The Chimera invented robots and nanites to control reptilians and humans.
+[Key quotes] "Kuiper Ring, the network of physical Chimera bases in the outer Solar System, has been almost completely removed."
+"Cobra was talking about robots and nanites (miniature robots) which were invented by the Chimera to control reptilians and humans."

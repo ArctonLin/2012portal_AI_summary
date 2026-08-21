@@ -1,0 +1,4 @@
+<!-- topic: Draco | doc: interview/2020-01-01__cobra-interview-with-debra-on-age-of-aquarius-ac | 2020-01-01 | Cobra interview with Debra on Age of Aquarius activation | keywords: draco -->
+[Relevant content] [reported] Cobra explained that the network of underground military bases was completed in 1995 and the Draco invasion was triggered on January 11th, 1996. He stated that the Light Forces have been working to counteract this invasion since 1996. He also noted that on August 11th, 1999, a huge interdimensional portal opened which reversed the trend of the Draco invasion.
+[Key quotes] "This network of underground bases was completed in 1995 and the Draco invasion was triggered on January 11th of 1996."
+"On August 11th, 1999, a huge interdimensional portal opened which actually reversed the trend of the Draco invasion."

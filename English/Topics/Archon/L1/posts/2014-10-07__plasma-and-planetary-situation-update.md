@@ -1,0 +1,4 @@
+<!-- topic: Archon | doc: posts/2014-10-07__plasma-and-planetary-situation-update | 2014-10-07 | Plasma and the Planetary Situation Update | keywords: archon -->
+[Relevant content] The plasmatic plane is the hidden location where the Archons have concealed most of their darkness. This is the point where the Chimera and the Archons are joining forces to defend their quarantine Earth. One purpose of the Archons and their Jesuit puppets in their occult war is to associate the name of Goddess Isis with their dark creation (ISIS) in the minds of the masses.
+[Key quotes] "Plasmatic plane between the physical and etheric is the hidden location where the Archons have concealed most of their darkness and it was their utmost secret."
+"One purpose of the Archons and their Jesuit puppets in their occult war against the people is to associate the name of Goddess Isis with their dark creation in the minds of the masses."

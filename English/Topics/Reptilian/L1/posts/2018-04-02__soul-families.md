@@ -1,0 +1,3 @@
+<!-- topic: Reptilian | doc: posts/2018-04-02__soul-families | 2018-04-02 | Soul Families | keywords: reptilian -->
+[Relevant content] The most effective way to control female sexual energy in a society is to infiltrate a critical mass of Orion/Draco/Reptilian sexual predators. Archons have used this method throughout human history to create a Pavlovian reflex in the subconscious female psyche, cutting off Goddess energy.
+[Key quotes] "The most effective way to control female sexual energy in a given society is to infiltrate a critical mass of Orion/Draco/Reptilian sexual predators in that society and let them loose."

@@ -1,0 +1,4 @@
+<!-- topic: Draco | doc: interview/2016-12-02__cobra-interview-by-iruka-umino | 2016-12-02 | Cobra Interview by Iruka Umino | keywords: draco -->
+[Relevant content] Cobra listed specific public figures identified as Draconians, including Bill Clinton, Angela Merkel, Mario Draghi, Cheney, Rumsfeld, Henry Kissinger, most of the Rockefeller families, and Shinzo Abe. Cobra stated that Draconians are generally not interested in music and art, making it difficult to identify famous musicians in this sector.
+[Key quotes] "Bill Clinton, Angela Merkel, Mario Draghi, Cheney, Rumsfeld and Henry Kissinger.Most of Rockefeller families also. Shinzo Abe in Japan is Draconian too, though he would not be aware of it himself."
+"As Draconian is not interested in music and art, I cannot think of famous persons in this sector."

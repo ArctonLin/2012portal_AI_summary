@@ -1,0 +1,5 @@
+<!-- topic: Archon | doc: posts/2013-03-10__implanthemispheres-and-galactic-central | 2013-03-10 | implanthemispheres and galactic central | keywords: archon -->
+[Relevant content] Incarnated human beings received etheric implants (the "veil of forgetfulness") from Archons just before incarnation. These implants are multidimensional black holes that create an interference pattern keeping consciousness within the Matrix. The existence of implant hemispheres was a main secret of Archons and the reason for their confidence in the last 25,000 years. The Archons designed trauma-based mind programming because negative entities attach to the energy field during traumatic experiences.
+[Key quotes] "Each incarnated human being has received etheric implants by the Archons just before incarnating – the so called veil of forgetfulness."
+"Until now, the existence of implant (hemi)spheres was one of the main secrets of Archons and the reason of their confidence in the last 25,000 years."
+"This is the main reason the Archons have designed trauma-based mind programming."

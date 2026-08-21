@@ -1,0 +1,4 @@
+<!-- topic: Archon | doc: interview/2015-01-01__cobra-interview-on-prepare-for-change-radio | 2015-01-01 | Cobra interview on Prepare for Change Radio | keywords: archon -->
+[Relevant content] [reported] The Red Dragon families originated in the Ming Dynasty when they began to see the danger of the Archon invasion in China. [reported] One of the major operations of the Archons is maintaining the illusion that everything stays the same until the final breakthrough. [reported] One of the entities referred to as Satan/Lucifer has been removed from the planet and gone to the central sun, while the other has crossed to the light.
+[Key quotes] "The real Red Dragon families actually originated in the Ming Dynasty when they were beginning to see the danger of the Archon invasion in China."
+"This is one of the major operations of the Archons. They keep maintaining the illusion that everything stays the same"

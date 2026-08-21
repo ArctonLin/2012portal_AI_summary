@@ -1,0 +1,5 @@
+<!-- topic: Draco | doc: interview/2015-06-24__cobra-q-a-with-rob-on-the-promise-revealed | 2015-06-24 | Cobra Q&A with Rob on The Promise Revealed | keywords: draco -->
+[Relevant content] [reported] COBRA states that Dragons as entities were real and lived on Earth for many millions of years as part of animal evolution. Some evolved beyond animal evolution and were part of the Draconian archetype, with both positive and negative Draconian archetypes present on the planet. COBRA confirms that positive reptilians of the dragon type exist.
+[Key quotes] "Dragons as entities were real. They were living here for, actually for many millions of years – part of the animal evolution. Some of them evolved beyond animal evolution and many of them were part of the Draconian archetype."
+"And of course we have the positive Draconian archetype and the negative Draconian archetype. And both were present on the planet."
+"Yes, there are positive reptilians out there. There are not many, but they do exist."

@@ -1,0 +1,3 @@
+<!-- topic: Archon | doc: interview/2016-07-01__round-table-with-red-dragon-ambassador-cobra-ran | 2016-07-01 | Round table with Red Dragon Ambassador Cobra, Randy Cramer and Rob Potter | keywords: archon -->
+[Relevant content] [reported] Rob Potter stated that the Zeta Reticulian group, run by Reptilians, has manipulated humanity on many worlds, referencing the Archon invasion as part of a long-term secrecy plan.
+[Key quotes] "The Zeta Reticulian group that was run by the Reptilian secretly behind the scene in another group called the Syndicate of the Omegans have done this on many worlds and they remain on the scene for hundreds of years manipulating humanity creating different systems as Cobra talked about the Archon invasion..."

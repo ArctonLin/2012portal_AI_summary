@@ -1,0 +1,5 @@
+<!-- topic: Archon | doc: posts/2013-05-22__event-horizon-every-window-of | 2013-05-22 | event horizon every window of | keywords: archon -->
+[Relevant content] The non-physical negative forces, including Archons, are gathered close to the surface of the planet to prevent Light from entering. Archons can easily trigger traumatized individuals (mind-programmed via MK-Ultra and Monarch) from the etheric and astral planes to behave violently as part of their endgame. Archons use etheric and astral HAARP scalar electromagnetic field technology to maintain the "primary anomaly." They use wormholes made of this distorted anomalous field to travel between implant hemispheres.
+[Key quotes] "Those traumatized individuals could be easily triggered by the Archons from the etheric and astral planes as part of their endgame to start behaving violently towards themselves and others."
+"The Archons are still using their etheric and astral HAARP scalar electromagnetic field technology to keep maintaining the so-called primary anomaly."
+"The non-physical Archons still use wormholes made of this distorted anomalous field to freely travel from one implant hemisphere to another."

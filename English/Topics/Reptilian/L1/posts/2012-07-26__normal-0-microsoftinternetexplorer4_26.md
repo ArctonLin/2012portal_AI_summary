@@ -1,0 +1,3 @@
+<!-- topic: Reptilian | doc: posts/2012-07-26__normal-0-microsoftinternetexplorer4_26 | 2012-07-26 | normal 0 microsoftinternetexplorer4 26 | keywords: reptilian -->
+[Relevant content] The main structure keeping humanity in the third dimension consists of etheric implants forming a network of black hole wormholes created by Archons. These black holes contain reptilians and their technology on the etheric plane, which are being intensively purified by Light forces.
+[Key quotes] "Those black holes contain reptilians and their technology on etheric plane and they are being intensively purified by the Light forces right now."

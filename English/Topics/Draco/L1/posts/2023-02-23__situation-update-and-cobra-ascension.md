@@ -1,0 +1,3 @@
+<!-- topic: Draco | doc: posts/2023-02-23__situation-update-and-cobra-ascension | 2023-02-23 | Situation Update and Cobra Ascension Conference in Taiwan | keywords: draco -->
+[Relevant content] The Lords of Karma, described as arachnid Chimera entities, extend their influence through their minions, specifically identifying "Draco and Reptilian demonic entities" on the lower mental, astral, and etheric planes.
+[Key quotes] "They extend their influence through their minions, Draco and Reptilian demonic entities on lower mental, astral and etheric planes, and control the physical geopolitical situation through demonic possession of Black nobility and Illuminati minions on the physical plane."

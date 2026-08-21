@@ -1,0 +1,3 @@
+<!-- topic: Draco | doc: posts/2018-08-15__key-to-freedom-meditation-report | 2018-08-15 | Key to Freedom Meditation Report | keywords: draco -->
+[Relevant content] Earth-based dark forces attempted to redirect primary dark plasma flux from Orion to Earth using various methods, including Draco infiltration into the Solar system through the Solar Warden secret space program front since the 1960s.
+[Key quotes] "Earth-based dark forces tried to redirect the primary dark plasma flux from Orion to our solar system and especially to planet Earth ... with Draco infiltration into our Solar system through the Solar Warden secret space program front also since 1960s..."

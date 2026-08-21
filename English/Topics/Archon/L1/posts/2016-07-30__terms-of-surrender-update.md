@@ -1,0 +1,3 @@
+<!-- topic: Archon | doc: posts/2016-07-30__terms-of-surrender-update | 2016-07-30 | Terms of Surrender Update | keywords: archon -->
+[Relevant content] The Jesuits, the Archons, and the Chimera are identified as originating from negative races in the Andromeda Galaxy. They are described as fallen angels who descended from spirit into matter via an implantation process. It is stated that quite many of them will be able to ascend when the duality nightmare is over.
+[Key quotes] "The Jesuits, the Archons and the Chimera all come from negative races from Andromeda Galaxy. They are all fallen angels, meaning that they have descended from spirit into matter by implantation process, and quite many will be able to ascend when the duality is over."

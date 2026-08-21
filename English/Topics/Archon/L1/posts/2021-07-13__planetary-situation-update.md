@@ -1,0 +1,3 @@
+<!-- topic: Archon | doc: posts/2021-07-13__planetary-situation-update | 2021-07-13 | Planetary Situation Update | keywords: archon -->
+[Relevant content] The dark hierarchy on the etheric and astral planes is controlled by Chimera spiders who control a few thousand Archons in insectoid bodies (Lords of Karma). These Archons in turn control a few million Dracos, who manage the remaining tens of billions of Reptilian entities.
+[Key quotes] "On the top of the etheric and astral dark hierarchy are still some Chimera spiders who control a few thousand Archons in insectoid bodies (Lords of Karma), who in turn control a few million Dracos who manage the remaining tens of billions of Reptilian entities."

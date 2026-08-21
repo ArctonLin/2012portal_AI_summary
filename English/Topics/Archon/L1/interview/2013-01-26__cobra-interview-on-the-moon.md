@@ -1,0 +1,4 @@
+<!-- topic: Archon | doc: interview/2013-01-26__cobra-interview-on-the-moon | 2013-01-26 | Cobra Interview on the Moon | keywords: archon -->
+[Relevant content] [reported] Cobra states that the outer layers of the etheric grid (110 feet to 8.6 miles) have been purified intensively and the matrix is disintegrating, with Archons losing power there. However, entities are entering the inner layers (0 to 110 feet), causing compression in that layer where a breakthrough has not yet occurred.
+[Key quotes] "The outer layers have been purified intensively. The matrix is disintegrating. The archons are loosing their power completely there."
+"The other part of the story is those entities are running scared and are entering the inner layers which is between – 0 and 110 feet around the earth. There is a compression in this layer."

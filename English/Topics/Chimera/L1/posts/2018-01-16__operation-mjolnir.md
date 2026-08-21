@@ -1,0 +1,4 @@
+<!-- topic: Chimera | doc: posts/2018-01-16__operation-mjolnir | 2018-01-16 | Operation Mjolnir | keywords: chimera -->
+[Relevant content] Operation Mjolnir targets the Illuminati Breakaway Complex (IBC), a Chimera-controlled negative faction that broke away from the surface Illuminati network in 1996. The IBC consists of about 200,000 Illuminati and Dracos controlled by the Chimera. The IBC is responsible for majority of missing children since 2015 and scalar/directed weapons attacks on Lightworkers. The NRO is a main organization maintaining quarantine Earth status, with a positive faction potentially involved in the NROL-47 satellite.
+[Key quotes] "IBC is a Chimera-controlled negative faction that broke away from the surface Illuminati network and went underground during the Archon invasion in 1996."
+"Currently, Illuminati Breakaway Complex consists of about 200,000 Illuminati and Dracos, controlled by the Chimera."

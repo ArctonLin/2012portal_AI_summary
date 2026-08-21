@@ -1,0 +1,4 @@
+<!-- topic: Archon | doc: posts/2022-01-13__situation-update-and-new-cobra-interview | 2022-01-13 | Situation Update and a New Cobra Interview | keywords: archon -->
+[Relevant content] Invisibles are described as Archontic entities inhabiting the lower mental plane, responsible for creating the false ideas matrix (including concepts like karma, prime directive, and purposeful suffering). Since the Archon invasion in 1996, these entities have invaded the auric field of the mental body of almost every incarnated being on the surface.
+[Key quotes] "Invisibles are Archontic entities which inhabit the lower mental plane around the surface of the planet and are the ones creating and manifesting the false ideas matrix."
+"Since the Archon invasion in 1996, they have managed to invade the auric field of the mental body of almost every incarnated being on the surface of this planet."

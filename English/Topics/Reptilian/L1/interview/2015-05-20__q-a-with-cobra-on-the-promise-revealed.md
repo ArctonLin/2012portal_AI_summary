@@ -1,0 +1,4 @@
+<!-- topic: Reptilian | doc: interview/2015-05-20__q-a-with-cobra-on-the-promise-revealed | 2015-05-20 | Q&A with Cobra on The Promise Revealed | keywords: reptilian -->
+[Relevant content] [reported] Cobra stated that the reptilian type is quite widespread throughout the galaxy, estimating that 10-15% went to the positive direction. Those of a more positive orientation are assisting in the operations to liberate the planet.
+[Key quotes] "I would say that the reptilian type is quite wide-spread throughout the galaxy and I would estimate about 10-15% of those went to the positive direction and there are many different subversions of that reptilian type and they are not widely known on this planet."
+"Those who are of a more positive orientation are actually assisting in the operations to liberate the planet."

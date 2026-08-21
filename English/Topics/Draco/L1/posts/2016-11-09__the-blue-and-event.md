@@ -1,0 +1,4 @@
+<!-- topic: Draco | doc: posts/2016-11-09__the-blue-and-event | 2016-11-09 | The Blue and the Event | keywords: draco -->
+[Relevant content] The post identifies the Sanxingdui civilization as the main anchor point of an extraterrestrial faction from Thuban (alpha Draconis), described as the most prominent faction of the positive Draconians. It notes that Thuban was a polar star 5000 years ago when "Thuban Draconians" descended on Earth using the Chengdu vortex as an entry point. The post also mentions that "Dragon sources" have communicated that Jetsun Pema is an embodiment of the DouMu archetype.
+[Key quotes] "Sanxingdui civilization was the main anchor point of an extraterrestrial faction from Thuban (alpha Draconis), the most prominent faction of the positive Draconians."
+"Thuban was a polar star 5000 years ago when Thuban Draconians descended on Earth, using Chendgu vortex as the entry point."

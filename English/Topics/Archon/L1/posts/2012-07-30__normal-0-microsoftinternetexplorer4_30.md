@@ -1,0 +1,4 @@
+<!-- topic: Archon | doc: posts/2012-07-30__normal-0-microsoftinternetexplorer4_30 | 2012-07-30 | normal 0 microsoftinternetexplorer4 30 | keywords: archon -->
+[Relevant content] Mass arrests did not happen in April-June because the Positive Military was not aware of Archons until recently and did not integrate them into their plan. The "Magdalenian Archons invasion" ended peaceful Gravettian Goddess worshiping culture more than 16,000 years ago.
+[Key quotes] "The main reason why mass arrests of the Cabal did not happen within the April to June timeframe is that the Positive Military was not aware of Archons until recently and did not integrate them in their 35+ years old plan."
+"Magdalenian Archons invasion was an invasion that ended peaceful Gravettian Goddess worshiping paleolithic high culture more than 16,000 years ago..."

@@ -1,0 +1,3 @@
+<!-- topic: Archon | doc: interview/2016-05-01__cobra-and-corey-goode-interview-by-rob | 2016-05-01 | Cobra and Corey Goode Interview by Rob | keywords: archon -->
+[Relevant content] [reported] Cobra stated that the global Agarthan network originated from the time of Atlantis when light forces went underground due to the Archon invasion 25,000 years ago.
+[Key quotes] "The group below Mt. Shasta and inside Mt Shasta is part of the, I would say, global Agarthan network which originates from the time of Atlantis when part of the light forces had to go underground because of the Archon invasion 25,000 years ago."

@@ -1,0 +1,3 @@
+<!-- topic: Archon | doc: interview/2012-01-01__galactic-free-press-interview-with-cobra | 2012-01-01 | Galactic Free Press interview with Cobra | keywords: archon -->
+[Relevant content] [reported] The physical Cabal consists of "archon type" entities on the physical plane and human beings on the astral plane. These entities are the only remaining dark forces, and a breakthrough is possible to remove them.
+[Key quotes] "So what exactly is the cabal in the physical plane and some, I would say, archon type and with the human being on the astral plane and this is the only thing that's left and we're actually in a moment where a big breakthrough is possible and it will happen sooner or later."

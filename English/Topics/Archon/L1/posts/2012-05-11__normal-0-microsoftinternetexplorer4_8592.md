@@ -1,0 +1,4 @@
+<!-- topic: Archon | doc: posts/2012-05-11__normal-0-microsoftinternetexplorer4_8592 | 2012-05-11 | normal 0 microsoftinternetexplorer4 8592 | keywords: archon -->
+[Relevant content] Messengers and key players are being tested by Archons and other non-physical entities. Implants are crystals placed in etheric and astral bodies by Archons to lower consciousness; implanting sessions stopped in January 2010. A comment by Cameron Day describes Archons and their minions as "ankle biters" or parasites that are annoying but not life-threatening, noting that the "Lords of Karma" perpetuate a system of enslaving humans for energy.
+[Key quotes] "It is true that all messengers and key players will still be tested by the Archons and other non-physical entities."
+"I call them ankle biters as a metaphor to a flea... They're annoying, but not life-threatening."

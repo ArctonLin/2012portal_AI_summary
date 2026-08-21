@@ -1,0 +1,6 @@
+<!-- topic: Reptilian | doc: interview/2015-01-01__cobra-interview-with-rob-on-jade-helm-and-the-ev | 2015-01-01 | Cobra Interview with Rob on Jade Helm and the Event | keywords: reptilian -->
+[Relevant content] Rob asks about the presence of Reptilians, Tall Greys, and other hostile forces in the solar system. Cobra explains that the Moon was a prize piece of real estate with bases for many races. In 1996, a Draconian fleet took over the Moon. Between 2001-2004, light forces liberated the solar system, removing most negative bases. Rob asks about the Sirius B race and their conflicts with Orion. Cobra states Sirius B had a war with the Orion Draco complex and created hybrid races to infiltrate the Orion complex. Rob asks if there are reptilians in physical form on Earth. Cobra states not in reptilian bodies, but incarnated in human bodies, yes.
+[Key quotes] "In 1996 with the Archon invasion when there was a huge vast Draconian fleet entering the solar system and they took over the moon completely in 96."
+"The Sirius B race was having a war with the Orion Draco complex... They have created some hybrid races which are not having any effect whatsoever on the cosmic situation."
+"Are there reptilians in a few of them in physical form at all here? A few maybe?"
+"Not in reptilian bodies. Incarnated in human bodies, yes."

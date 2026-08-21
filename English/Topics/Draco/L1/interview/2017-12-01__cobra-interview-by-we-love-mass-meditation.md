@@ -1,0 +1,4 @@
+<!-- topic: Draco | doc: interview/2017-12-01__cobra-interview-by-we-love-mass-meditation | 2017-12-01 | Cobra Interview by We Love Mass Meditation | keywords: draco -->
+[Relevant content] Cobra stated that the "Blue Dragon" is having its own meditations and is aware of and supporting larger mass meditations announced on The Portal blog. He also reported that at least 85% of the bases of the Draco and Chimera in Antarctica have been cleared.
+[Key quotes] "I would say the Blue Dragon especially is having their own meditations, and they are also aware of our meditations... and when they go viral they [The Blue Dragon] are aware of it and supporting it."
+"What is the status in Antarctica? Have all the bases of the Draco and Chimera there now been cleared? ... Not all of them, but I would say at least 85% of them."

@@ -1,0 +1,3 @@
+<!-- topic: Draco | doc: posts/2023-09-15__situation-update-and-thailand-ascension | 2023-09-15 | Situation Update and Thailand Ascension Conference | keywords: draco -->
+[Relevant content] The document identifies a hierarchy of dark forces on the surface, stating that below the Black nobility, there are approximately 50,000 Draconians in cloned humanoid bodies who infiltrated the surface system as politicians, businessmen, lawyers, and doctors since 1996.
+[Key quotes] "Below them are about 50,000 Draconians in cloned humanoid bodies which infiltrated the surface system since 1996 as politicians, businessmen, lawyers, doctors"

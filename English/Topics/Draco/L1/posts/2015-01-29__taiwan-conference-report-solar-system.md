@@ -1,0 +1,4 @@
+<!-- topic: Draco | doc: posts/2015-01-29__taiwan-conference-report-solar-system | 2015-01-29 | Taiwan Conference Report / Solar System Situation Update | keywords: draco -->
+[Relevant content] Chimera controls a few fragments of the once powerful physical Draconian and Reptilian fleet, scattered and hiding on minor asteroids in the main asteroid belt and Kuiper belt. Until recently, fragments of the Draco/Reptilian fleet were also hiding in asteroid belts of Barnard's Star and Wolf 359, but those have been cleared out completely.
+[Key quotes] "It is true that Chimera controls a few fragments of the once powerful physical Draconian and Reptilian fleet, scattered and hiding on some minor asteroids in the main asteroid belt and in the Kuiper belt."
+"Until recently there were also fragments of the Draco/Reptilian fleet, hiding in asteroid belts of Barnard's Star and star named Wolf 359. All those fleet fragments have already been cleared out completely."

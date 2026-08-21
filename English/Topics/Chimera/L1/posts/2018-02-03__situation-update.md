@@ -1,0 +1,3 @@
+<!-- topic: Chimera | doc: posts/2018-02-03__situation-update | 2018-02-03 | Situation Update | keywords: chimera -->
+[Relevant content] The region between 1000 miles and 8000 miles altitude (Medium Earth Orbit) was the location of the innermost ring of the Chimera-controlled Draco fleet guarding quarantine Earth since 1996. This defense ring was penetrated by the Galactic Confederation fleet on January 27th, and most Draco forces were eliminated in the following days.
+[Key quotes] "The reason why Medium Earth Orbit is almost empty is because the region of altitude between 1000 miles (1600 km) and 8000 miles (12750 km) is the region where the innermost ring of Chimera-controlled Draco fleet was guarding quarantine Earth since its arrival in 1996."

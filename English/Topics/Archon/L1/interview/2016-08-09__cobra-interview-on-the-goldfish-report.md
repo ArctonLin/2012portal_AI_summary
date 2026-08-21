@@ -1,0 +1,3 @@
+<!-- topic: Archon | doc: interview/2016-08-09__cobra-interview-on-the-goldfish-report | 2016-08-09 | Cobra Interview on The GoldFish Report | keywords: archon -->
+[Relevant content] [reported] Cobra states that opposing forces, including Archons, try to hijack the manifestation process and free will, but the initial decision to join this reality was a free will choice that can be cancelled.
+[Key quotes] "I would say that there are opposing forces that try to hijack the process, and try to hijack the freewill, but the initial decision of everybody on this planet to join this reality was free will choice, we signed the contract."

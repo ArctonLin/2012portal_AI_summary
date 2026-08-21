@@ -1,0 +1,3 @@
+<!-- topic: Reptilian | doc: interview/2012-01-01__galactic-free-press-interview-with-cobra | 2012-01-01 | Galactic Free Press interview with Cobra | keywords: reptilian -->
+[Relevant content] [reported] Cobra states that there are no more negative ET forces with UFO technologies on the planet, specifically declaring that there are no more reptilian bases and no more reptilian spaceships, noting that everything of that nature was removed quite some time ago.
+[Key quotes] "There are no more negative ET forces with their UFO technologies on this planet. They are gone and there are no more reptilian bases and there are no more reptilian spaceships. Everything of that nature was removed quite some time ago."

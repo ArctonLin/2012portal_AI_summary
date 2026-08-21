@@ -1,0 +1,5 @@
+<!-- topic: Archon | doc: interview/2016-09-01__cobra-interview-with-patrick-from-pfc | 2016-09-01 | Cobra Interview with Patrick from PFC | keywords: archon -->
+[Relevant content] [reported] Cobra explains that the story of Judas in the Bible was distorted to reinforce the concept of guilt because the Archons wanted to create as much guilt as possible.
+[Relevant content] [reported] Cobra states that Archons are allergic to Goddess energy because it has the power to transmute all darkness into the Light.
+[Key quotes] "Actually the whole story has been distorted to a great degree, to reinforce the concept of guilt, because the archons wanted to create as much guilt as possible, so the whole story did not happen as it is represented in the gospels."
+"It is because the Goddess energy represents whatever they don’t want to be represented, actually the Goddess energy has the power to transmute all darkness into the Light, and it will transmute all darkness into the Light, so this is why they don’t want it."

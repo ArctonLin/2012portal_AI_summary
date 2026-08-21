@@ -1,0 +1,4 @@
+<!-- topic: Archon | doc: meeting/2023-07-24__planetary-situation-update-and-kyoto | 2023-07-24 | planetary-situation-update-and-kyoto | keywords: archon -->
+[Relevant content] [reported] Cobra explains that after the Archon invasion in 1996, the dark forces brought quantum and subquantum anomalies toward Earth. A question is asked if astrology is a counterfeit by Archon and black magic; Cobra responds that since the ancient Gnostic teachings, all planets but Earth have been liberated.
+[Key quotes] "After the Archon invasion in 1996, they brought all these anomalies as much as possible toward the planet earth."
+"If that is true, doesn't that mean that astrology is also a counterfeit by Archon and black magic to control mankind? ... This book is about the ancient Gnostic teachings back in 2000 years ago, describing the foredoom creation. Since that time, all planet but the Earth have been liberated."

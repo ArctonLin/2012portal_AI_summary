@@ -1,0 +1,5 @@
+<!-- topic: Archon | doc: posts/2012-05-10__normal-0-microsoftinternetexplorer4 | 2012-05-10 | normal 0 microsoftinternetexplorer4 | keywords: archon -->
+[Relevant content] All physical and non-physical Archons have been cleared from the universe except for a small surface layer of Earth. Remaining dark forces are located in two places: the etheric/lower astral plane (thin layer around Earth's surface) and the physical plane. On the physical plane, there are a few dozen Archons, mostly in Jesuit circles. The leader of the physical Archons was arrested by the Resistance on May 5th and taken off-planet. "Lords of Karma" are Archon beings on the astral plane that dictate incarnation paths; the teaching of karma is described as disinfo programming.
+[Key quotes] "Dark forces consist of a few dozens Archons (found mostly in Jesuit circles)..."
+"Leader of the Archons on the physical plane has been arrested on May 5th by the Resistance forces and taken off-planet."
+"Lords of Karma are beings on the astral plane that to a great extent dictate the incarnation path of those about to be reincarnated."

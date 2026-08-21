@@ -1,0 +1,3 @@
+<!-- topic: Archon | doc: interview/2013-01-01__cobra-interview-with-alexandra-on-galactic-conne | 2013-01-01 | Cobra Interview with Alexandra on Galactic Connection | keywords: archon -->
+[Relevant content] [reported] Cobra identifies the Roman Black Nobility, so-called (Physical) Archons, and Jesuits as being at the top of the pyramid or food chain of the conspiracy. He states that when these entities are removed, the planet will be free.
+[Key quotes] "I would say the Roman Black Nobility, so called (Physical) Archons and Jesuits are at the top of the Pyramid or the top of the food chain, and when they are removed, our planet is free."

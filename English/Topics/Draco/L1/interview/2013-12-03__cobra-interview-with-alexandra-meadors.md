@@ -1,0 +1,3 @@
+<!-- topic: Draco | doc: interview/2013-12-03__cobra-interview-with-alexandra-meadors | 2013-12-03 | Cobra interview with Alexandra Meadors | keywords: draco -->
+[Relevant content] [reported] Cobra explains that Reptilian and Draconian concepts are various subtypes of both races that developed in a specific line of evolution leading to deformation. He states that the physical aspect of these beings has been almost completely taken care of, and the nonphysical aspect is being cleared.
+[Key quotes] "Actually you have a whole, I would say Reptilian draconian concepts (?), they are various subtypes of both races, both of those sub-races have developed in a certain specific line of evolution, which led to their, I would say deformation."

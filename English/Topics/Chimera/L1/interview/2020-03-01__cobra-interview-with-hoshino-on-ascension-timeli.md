@@ -1,0 +1,4 @@
+<!-- topic: Chimera | doc: interview/2020-03-01__cobra-interview-with-hoshino-on-ascension-timeli | 2020-03-01 | Cobra Interview with Hoshino on Ascension Timeline | keywords: chimera -->
+[Relevant content] Hoshino asks about the "last line of defense" activated by Chimera using physical implants, referencing a post from March 17th. [reported] Cobra states that this defense mechanism poses a challenge that is manageable, though it carries certain risks which are being addressed. When asked what Lightworkers can do to weaken this mechanism, Cobra states that instructions will come when the time is right.
+[Key quotes] "As stated on your post on March 17th, Chimera had activated its last line of defense with physical implants, would this defense mechanism pose a big challenge to the Light Forces? Or it is actually not a big problem."
+"It is a challenge, but this challenge is manageable. It is a challenge that poses certain risks, but those risks are being addressed."

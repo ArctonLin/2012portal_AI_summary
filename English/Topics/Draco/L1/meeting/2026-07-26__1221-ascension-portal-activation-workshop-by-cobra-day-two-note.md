@@ -1,0 +1,3 @@
+<!-- topic: Draco | doc: meeting/2026-07-26__1221-ascension-portal-activation-workshop-by-cobra-day-two-note | 2026-07-26 | 12:21 Ascension Portal Activation Workshop by Cobra Day Two Note | keywords: draco -->
+[Relevant content] [reported] Cobra reported that on the mental plane, there are Draco overlords remaining from a non-physical network that was defeated. He stated that clearing the Draco overlords on the mental plane will take maybe one week, after which they will be gone forever.
+[Key quotes] "On the mental plane there are the Draco overlords; this will take maybe one week and then they will be gone forever."

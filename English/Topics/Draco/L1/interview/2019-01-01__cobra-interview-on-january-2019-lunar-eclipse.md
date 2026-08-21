@@ -1,0 +1,3 @@
+<!-- topic: Draco | doc: interview/2019-01-01__cobra-interview-on-january-2019-lunar-eclipse | 2019-01-01 | Cobra interview on January 2019 Lunar Eclipse | keywords: draco -->
+[Relevant content] [reported] Cobra described the hierarchy of darkness on the physical plane, noting that some Dracos are at the top of the Illuminati structure, but the Black Nobility is above them. The "black magician covens" are described as the basic organic structure of the Illuminati network.
+[Key quotes] "Basically he is describing the Illuminati structure and some of those Dracos are at the top of the Illuminati structure but above them is the Black Nobility so those… I would say… black magician covens are the basic organic structure of the Illuminati network throughout the planet."

@@ -1,0 +1,3 @@
+<!-- topic: Reptilian | doc: posts/2013-10-15__planetary-situation-update-etheric-plane | 2013-10-15 | Planetary Situation Update: Etheric Plane | keywords: reptilian -->
+[Relevant content] Folds in the quantum foam spacetime anomaly of the etheric plane hide small black holes containing reptilians in a quantum superposition state. When the scalar electromagnetic field around these black holes is removed, the black holes evaporate and the reptilians are removed promptly by the Light forces.
+[Key quotes] "These black holes contain reptilians who are sitting there in a quantum superposition state. When the scalar electromagnetic field is removed, those black holes evaporate immediately and the reptilians are removed promptly by the Light forces."

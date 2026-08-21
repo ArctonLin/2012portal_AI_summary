@@ -1,0 +1,5 @@
+<!-- topic: Archon | doc: interview/2012-01-01__cobra-interview-on-the-light-agenda | 2012-01-01 | Cobra interview on The Light Agenda | keywords: archon -->
+[Relevant content] [reported] Cobra previously assisted in negotiations for the surrender of the Jesuit faction and "Archon type entities." Archons are defined as Greek for "rulers," currently ruling the quarantined Earth. Most Archons exist on the etheric and astral planes, using technology to influence human thinking and emotion. Physical Archons remain within the Jesuit faction. Mass meditations aim to create a light grid to remove Archons from the etheric and astral planes. The "reboot of the grid" meditation created a crack in the dark grid, facilitating the removal of Archons.
+[Key quotes] "I was more involved with negotiation of the surrender of the Jesuit faction and some other Archon type entities."
+"Archons — this is a Greek word for rulers. And they’re actually the ones who are ruling the quarantined Earth."
+"There are very few also present inside the Jesuit faction. Not many of them, but those who are, are very powerful, because they were at the top of the pyramid all the time."

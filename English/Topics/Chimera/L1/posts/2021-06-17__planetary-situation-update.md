@@ -1,0 +1,4 @@
+<!-- topic: Chimera | doc: posts/2021-06-17__planetary-situation-update | 2021-06-17 | Planetary Situation Update | keywords: chimera -->
+[Relevant content] The clearing of the Chimera group continues. The war for Chimera underground bases is at its peak, with decisive battles expected soon. The Chimera underground complex extending below eastern Congo, Rwanda, and Burundi has not been liberated yet. Chimera-controlled DARPA and other agencies are still developing nanotechnology biochips and protein-based bioweapons for mind control.
+[Key quotes] "Clearing of the Chimera group continues. The war between Light and dark forces for Chimera underground bases is at its peak, and the decisive battles ending in Light forces liberating the bases are expected to occur soon."
+"Chimera-controlled DARPA and other agencies still keep developing nanotechnology biochips... And protein based bioweapons for mind control"

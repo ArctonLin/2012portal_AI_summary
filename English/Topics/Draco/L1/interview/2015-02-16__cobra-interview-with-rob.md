@@ -1,0 +1,5 @@
+<!-- topic: Draco | doc: interview/2015-02-16__cobra-interview-with-rob | 2015-02-16 | Cobra Interview with Rob | keywords: draco -->
+[Relevant content] [reported] COBRA states that the Chimera group originated from a sector of the Andromedan galaxy, went through Orion training, and were part of the dark Orion/Draco/Reptilian Empire, serving as its administrators and handlers. Rob asks if the Chimera manipulated the Alpha-Draconas; COBRA confirms this. COBRA notes that for the last 25,000 years, the majority of the solar system was under the control of the Orion/Reptilian/Draconian complex.
+[Key quotes] "They were the administrators, the handlers of the Draco/Reptilian/Orion Empire for a long period of time."
+"Rob – OK. So these are actually Andromedans who at the highest level manipulated the Alpha-Draconas, is that correct? COBRA – Yes."
+"I would say for the last 25K years, this solar system, the majority of the solar system was under the control of the Orion/Reptilian/ Draconian complex."

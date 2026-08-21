@@ -1,0 +1,3 @@
+<!-- topic: Draco | doc: meeting/2024-02-03__phoenix-ascension-conference-day-1 | 2024-02-03 | Phoenix Ascension Conference Day 1 Presented by Cobra | keywords: draco -->
+[Relevant content] [reported] Cobra stated that Sedona was a powerful vortex of light until 1996, when it was taken by Draconian forces. He noted that Sedona today is not what it used to be, appearing full of light but containing many dark beings, and that there are no official tachyon chambers there, only fake ones.
+[Key quotes] "Sedona was a very powerful vortex of light until 1996. But after 1996, it was taken by Draconian forces. Sedona today is not what it used to be. It appears to be full of light, but in reality, there are many dark beings."

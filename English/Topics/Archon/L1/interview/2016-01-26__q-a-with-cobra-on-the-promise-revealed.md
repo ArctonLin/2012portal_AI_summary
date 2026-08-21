@@ -1,0 +1,3 @@
+<!-- topic: Archon | doc: interview/2016-01-26__q-a-with-cobra-on-the-promise-revealed | 2016-01-26 | Q&A with Cobra on The Promise Revealed | keywords: archon -->
+[Relevant content] [reported] In most cases, sexual energy is manipulated by the Archons; when traumatized, it may be expressed in same-sex relationships, though healthy same-sex soul connections are possible.
+[Key quotes] "in most cases manipulated sexual energy by the Archons because when the sexual energy has been traumatized and can not express in men and women relationships it can be expressed as this but it is not always like that."

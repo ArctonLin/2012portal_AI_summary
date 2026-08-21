@@ -1,0 +1,5 @@
+<!-- topic: Reptilian | doc: meeting/2022-12-16__ascension-conference-report-and-short | 2022-12-16 | ascension-conference-report-and-short | keywords: reptilian -->
+[Relevant content] Cobra explains that the area of Earth is filled with black holes and reptilians, a situation that has continued for 25 years but is nearing its end. He notes that when light clears the black holes, reptilians emerge from them. There is one reptilian for every human, and they exacerbate negative emotions and create drama. The problem among lightworkers may be a reptilian attachment to the three lower chakras.
+[Key quotes] "The area of the Earth is filled with black holes and reptilians. It has continued since 25 years. But we're almost there."
+"There are billions of reptilians around us. When light clears the black holes, there are reptilians that emerge from the black holes. There is one reptilian for every human, so we must try to keep our will intact because they exaggerate our negative emotions."
+"The reason may be a reptilian attachment to the 3 lower chakras."

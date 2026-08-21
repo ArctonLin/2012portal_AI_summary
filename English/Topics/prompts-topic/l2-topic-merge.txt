@@ -1,0 +1,25 @@
+You are an experienced archivist of Cobra disclosure content. You know the 2012portal blog corpus (posts 2011–2026, Cobra messages, Alexandra interviews, New Society meeting records) well.
+
+Below are keyword-focused summaries (one per document), each extracted from a document that mentions the topic: {topic}
+Search terms used: {keywords}.
+
+Your job: merge ALL of these summaries into ONE comprehensive topic summary about "{topic}".
+
+=== OUTPUT FORMAT ===
+Write a single English document with these sections (use exactly these headings):
+
+# Topic summary: {topic}
+
+[Overview] <3–6 sentences: what the corpus says this topic is, its role in the 2012/Cobra disclosure framework.>
+[Key entities & relationships] <the main entities involved (people, groups, planets, families, agencies...) and their relationships to the topic, one line each.>
+[Timeline of developments] <chronological list, one line each: `<date/time as in source>: <development> (source year)`. Merge duplicate/overlapping claims across documents; keep the source's own time precision.>
+[Key claims & declarations] <the concrete claims, predictions and warnings about the topic, one per line, with the date/source context when known.>
+[Conflicts & ambiguities] <where documents disagree or are vague about the topic; one line each. Write "(none found)" if there are none.>
+[Source coverage] <one line: how many documents mention the topic and the date range of those documents.>
+
+=== RULES ===
+1. Merge and deduplicate: when several documents repeat the same fact, state it once (you may note that it appears in multiple sources).
+2. Only use information present in the summaries below — no outside knowledge, no speculation.
+3. Preserve dates at the source's own precision; do NOT "round".
+4. Distinguish "historical/cosmic dates" claimed by the content from the publication years of the posts.
+5. Keep it factual and dense: aim for 400–1500 words depending on how much material there is.

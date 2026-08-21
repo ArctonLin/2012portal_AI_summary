@@ -1,0 +1,3 @@
+<!-- topic: Reptilian | doc: posts/2012-06-18__normal-0-microsoftinternetexplorer4_18 | 2012-06-18 | normal 0 microsoftinternetexplorer4 18 | keywords: reptilian -->
+[Relevant content] In early 1996, the Archons reactivated "The Veil" using approximately 200 nuclear explosions on the lower astral and etheric planes. This created a rift in space-time that opened dark wormholes through which many reptilian entities invaded planet Earth from outer space, infesting its astral and etheric planes.
+[Key quotes] "Those non-physical nuclear explosions have created a rift in the fabric of space / time that has opened dark wormholes through which many reptilian entities invaded planet Earth from outer space and infested its astral and etheric planes."

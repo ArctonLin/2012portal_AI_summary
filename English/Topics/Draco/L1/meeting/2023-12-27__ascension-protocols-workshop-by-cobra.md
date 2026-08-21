@@ -1,0 +1,5 @@
+<!-- topic: Draco | doc: meeting/2023-12-27__ascension-protocols-workshop-by-cobra | 2023-12-27 | ASCENSION PROTOCOLS WORKSHOP by COBRA | keywords: draco -->
+[Relevant content] [reported] Cobra described a war in India 5,000-6,000 years ago where the Aldebarans were involved in the North Kingdom but were defeated by the "dark draconian." The Draconians subsequently infiltrated the priesthood network in India, taking over a huge network of temples. Cobra noted that scriptures regarding this war are infiltrated and rewritten to represent the dark forces as the winners.
+[Key quotes] "Positive aspect of this war that Aldebaran were involved in North Kingdom. But the dark draconian conquered. There was a nuclear war in India 5000-6000 years ago... The Aldebaran lost and Draconian won the war. They started to infiltrate the priesthood network in India."
+"Q5 – You mentioned, there was an ancient nuclear war which Draconian won. But it’s written in our scriptures that good people won.
+Ans – Scriptures are infiltrated. It’s not complete truth. Dark rewritten and represented themselves as light won all the war."

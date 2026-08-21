@@ -1,0 +1,5 @@
+<!-- topic: Archon | doc: posts/2012-06-18__normal-0-microsoftinternetexplorer4_18 | 2012-06-18 | normal 0 microsoftinternetexplorer4 18 | keywords: archon -->
+[Relevant content] About 26,000 years ago, Archons declared Earth their property and a quarantine. They operate "The Veil," an electromagnetic frequency fence on the lower astral and etheric planes, which prevents Light from entering and programs the human population. The Veil was reactivated in early 1996 and December 2004. Physical and non-physical Archons have a plan called "Doom33" to prevent mass arrests by signaling physical Archons in SMOM and 33rd degree Freemasons to create destruction. Jesuit physical Archons control the fuzzy logic AI financial system.
+[Key quotes] "About 26,000 years ago, Archons declared this planet to be their property and all beings living on it their hostages and slaves."
+"Physical and non-physical Archons have a plan with a codename Doom33 to prevent the mass arrests from happening."
+"Jesuit physical Archons are still in control of the fuzzy logic artificial intelligence financial system computer program..."

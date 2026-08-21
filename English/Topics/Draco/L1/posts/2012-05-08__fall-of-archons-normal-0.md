@@ -1,0 +1,5 @@
+<!-- topic: Draco | doc: posts/2012-05-08__fall-of-archons-normal-0 | 2012-05-08 | fall of archons normal 0 | keywords: draco -->
+[Relevant content] Archons created the Draconian and Reptilian races through genetic engineering to use them as slave warriors. On the etheric and lower astral planes, Draconian administrators maintain the artificial intelligence technology that keeps the Matrix in place. If an awakened being creates a hole in the Matrix, Draconians send a Reptilian slave warrior to exert pressure on that being's psychological weak spots. On the physical plane, Archons spiritually control Draconian Illuminati that run the financial system.
+[Key quotes] "Through millennia, they created Draconian and Reptilian race through genetic engineering to use them as slave warriors to expand their dark empire."
+"On the etheric and lower astral planes, their Draconian administrators maintain the artificial intelligence technology that keeps the Matrix in place."
+"On the physical plane the Archons are incarnated within Jesuit organization and they spiritually control their administrators (Draconian Illuminati that run the financial system)..."

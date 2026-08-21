@@ -1,0 +1,5 @@
+<!-- topic: Draco | doc: posts/2015-05-28__free-colonies-update-and-videos | 2015-05-28 | Free the Colonies! Update and Videos | keywords: draco -->
+[Relevant content] The dark forces allied with Dracos and Reptilians already living in certain locations underground. Hans Kammler was cooperating with the Green Men (an underground Draco breakaway civilization). The Nazis foolishly believed they could challenge the Dark Fleet (Orion/Draco/Reptilian interstellar complex). In severe battles during the mid-1950s, all Nazi space colonies were completely wiped out from this Solar System by the Draco/Reptilian fleet.
+[Key quotes] "The dark forces have also built their own network of underground dwellings and they have allied with Dracos and Reptilians already living in certain locations underground."
+"Kammler was cooperating with the Green Men (an underground Draco breakaway civilization)."
+"In severe battles during mid-1950s, all Nazi space colonies were completely wiped out from this Solar System by the Draco/Reptilian fleet."

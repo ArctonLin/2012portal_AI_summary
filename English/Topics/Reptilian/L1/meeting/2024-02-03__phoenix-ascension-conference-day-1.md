@@ -1,0 +1,5 @@
+<!-- topic: Reptilian | doc: meeting/2024-02-03__phoenix-ascension-conference-day-1 | 2024-02-03 | Phoenix Ascension Conference Day 1 Presented by Cobra | keywords: reptilian -->
+[Relevant content] [reported] Cobra stated that in the moon, there are many underground structures built intensely by reptilian races that are coming to the end with the liberation of the planet. Regarding Henry Kissinger, Cobra stated that while he was not completely aware of his origin, there were draconians, reptilians, and chimera beings in their reptilian and spider bodies, mostly living in underground bases, but they are now cleared. Cobra noted that most reptilians have been removed, with few presences of draconians remaining.
+[Key quotes] "In the moon, there are many underground structures. Some of them are built intensely by reptilian races that are coming to the end with the liberation of the planet."
+"I think Kissinger was not completely aware of his origin, but there were draconians, reptilians and chimera beings in their reptilian and spider bodies, mostly living in the underground bases."
+"Chimera group, most of reptilians have been removed."

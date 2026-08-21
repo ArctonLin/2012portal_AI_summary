@@ -1,0 +1,3 @@
+<!-- topic: Archon | doc: posts/2022-09-15__chimera-situation-update | 2022-09-15 | Chimera Situation Update | keywords: archon -->
+[Relevant content] The dark forces are attempting to engineer a new world war by utilizing the energies of the split of the Roman Empire, which occurred in 395 AD after the death of Theodosius, described as a main Archon Roman emperor who destroyed Goddess mysteries and enforced Christianity.
+[Key quotes] "They are trying to engineer a new world war by utilizing the energies of the split of the Roman empire which happened in the year 395 after the death of Theodosius, a main archon Roman emperor who destroyed Goddess mysteries and enforced Christianity as the main and only acceptable religion:"

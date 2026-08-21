@@ -1,0 +1,3 @@
+<!-- topic: Chimera | doc: interview/2017-07-01__cobra-interview-with-justin-and-corey-on-prepare | 2017-07-01 | Cobra Interview with Justin and Corey on Prepare for Change | keywords: chimera -->
+[Relevant content] [reported] Cobra stated that de-cloaking ships would trigger retaliation mechanisms by the Cabal or by the Chimera group, which is why ships remain cloaked until the Event.
+[Key quotes] "The main reason why the ships are not de-cloaking . . . There are many people asking our star brothers to show up, and they will not show up until it is safe for the surface population. So first the Cabal needs to be removed, and then they will show up."

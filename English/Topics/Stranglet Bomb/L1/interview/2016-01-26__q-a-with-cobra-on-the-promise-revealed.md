@@ -1,0 +1,3 @@
+<!-- topic: Stranglet Bomb | doc: interview/2016-01-26__q-a-with-cobra-on-the-promise-revealed | 2016-01-26 | Q&A with Cobra on The Promise Revealed | keywords: stranglet bomb, stranglet -->
+[Relevant content] Rob asks about vortexes controlled by darkness. Cobra confirms they are fortified with entities and technology, specifically identifying "stranglet bombs on the plasma plane" as the technology that keeps those vortexes stable.
+[Key quotes] "Yes, of course they are fortified with entities and technology and #1 technology are stranglet bombs on the plasma plane and this is what keeps those vortexes stable."

@@ -1,0 +1,3 @@
+<!-- topic: Reptilian | doc: posts/2021-08-24__hold-light | 2021-08-24 | Hold the Light | keywords: reptilian -->
+[Relevant content] The Light Forces have begun clearing the innermost layer of the etheric and astral dark force matrix, where tens of billions of Reptilian entities are still present. This indicates that the battle for the planetary surface on the non-physical planes is reaching its peak.
+[Key quotes] "Light Forces have begun to clear the innermost layer of the etheric and astral dark force matrix with still tens of billions of Reptilian entities present. This practically means that the battle for the planetary surface on the non-physical planes is now reaching its peak."

@@ -1,0 +1,3 @@
+<!-- topic: Draco | doc: posts/2018-02-18__power-of-goddess | 2018-02-18 | Power of the Goddess | keywords: draco -->
+[Relevant content] The text references the "cruelty of darkness" and the "Draco occupation of the planet" as the reality that surface humans have retreated from via "Islands of Sanity" to avoid facing.
+[Key quotes] "He understands that he can not force his fellow humans to awaken, as they have retreated into their Islands of Sanity (beer and football) to avoid facing the too cruel reality of Draco occupation of the planet with all horrendous child abuse and untold suffering..."

@@ -1,0 +1,5 @@
+<!-- topic: Draco | doc: posts/2024-11-17__important-situation-update | 2024-11-17 | Important Situation Update | keywords: draco -->
+[Relevant content] In the 1660s, Jesuits made contact with underground Draconians and signed a military pact. With Draconian assistance, in the late 18th century, the Jesuits had small colonies across the Solar system. In the late 19th century, they were allowed by their Draco and negative Andromedan overlords to hold small slave colonies in less important solar systems under Draco dominion. The interplanetary Jesuit network, together with their allied non-physical Reptilians and Draconians, gives occult power to the surface Jesuits.
+[Key quotes] "They made contact with underground Draconians in the 1660s, and a military pact was signed...
+With Draconian assistance, in the late 18th century they already had small colonies across the Solar system.
+In the late 19th century, they were allowed by their Draco and negative Andromedan overlords to hold small slave colonies (Jesuit reductions) in some less important solar systems under Draco dominion in our Galaxy and in the Andromeda galaxy."

@@ -1,0 +1,5 @@
+<!-- topic: Reptilian | doc: posts/2012-09-09__fall-of-reptilian-empire-we-are-in-last | 2012-09-09 | fall of reptilian empire we are in last | keywords: reptilian -->
+[Relevant content] The document describes the "Reptilian empire" on the etheric and astral planes as the last stronghold of the Orion dark empire. Archons command their Reptilian minions on these planes to pressure the weak spots of individuals. Before October 7th, billions upon billions of Reptilians will be cleared away daily from the astral and etheric planes by Light forces.
+[Key quotes] "Reptilian empire on the etheric and astral planes around the surface of planet Earth... is the last stronghold of once vast Orion dark empire..."
+"The Archons will try to instill as much conflict as possible, commanding their Reptilian minions on the etheric and astral planes to pressure on the weak spots, doubts and insecurities of everybody."
+"Before October 7th, billions upon billions of Reptilians will be cleared away daily from the astral and etheric planes by the Light forces."

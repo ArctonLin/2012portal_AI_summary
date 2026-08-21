@@ -1,0 +1,3 @@
+<!-- topic: Reptilian | doc: interview/2020-01-01__cobra-interview-with-debra-on-age-of-aquarius-ac | 2020-01-01 | Cobra interview with Debra on Age of Aquarius activation | keywords: reptilian -->
+[Relevant content] Cobra states that the Black Nobility families are energetically backed by the Chimera group from the plasma plane, as well as many reptilian and Draco entities on the plasma and etheric planes. These entities work in unison with the top occultists in the Black Nobility families, who invoke and channel them in rituals.
+[Key quotes] "There is the Chimera group from the plasma plane, there are many reptilian and Draco entities on the plasma plane and etheric plane, and they are working in unison."

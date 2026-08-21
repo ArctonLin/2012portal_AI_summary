@@ -1,0 +1,3 @@
+<!-- topic: Draco | doc: interview/2014-01-01__cobra-interview-with-alexandra-on-2014-predictio | 2014-01-01 | Cobra interview with Alexandra on 2014 predictions | keywords: draco -->
+[Relevant content] [reported] Cobra clarifies that absolute control by the Draconian or Orion empire started 25,000 years ago (one cosmic cycle ago). Prior to this, there was a dynamic balance between light and dark forces on the surface.
+[Key quotes] "Absolute control started 25,000 years ago, or one cosmic cycle ago. There was a dynamic balance between the light and dark forces. Both of them were present on the surface of the planet."

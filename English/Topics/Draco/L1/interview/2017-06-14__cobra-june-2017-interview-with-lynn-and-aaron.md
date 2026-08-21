@@ -1,0 +1,5 @@
+<!-- topic: Draco | doc: interview/2017-06-14__cobra-june-2017-interview-with-lynn-and-aaron | 2017-06-14 | Cobra June 2017 Interview with Lynn and Aaron | keywords: draco -->
+[Relevant content] Cobra clarified that the Catholic religion was not created by Dracos, but by Archons, with Dracos serving as a "slave force" that furthered that agenda. He denied that the largest populations of Dracos and Reptilians are in Antarctica and Yellowstone. Cobra also defined the difference between Dracos and Reptilians, stating that Dracos are more mental and strategic, while Reptilians are more emotionally based and reactive.
+[Key quotes] "The Catholic religion was created by Dracos. ... Not true. It was created by the Archons engineered by actually . . . Dracos were just slave force that was furthering that agenda."
+"The largest populations of Dracos and Reptilians are in Antarctica & Yellowstone. ... No."
+"I would say Dracos are more mental, they are able to plan and strategize where reptilians are more emotionally based and they just react."

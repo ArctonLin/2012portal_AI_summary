@@ -1,0 +1,3 @@
+<!-- topic: Draco | doc: meeting/2026-05-23__new-heaven-and-new-earth-workshop-by-cobra | 2026-05-23 | NEW HEAVEN AND NEW EARTH WORKSHOP by Cobra | keywords: draco -->
+[Relevant content] A million years ago, Reptilians and Dracos came to the planet, including the Pacific and French Polynesia, to infect the surface population. They introduced the caste system through invasion and were the source of the warlike tribes of the region.
+[Key quotes] "A million years ago, Reptilians and Dracos came to the planet — not only to the Pacific and French Polynesia but also to the Caribbean Sea — to infect the surface population. They introduced the caste system through invasion and were the source of the warlike tribes of the region."

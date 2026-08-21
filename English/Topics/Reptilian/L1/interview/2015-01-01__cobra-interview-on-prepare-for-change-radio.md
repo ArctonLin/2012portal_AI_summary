@@ -1,0 +1,3 @@
+<!-- topic: Reptilian | doc: interview/2015-01-01__cobra-interview-on-prepare-for-change-radio | 2015-01-01 | Cobra interview on Prepare for Change Radio | keywords: reptilian -->
+[Relevant content] Lynn asks about the Illuminati, stating that the Draco's created and support them because they do the "Reptilian biddings." Cobra responds that many beings within the Illuminati structure were not there by free will and will be able to get out, with much hope for those part of that structure.
+[Key quotes] "About 13,000 years ago, the Draco's created and have been supporting the Illuminati because they do the Reptilian biddings through means of ruling us through chaos & violence."

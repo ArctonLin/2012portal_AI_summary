@@ -1,0 +1,3 @@
+<!-- topic: Reptilian | doc: posts/2020-07-21__music-of-spheres | 2020-07-21 | Music of the Spheres | keywords: reptilian -->
+[Relevant content] Many Reptilians are gathering in their underground bases close to the planetary surface. The Draco are using these Reptilians as a shield to prevent the Galactic Confederation fleet from advancing towards the surface and to further disturb the energy grid.
+[Key quotes] "Many Reptilians are gathering in their underground bases close to the planetary surface and the Draco are using them as a shield to prevent the headway of the Confederation feet towards the surface, and to further disturb the energy grid."

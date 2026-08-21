@@ -1,0 +1,6 @@
+<!-- topic: Chimera | doc: interview/2015-01-01__cobra-interview-with-rob-on-false-flags-and-nwo | 2015-01-01 | Cobra Interview with Rob on False Flags and NWO Plans | keywords: chimera -->
+[Relevant content] [reported] The Chimera group and the plasma accretion vortex contribute to stress on the planetary energy body, requiring some pressure release through earthquakes. [reported] The Cabal and the Chimera are suppressing the collective evolution of humanity. [reported] The Chimera group very rarely contacts surface humans; in the case of Carl Hoehner, they sent emissaries from a negative dragon faction in Tibet. [reported] The Kuiper Belt contains Chimera bases.
+[Key quotes] "Plus, the Chimera group and the plasma accretion vortex and all this is quite much of a stress to the planetary energy body."
+"The Cabal and the Chimera are still suppressing the collective evolution of humanity."
+"The Chimera group very rarely contacts a human being from the surface. What they did was they did not contact him directly. They send some emissaries of a certain negative dragon faction from Tibet and he was in contact with that faction."
+"The Kuiper Belt contains both the Chimera bases and, of course, a lot of light forces that belong to the positive space programs."

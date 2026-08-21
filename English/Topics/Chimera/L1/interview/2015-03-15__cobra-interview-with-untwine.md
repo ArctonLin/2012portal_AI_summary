@@ -1,0 +1,5 @@
+<!-- topic: Chimera | doc: interview/2015-03-15__cobra-interview-with-untwine | 2015-03-15 | Cobra Interview with Untwine | keywords: chimera -->
+[Relevant content] [reported] Chimera and Archons cooperate with a hierarchy; Chimera is more technologically oriented, while Archons are oriented towards controlling higher planes. [reported] Some Chimera are present on the etheric plane. [reported] The HAARP base in Holt, Australia, was used by the Chimera group in the past; that aspect has been cleared, but it remains a stronghold of the negative military.
+[Key quotes] "They have to cooperate in a certain way, and there is a certain hierarchy, but the chimera tends to be more technologically oriented and the archons are more, I would say, oriented towards controlling of the higher planes."
+"Yes there are some of them on the etheric plane."
+"That base was used by the chimera group in the past, that aspect of the base has been cleared but it’s still one of the most important stronghold of the negative military on this planet."

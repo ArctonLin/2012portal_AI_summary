@@ -1,0 +1,3 @@
+<!-- topic: Archon | doc: meeting/2017-07-30__cobra-ascension-conference-taipei | 2017-07-30 | Cobra Ascension Conference Taipei | keywords: archon -->
+[Relevant content] In 1996, there was a major setback with the Archon invasion of the Congo portal in Africa, through which much darkness and negativity infiltrated. A significant reversal clearing much of this negativity occurred on May 17, 1998.
+[Key quotes] "In 1996 there was a major set back with the archon invasion of the Congo portal in Africa, through which infiltrated much darkness and negativity. However, on May 17, 1998 there was a significant reversal reached that cleared much of this negativity."

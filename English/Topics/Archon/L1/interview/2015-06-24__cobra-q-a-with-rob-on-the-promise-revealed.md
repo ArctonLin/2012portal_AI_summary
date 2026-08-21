@@ -1,0 +1,6 @@
+<!-- topic: Archon | doc: interview/2015-06-24__cobra-q-a-with-rob-on-the-promise-revealed | 2015-06-24 | Cobra Q&A with Rob on The Promise Revealed | keywords: archon -->
+[Relevant content] [reported] A famous person claimed that the Archons are in control of the reincarnation process and that humans are tricked into reincarnating.
+[reported] Cobra confirmed that after entering this sector of the galaxy, beings were implanted and trapped in the incarnation loop, making it extremely rare to leave quarantine Earth.
+[reported] The Bask language originates from an old European civilization that existed before the first Archon invasion, which came from the Kazarian area approximately 5,000 to 6,000 years ago.
+[Key quotes] "A lot of people going around now talking about the Archon network. Actually, a famous person – I’m not going to mention – said that the idea that we’re forced into reincarnation as a Cabal trick and all that kind of stuff, it’s very complex."
+"Basically the Bask language comes from old European civilization that was living in Europe before the first Archon invasion. The first Archon invasion came from the Kazarian area about 5-6,000 years ago and most of the European languages originate from that invasion."

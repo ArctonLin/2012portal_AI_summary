@@ -1,0 +1,4 @@
+<!-- topic: Draco | doc: interview/2016-06-01__rob-potter-interviews-corey-goode-and-cobra-part | 2016-06-01 | Rob Potter interviews Corey Goode and Cobra Part 2 | keywords: draco -->
+[Relevant content] Cobra states that Dracos are races that do not want to cooperate with the Galactic Confederation because they have an agenda to dominate other races. He notes that negotiations with Dracos exist, but their style is to enforce their own way rather than find a solution. He asserts that races that overstep boundaries, such as Dracos, are being dealt with.
+[Key quotes] "Races that don’t want to cooperate are basically mostly races that have an agenda, especially races that want to dominate other races, for example like Dracos."
+"And there remain negotiations with Dracos, but their negotiations style is not an attempt to find a solution. It is more for them to enforce their own way."

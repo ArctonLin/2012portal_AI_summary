@@ -1,0 +1,3 @@
+<!-- topic: Reptilian | doc: posts/2022-02-12__ascension-plan-update | 2022-02-12 | Ascension Plan Update | keywords: reptilian -->
+[Relevant content] Approximately 500 million surface evacuees, including many Dracos and Reptilians who came to Earth during the 1996-1999 period and lived in human clones, will not meet the minimum criteria for evolution. These beings will be taken to the Central Sun for restructuring.
+[Key quotes] "About 500 million of surface evacuees, mostly sociopaths and psychopaths and many of them Dracos and Reptilians who came to Earth in 1996-1999 period and were living since then in human clones on the surface, will not be able to fulfill the minimum criteria for evolution and will be taken to the Central Sun for restructuring."

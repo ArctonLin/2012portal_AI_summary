@@ -1,0 +1,4 @@
+<!-- topic: Chimera | doc: posts/2022-12-16__ascension-conference-report-and-short | 2022-12-16 | Ascension Conference Report and a Short Situation Update | keywords: chimera -->
+[Relevant content] The clearing of the Chimera group continues. In early December, the Light Forces began clearing the huge last pit extending below Washington D.C. in a spiderlike formation. They cleared the vast majority of the pit, including cloning facilities, MILAB facilities, and specific morgues/chambers. The only part remaining is the facility under DARPA with the central quantum computer.
+[Key quotes] "Meanwhile, the clearing of the Chimera group continues. In early December, The Light Forces have started to clear the huge last pit which extended below Washington D.C. in a spiderlike formation which roughly followed the subway system."
+"The only part of the pit now remaining is the facility under DARPA with the central quantum computer."

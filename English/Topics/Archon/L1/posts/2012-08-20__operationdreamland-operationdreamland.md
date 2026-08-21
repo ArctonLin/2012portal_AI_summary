@@ -1,0 +1,3 @@
+<!-- topic: Archon | doc: posts/2012-08-20__operationdreamland-operationdreamland | 2012-08-20 | operationdreamland operationdreamland | keywords: archon -->
+[Relevant content] In many channeled messages, while there is genuine energetic contact, on the mental plane the Archons use technology to insert messages that appear full of love and light but are actually recycled phrases.
+[Key quotes] "What happens in most those cases is a genuine energetic contact, but on the mental plane the Archons come in with their technology and insert messages that look full of love and light on a first impression, but in reality are just recycled phrases."

@@ -1,0 +1,3 @@
+<!-- topic: Archon | doc: posts/2017-02-16__make-this-viral-etheric-liberation-2017 | 2017-02-16 | MAKE THIS VIRAL! ETHERIC LIBERATION 2017-2-26 | keywords: archon -->
+[Relevant content] The Congo vortex was the entry point for the Archon invasion in 1996. Since then, Archons have attempted to destroy the feminine energy in Congo, while Light forces try to heal the situation.
+[Key quotes] "Congo vortex was the entry point for the Archon invasion in 1996. Since then, the Archons are doing whatever they can to destroy the feminine energy in Congo, while the Light forces are trying to heal the situation"

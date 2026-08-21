@@ -1,0 +1,3 @@
+<!-- topic: Reptilian | doc: interview/2023-06-01__sisterhood-of-rose-interview-with-cobra | 2023-06-01 | Sisterhood of Rose Interview with Cobra | keywords: reptilian -->
+[Relevant content] Cobra describes the etheric plane as a "day-after" war zone where, if a lightworker dies before the breakthrough, they may find themselves disoriented. He notes that there are still some reptilian entities present on this plane, meaning it is "not yet heaven."
+[Key quotes] "If you're lucky, you would get connection with your spiritual guides. If you're not, there are still some reptilian entities there, so it's not yet heaven there."

@@ -1,0 +1,4 @@
+<!-- topic: Chimera | doc: posts/2017-08-23__unity-meditation-report | 2017-08-23 | Unity Meditation Report | keywords: chimera -->
+[Relevant content] The Unity Meditation provided energy support for the final push to remove the Black Stone. Once the Black Stone is cleared, the RHIC collider on Long Island will lose meaning for the Chimera Group and they will stop using it. Around 80 remaining members of the Chimera Group are in panic mode. Two groups have left Long Island; one is concentrated around a DARPA HQ in Washington, the second at Peterson Air Force Base, and the third remains at the cloning facility below Cold Spring Harbor Laboratory.
+[Key quotes] "When that happens, the RHIC collider on Long Island will lose any meaning for the Chimera Group and they will stop using it."
+"All this has put around 80 remaining members of the Chimera Group into the panic mode."

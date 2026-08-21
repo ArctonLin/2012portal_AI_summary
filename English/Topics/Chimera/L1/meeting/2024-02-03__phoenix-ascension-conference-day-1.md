@@ -1,0 +1,4 @@
+<!-- topic: Chimera | doc: meeting/2024-02-03__phoenix-ascension-conference-day-1 | 2024-02-03 | Phoenix Ascension Conference Day 1 Presented by Cobra | keywords: chimera -->
+[Relevant content] [reported] In response to a question about Henry Kissinger, it is mentioned that there were draconians, reptilians, and Chimera beings in their reptilian and spider bodies, mostly living in underground bases, but they have been cleared. [reported] In the "Birth of Lurker and the Evil" section, it is stated that the Chimera group and most reptilians have been removed, leaving only a few presences of draconians and some cabal on the surface.
+[Key quotes] "I think Kissinger was not completely aware of his origin, but there were draconians, reptilians and chimera beings in their reptilian and spider bodies, mostly living in the underground bases. But as they were cleared now so it is not important thing to talk about."
+"Chimera group, most of reptilians have been removed."

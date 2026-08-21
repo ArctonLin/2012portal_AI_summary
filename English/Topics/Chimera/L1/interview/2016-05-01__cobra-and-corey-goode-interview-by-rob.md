@@ -1,0 +1,3 @@
+<!-- topic: Chimera | doc: interview/2016-05-01__cobra-and-corey-goode-interview-by-rob | 2016-05-01 | Cobra and Corey Goode Interview by Rob | keywords: chimera -->
+[Relevant content] [reported] Mistrust among subterranean factions stems from manipulation by the Chimera group of one faction against others, and cooperation between the Chimera group and subterranean Draco factions originating from the 1930s/1940s and Nazi groups.
+[Key quotes] "Part of this mistrust comes from manipulation of the Chimera group of one of the factions against the others and cooperation between the Chimera group and the various subterranean Draco factions coming from 1930’s and 1940’s and the Nazi groups on the surface."

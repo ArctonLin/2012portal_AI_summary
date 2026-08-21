@@ -1,0 +1,5 @@
+<!-- topic: Reptilian | doc: interview/2014-08-01__cobra-interview-with-rob | 2014-08-01 | Cobra Interview with Rob | keywords: reptilian -->
+[Relevant content] Rob asks about the "Fall of the Chimera" post, noting that the Chimera enslaved the reptilians and Draco beings. Cobra states that reptilians were hostile before coming to Earth but are not as hostile as they are now. Regarding rehabilitation, Cobra indicates there is "vast hope" for reptilians because they are very emotional, though recovery is difficult due to their focus on lower emotions. In contrast, there is no hope for Draco beings due to their developed mental body.
+[Key quotes] "In your recent post the fall of the chimera and you say the chimera were a master rogue group that slaved and quarantined earth and they enslaved the reptilians and Draco beings. Can you tell us anything about the reptilians and Draco’s were like prior to coming to earth."
+"They were hostile before but they were not as hostile as they are now."
+"The reptilians there is vast hope because they are very emotional. There is too much focus on lower emotions it is very hard to recover beings like that."

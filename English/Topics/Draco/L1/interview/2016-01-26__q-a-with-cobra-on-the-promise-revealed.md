@@ -1,0 +1,3 @@
+<!-- topic: Draco | doc: interview/2016-01-26__q-a-with-cobra-on-the-promise-revealed | 2016-01-26 | Q&A with Cobra on The Promise Revealed | keywords: draco -->
+[Relevant content] Cobra identifies the society associated with Göbekli Tepe (located within 100 miles of Aleppo) as having a strong connection with their "Draco Overlords." He notes that while they were not peaceful Goddess worshippers, they left impressive monuments, of which only about 10% have been discovered or excavated.
+[Key quotes] "They had quite strong connection with their Draco Overlords but they left some quite impressive monuments in the earth around, I would say 10% percent of this has been discovered or excavated."

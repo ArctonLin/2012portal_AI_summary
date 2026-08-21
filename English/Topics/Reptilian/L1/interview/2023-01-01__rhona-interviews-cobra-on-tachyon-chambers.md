@@ -1,0 +1,3 @@
+<!-- topic: Reptilian | doc: interview/2023-01-01__rhona-interviews-cobra-on-tachyon-chambers | 2023-01-01 | Rhona interviews Cobra on tachyon chambers | keywords: reptilian -->
+[Relevant content] Cobra confirms that tachyon chambers can remove reptilians, disembodied souls, and other entities during a healing session. This is described as one of the strong points and most important aspects of the chamber's healing capabilities.
+[Key quotes] "The tachyon chamber can remove all those entities during the healing session. And this is one of the strong points of the chamber. This is one of the most important aspects of the chamber healing."

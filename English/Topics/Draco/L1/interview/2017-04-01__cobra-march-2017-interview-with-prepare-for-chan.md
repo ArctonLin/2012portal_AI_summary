@@ -1,0 +1,3 @@
+<!-- topic: Draco | doc: interview/2017-04-01__cobra-march-2017-interview-with-prepare-for-chan | 2017-04-01 | Cobra March 2017 Interview with Prepare For Change | keywords: draco -->
+[Relevant content] Cobra stated that the evacuation of civilian personnel from Antarctica was not due to radioactivity from a nuclear submarine incident, but rather due to a proxy war happening in Antarctica between the "Draco forces and the Galactic Confederation."
+[Key quotes] "It was related to, I would say the proxy war that is happening down in Antarctica between the Draco forces and the Galactic Confederation."

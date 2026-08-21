@@ -1,0 +1,3 @@
+<!-- topic: Chimera | doc: posts/2023-06-08__situation-update | 2023-06-08 | Situation Update | keywords: chimera -->
+[Relevant content] The Light forces destroyed the "Chimera / Lords of Karma" dark network on the etheric plane. Most etheric Chimera entities were captured and taken to the Galactic Central sun, while a very few escaped to the physical plane into cloned bodies through the DARPA pit.
+[Key quotes] "They were able to destroy the Chimera / Lords of Karma dark network on the etheric plane with all their technologies, with most of the etheirc Chimera / Lords of Karma entities captured and taken to the Galactic Central sun, and a very few of the Chimera escaping to the physical plane into cloned bodies through the DARPA pit."

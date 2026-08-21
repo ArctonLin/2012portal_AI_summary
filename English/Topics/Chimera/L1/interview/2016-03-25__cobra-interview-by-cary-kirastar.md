@@ -1,0 +1,4 @@
+<!-- topic: Chimera | doc: interview/2016-03-25__cobra-interview-by-cary-kirastar | 2016-03-25 | Cobra interview by Cary Kirastar | keywords: chimera -->
+[Relevant content] [reported] The transformation of exotic weapons is required to remove the Cabal, as the Chimera provides the power to protect the Cabal. Without Chimera protection, the Cabal would have been cleared long ago. The clearing of the Chimera group and exotic weapons is progressing nicely, with breakthroughs expected soon. The Pleiadians and Galactic Confederation are working on this clearing.
+[Key quotes] "This is what gives the Chimera the power to protect the cabal. The cabal by itself is no longer able to sustain themselves. Without the protection of the Chimera they would have been cleared a long time ago."
+"So what is happening with the clearing of the Chimera group and the exotic weapons? ... It is progressing quite nicely and there will be some breakthroughs in this area soon."

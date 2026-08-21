@@ -1,0 +1,7 @@
+<!-- topic: Chimera | doc: interview/2015-01-01__cobra-interview-with-rob-on-jade-helm-and-the-ev | 2015-01-01 | Cobra Interview with Rob on Jade Helm and the Event | keywords: chimera -->
+[Relevant content] [reported] The RM intervenes based on risk assessment regarding the Chimera group's strangelet bombs. [reported] The "dark fleet" described by GoodETxSG is correlated with the Chimera group. [reported] The Chimera group is the remaining negative presence in the solar system, holding positions with strangelet bombs. [reported] Most remaining negative bases on the moon were Chimera group strongholds, most of which have been removed. [reported] Surrender is an option for Chimera members, though most do not consider it. [reported] The RM has been dealing with the Chimera group for the last year or so with significant progress.
+[Key quotes] "So we have the Chimera group with their strangelet bombs on one side and the atrocities that those people are doing on the other side."
+"I would say, what he calls the dark fleet with the Chimera group."
+"What is remaining is the Chimera group, which does not have large numbers, but which does have some hostages. The main stronghold. . . The most powerful point . . . the most powerful aspect they have are the strangelet bombs."
+"Surrender is always an option. The ones who surrender will have an easier way out. But most of those types usually never consider surrender as an option."
+"We are dealing with the Chimera group for the last year or so and there is a lot of progress."

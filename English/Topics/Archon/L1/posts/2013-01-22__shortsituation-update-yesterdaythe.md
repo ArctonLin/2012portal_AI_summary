@@ -1,0 +1,4 @@
+<!-- topic: Archon | doc: posts/2013-01-22__shortsituation-update-yesterdaythe | 2013-01-22 | shortsituation update yesterdaythe | keywords: archon -->
+[Relevant content] Yesterday, the basic Matrix structure of the etheric Archon grid in all layers between 110 feet and 8.6 miles above and below the surface collapsed. Negative etheric entities are now hiding in remaining black holes or escaping towards the innermost layer (0 to 110 feet). The layers between 110 feet and 8.6 miles are in much better condition than since the last Archon invasion in 1996.
+[Key quotes] "Yesterday, the basic Matrix structure of the etheric Archon grid in all layers between 110 feet and 8.6 miles above and below the surface profile of the planet has collapsed..."
+"Layers between 110 feet and 8.6 miles are not yet clear but are in much better condition than anytime since the last Archon invasion in 1996."

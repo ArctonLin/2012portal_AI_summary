@@ -1,0 +1,3 @@
+<!-- topic: Reptilian | doc: posts/2013-05-28__opening-of-portal-update-we-have-opened | 2013-05-28 | opening of portal update we have opened | keywords: reptilian -->
+[Relevant content] Following the opening of the Portal, all Archons and reptilians and their technologies have been squeezed into a very thin layer extending around 100 feet upwards and downwards from the surface profile of the planet.
+[Key quotes] "All etheric and astral matrix, all Archons and reptilians and their technologies have been squeezed into a very thin layer which extends around 100 feet ( 30 meters ) upwards and downwards from the surface profile of the planet."

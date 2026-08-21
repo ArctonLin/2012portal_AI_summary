@@ -1,0 +1,5 @@
+<!-- topic: Chimera | doc: posts/2022-01-03__divine-intervention-activation-report | 2022-01-03 | Divine Intervention Activation Report | keywords: chimera -->
+[Relevant content] The Light Forces cleared all black wormholes used by dark forces for secure quantum communication, causing the secure communication network of the dark forces to collapse. Top Chimera leaders are now forced to use encrypted communication that can be hacked by the Resistance. All Black Stones and all Chimera spiders on the surface of the planet, including those in the Urim base, have been removed. The Covid virus was created by the Chimera-controlled DARPA and released as a mechanism against the Light Forces.
+[Key quotes] "Top Chimera leaders now have to use encrypted communication that can easily be hacked by the Resistance."
+"All Black Stones and all Chimera spiders on the surface of the planet, including those in the Urim base, have been removed."
+"Covid virus was created by the Chimera-controlled DARPA and released as a mechanism against the progress of the Light Forces towards the liberation of the planet."

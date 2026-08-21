@@ -1,0 +1,3 @@
+<!-- topic: Archon | doc: posts/2017-04-13__peace-meditation-report | 2017-04-13 | Peace Meditation Report | keywords: archon -->
+[Relevant content] The Archon families, specifically Orsini and Pallavicini, attempted to activate the "Doom 33" endgame world destruction program through Khazarian underdogs inside the Omega Grid. This was prevented by Pleiadian intervention.
+[Key quotes] "The Archon families described here... especially Orsini and Pallavicini, tried to activate Doom 33 endgame world destruction program through their Khazarian underdogs inside the Omega Grid to fulfill endgame prophecies"

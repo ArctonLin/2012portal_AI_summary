@@ -1,0 +1,5 @@
+<!-- topic: Chimera | doc: interview/2014-11-05__cobra-interview-with-untwine | 2014-11-05 | Cobra interview with Untwine | keywords: chimera -->
+[Relevant content] [reported] The Chimera group is identified as the entity that chose Switzerland as the site for CERN to continue experiments and develop exotic weapons. [reported] The Chimera group is no longer directly involved with CERN, although projects are scheduled to be reopened next year. [reported] The Chimera group misuses suppressed emotions released during weekends with their technologies.
+[Key quotes] "And of course the chimera group has chosen this country to be the site of the cern, to continue with their experiments and develop their exotic weapons there."
+"Yes it is not active directly with the chimera group, there is of course still projects that are scheduled to be reopened next year but the chimera group is not directly involved with cern anymore, not in the way it was before."
+"And the archons tend to misuse that with their technologies, and the chimera group also."

@@ -1,0 +1,4 @@
+<!-- topic: Chimera | doc: posts/2019-05-15__situation-update | 2019-05-15 | Situation Update | keywords: chimera -->
+[Relevant content] Chimera spiders are described as huge plasma spiderlike beings with toplet bombs attached to their skin, ranging from 10-100 meters to a few kilometers in diameter, positioned above the largest cities. As the Cosmic Central Race is threatened with extinction, the Chimera have devised a plan to reinforce their negative energy field using 5G technology and nanobots in large cities.
+[Key quotes] "Among most dangerous of those entities were Chimera spiders, huge plasma spiderlike beings with plasma toplet bombs attached to their skin, smaller ones being 10-100 meters (yards) in diameter, the largest ones a few kilometers (miles)"
+"the Chimera has devised a plan to reinforce their negative energy field with 5G technology which they plan to implement in large cities with the assistance of many microsatellites"

@@ -1,0 +1,4 @@
+<!-- topic: Archon | doc: posts/2012-06-07__normal-0-microsoftinternetexplorer4 | 2012-06-07 | normal 0 microsoftinternetexplorer4 | keywords: archon -->
+[Relevant content] The original Mass Arrests plan did not account for Archons. Physical Archons within the Jesuit faction had direct access to nuclear weapons, which they threatened to use if arrests commenced; this access was cut off on Tuesday (June 5th). Non-physical Archons pose a risk during mass arrests by influencing people to spread panic and violence. Even if the physical Cabal surrenders, non-physical Archons will not be removed by that act alone.
+[Key quotes] "The physical Archons consist of a powerful group inside the Jesuit faction. This group had direct access to nuclear weapons which they were threatening to use if Mass Arrests would commence."
+"Even if all physical Cabal surrenders, you need to understand that by this act alone the non-physical Archons will not be removed."

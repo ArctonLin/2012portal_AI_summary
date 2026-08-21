@@ -1,0 +1,3 @@
+<!-- topic: Reptilian | doc: interview/2014-11-25__cobra-interview-on-victory-of-the-light-radio-sh | 2014-11-25 | Cobra Interview on Victory of the Light Radio Show | keywords: reptilian -->
+[Relevant content] Rob mentions that David Icke's work on reptilians helped "plow the field" for Cobra's more advanced information on hostile groups.
+[Key quotes] "He’s a great brother who revealed a lot of information who was very important along with David Icke’s work on reptilians to plow the field so to speak for Cobra’s more advanced information on details on certain aspects on these, lets call them hostile tyrannical groups that will be arrested at the time of the event."

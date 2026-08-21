@@ -1,0 +1,3 @@
+<!-- topic: Draco | doc: interview/2015-01-01__cobra-interview-with-rob-on-jade-helm-and-the-ev | 2015-01-01 | Cobra Interview with Rob on Jade Helm and the Event | keywords: draco -->
+[Relevant content] [reported] Cobra mentions that in 1996, a huge vast Draconian fleet entered the solar system and took over the moon completely. Between 2001 and 2004, liberation forces cleared most of the negative bases on the moon.
+[Key quotes] "All this changed in 1996 with the Archon invasion when there was a huge vast Draconian fleet entering the solar system and they took over the moon completely in 96."

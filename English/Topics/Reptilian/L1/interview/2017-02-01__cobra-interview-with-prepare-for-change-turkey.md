@@ -1,0 +1,4 @@
+<!-- topic: Reptilian | doc: interview/2017-02-01__cobra-interview-with-prepare-for-change-turkey | 2017-02-01 | Cobra interview with Prepare For Change Turkey | keywords: reptilian -->
+[Relevant content] Regarding underground caverns in Urgup and Cappadoccia, COBRA confirmed that some layers of the tunnel system were used by the Reptilians. [reported] COBRA stated that Africa is the planetary anchor for the Reptilian race and has the highest concentration of Reptilians. [reported] COBRA explained that Reptilians, as opposed to Dracos, are against development. [reported]
+[Key quotes] "There are may layers of this tunnel system, some used by positive races and yes, some were used by the Reptilians."
+"It is because Africa is the planetary anchor for the Reptilian race and concentration of Reptilians is there the highest. Reptilians (as opposed to Dracos) are against development."

@@ -1,0 +1,4 @@
+<!-- topic: Draco | doc: posts/2018-07-17__planetary-ascension-process | 2018-07-17 | Planetary Ascension Process | keywords: draco -->
+[Relevant content] The Chimera are described as insectoid beings incarnated into humanoid bodies who are more full of anomaly than "dracoids" (Draco and Reptilian beings incarnated into humanoid bodies). In Asia, the underlying positive Blue Dragon taoist culture, originating from Thuban (Alpha Draconis), will be fully activating its network of Light through the Eastern Agartha network.
+[Key quotes] "Now it can already be revealed that the Chimera are actually insectoid (arachnid) beings incarnated into humanoid bodies, and are even more full of anomaly than dracoids (Draco and Reptilian beings incarnated into humanoid bodies)"
+"underlying positive Blue Dragon taoist culture, originating from Thuban (Alpha Draconis), will be fully activating its network of Light through the actions of Eastern Agartha network"

@@ -1,0 +1,4 @@
+<!-- topic: Reptilian | doc: posts/2024-04-14__situation-update | 2024-04-14 | Situation Update | keywords: reptilian -->
+[Relevant content] In December 2023, the dark Atlantean network opened dark portals between the Solar system and other Universes, allowing the influx of many Reptilian entities from other Universes. These entities were immediately cleared upon entry. The dark portals allowing entry of Reptilian entities were completely closed by the Light forces on April 3rd.
+[Key quotes] "These dark portals allowed the influx of many Reptilian entities from other Universes into the Solar system, which were then immediately cleared as soon as they entered the Solar system itself"
+"The dark portals which allowed entry of Reptilian entities were completely closed by the Light forces on April 3rd"

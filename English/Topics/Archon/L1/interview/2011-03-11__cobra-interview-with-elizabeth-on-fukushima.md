@@ -1,0 +1,3 @@
+<!-- topic: Archon | doc: interview/2011-03-11__cobra-interview-with-elizabeth-on-fukushima | 2011-03-11 | Cobra Interview with Elizabeth on Fukushima | keywords: archon -->
+[Relevant content] [reported] The Archons invaded the etheric plane 25,000 years ago and closed off vortices one after another. This process was completed approximately 1,600 years ago when Roman Catholic cults suppressed Goddess energy. Activating portals brings humanity closer to the final goal of completely clearing the etheric plane from Archon influence.
+[Key quotes] "The Archons had invaded the etheric plane 25,000 years ago and were closing off one vortex after the other."

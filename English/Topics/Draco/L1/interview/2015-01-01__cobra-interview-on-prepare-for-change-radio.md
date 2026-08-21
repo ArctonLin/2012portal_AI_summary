@@ -1,0 +1,4 @@
+<!-- topic: Draco | doc: interview/2015-01-01__cobra-interview-on-prepare-for-change-radio | 2015-01-01 | Cobra interview on Prepare for Change Radio | keywords: draco -->
+[Relevant content] [reported] A questioner asks about the Draco's creating and supporting the Illuminati 13,000 years ago. Cobra responds that many beings within the Illuminati structure were not there by free will and a part of this structure will be brought over to the light.
+[Key quotes] "About 13,000 years ago, the Draco's created and have been supporting the Illuminati because they do the Reptilian biddings through means of ruling us through chaos & violence."
+"OK, many beings within the Illuminati structure were not there by their free will and they wanted to get out and they will be able to get out and a part of this structure will be brought over to the light so there is much hope for many beings that were part of that structure."

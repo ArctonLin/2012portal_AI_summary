@@ -1,0 +1,6 @@
+<!-- topic: Archon | doc: interview/2017-06-29__cobra-interview-with-international-golden-age-gr | 2017-06-29 | Cobra Interview with International Golden Age Group | keywords: archon -->
+[Relevant content] [reported] Cobra states that carnivory on Earth has been misused by the Archons. [reported] Cobra explains that karma is an ideology engineered by the Cabal and Archons to spin causality into an excuse for current suffering. [reported] Cobra states that the institute of the Dalai Lama has been hijacked by the Archons, who determine the incarnation. [reported] Cobra notes that the process of twin soul incarnation on Earth is controlled by the Archons.
+[Key quotes] "It is part of the food chain of certain un-evolved planets, when food is still part of evolution, but on Earth it has been misused by the archons."
+"Karma is an ideology that wants to spin the reality of causality into something else... when in reality most of those actions were engineered by the cabal and by the archons."
+"Actually the institute of Dalai Lama has been hijacked by the archons long long time ago, and they are the ones who determine the incarnation."
+"Planet Earth is a unique situation where this process is controlled by the archons."

@@ -1,0 +1,4 @@
+<!-- topic: Reptilian | doc: interview/2014-06-21__cobra-interview-with-rob | 2014-06-21 | Cobra Interview with Rob | keywords: reptilian -->
+[Relevant content] [reported] Cobra states that a small percentage of the reptilian race has accepted the light and is now working with the light forces. These beings have their own planets in this sector of the galaxy and are developing their higher emotional body under the alliance of the light forces.
+[Key quotes] "Is there is a small percentage of the reptilian race that have accepted the light and are now working together with the light forces. They have their own planets also in this sector of the galaxy."
+"Those beings are now developing their higher emotional body. They are developing positive emotions under the alliance of the light forces."

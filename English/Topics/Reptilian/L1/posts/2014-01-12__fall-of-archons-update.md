@@ -1,0 +1,3 @@
+<!-- topic: Reptilian | doc: posts/2014-01-12__fall-of-archons-update | 2014-01-12 | Fall of the Archons Update | keywords: reptilian -->
+[Relevant content] The Orsini family has a very strong connection with the Reptilian race and is the main connecting link between the physical and non-physical Archons. They created the pact between the Reptilian race and the Roman Catholic Church.
+[Key quotes] "The Orsini family has a very strong connection with the Reptilian race and is the main connecting link between the physical and non-physical Archons. They are the ones who created the pact between the Reptilian race and the Roman Catholic Church."

@@ -1,0 +1,4 @@
+<!-- topic: Archon | doc: interview/2017-04-01__cobra-march-2017-interview-with-prepare-for-chan | 2017-04-01 | Cobra March 2017 Interview with Prepare For Change | keywords: archon -->
+[Relevant content] [reported] Cobra explains that the purpose of the Archons was to block spiritual evolution, not to assist it. [reported] Cobra references a previous blog post stating that Jesuits are the main operational task force for the Archons to maintain Earth's quarantine status.
+[Key quotes] "The purpose of Archons was not to assist us in spiritual evolution. They wanted to block us from spiritual evolution and when you progress you progress despite the programming that exists here."
+"Currently the Jesuits are the main operational task force for the Archons to maintain the quarantine status for planet Earth."

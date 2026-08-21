@@ -1,0 +1,5 @@
+<!-- topic: Draco | doc: posts/2013-04-24__the-secret-space-program-time-has-come | 2013-04-24 | the secret space program time has come | keywords: draco -->
+[Relevant content] The hidden purpose of the secret space program was to set the stage for the Draconian/Reptilian takeover of the planet. In 1934, many races of the Draco empire contacted world leaders and made secret treaties offering advanced military technology in exchange for enslavement of the mass human population. During WWII, Draconian forces attempted an open takeover through Nazi Germany. The Draco alliance decided to invade sooner in late 1995 instead of the planned year 2000.
+[Key quotes] "The hidden purpose of the secret space program was to set a stage for the Draconian/Reptilian takeover of the planet."
+"In 1934, many races of the Draco empire contacted the world leaders and made secret treaties with them, offering them advanced military technology in exchange for enslavement of the mass human population."
+"During World War II, Draconian forces attempted an open takeover of the planet through Nazi Germany."

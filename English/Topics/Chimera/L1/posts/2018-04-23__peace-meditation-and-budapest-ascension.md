@@ -1,0 +1,3 @@
+<!-- topic: Chimera | doc: posts/2018-04-23__peace-meditation-and-budapest-ascension | 2018-04-23 | Peace Meditation and Budapest Ascension Conference Report | keywords: chimera -->
+[Relevant content] The situation in Syria is the battlefield of the last phase of the proxy war between the Galactic Confederation/Pleiadian fleet and Chimera/Draco forces supporting Erik Price and negative military factions in Saudi Arabia and the US.
+[Key quotes] "Situation in Syria is the battlefield of the last phase of the proxy war between Galactic Confederation / Pleiadian fleet supporting Putin and Assad, and Chimera / Draco forces supporting Erik Price and negative military factions in Saudi Arabia and US, with Donald Trump being caught in the middle."

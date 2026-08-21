@@ -1,0 +1,3 @@
+<!-- topic: Draco | doc: posts/2021-07-13__planetary-situation-update | 2021-07-13 | Planetary Situation Update | keywords: draco -->
+[Relevant content] On the top of the etheric and astral dark hierarchy are Chimera spiders who control a few thousand Archons in insectoid bodies, who in turn control a few million Dracos who manage the remaining tens of billions of Reptilian entities.
+[Key quotes] "On the top of the etheric and astral dark hierarchy are still some Chimera spiders who control a few thousand Archons in insectoid bodies (Lords of Karma), who in turn control a few million Dracos who manage the remaining tens of billions of Reptilian entities."

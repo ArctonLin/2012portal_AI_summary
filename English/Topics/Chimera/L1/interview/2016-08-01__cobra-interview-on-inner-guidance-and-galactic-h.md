@@ -1,0 +1,3 @@
+<!-- topic: Chimera | doc: interview/2016-08-01__cobra-interview-on-inner-guidance-and-galactic-h | 2016-08-01 | Cobra Interview on Inner Guidance and Galactic Heartbeat | keywords: chimera -->
+[Relevant content] [reported] Cobra confirmed that the Central Race is assisting quite intensely and directly in the process of clearing the Chimera group.
+[Key quotes] "Richard – Cobra, is the Central Race civilization helping directly to clear the Chimera group or what are they doing in relative to the earth’s liberation. COBRA – Yes, they are assisting quite intensely and quite directly in that process."

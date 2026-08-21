@@ -1,0 +1,12 @@
+<!-- topic: Archon | doc: posts/2013-10-15__planetary-situation-update-etheric-plane | 2013-10-15 | Planetary Situation Update: Etheric Plane | keywords: archon -->
+[Relevant content] A small group of main etheric Archons continues to exert control on the reincarnation process and trigger weak spots in incarnated humans via remote control operated etheric scalar implant technology.
+Each incarnated human has three implants in the etheric body auric field: two in the frontal lobe (compromising free will/decision making and blocking Source connection) and one at the etheric solar plexus membrane (suppressing emotions/sexual energy and short-circuiting kundalini).
+The Archons use scalar projector beam technology to project thoughtforms and elementals into these implants.
+Folds in the quantum foam spacetime anomaly of the etheric plane hide small black holes containing reptilians in a quantum superposition state; these will evaporate when the scalar electromagnetic fields are removed.
+The Resistance Movement is working to hack the computer program controlling the implants in the etheric mainframe computer of the Archons.
+The Archons reprogrammed the implants on December 25th, 2004, which triggered the Sumatra earthquake and tsunami the next day.
+After December 21st, 2012, the Resistance broke into the etheric mainframe, but the implant program has not yet been hacked.
+
+[Key quotes] "There is still a very small group of main etheric Archons which continues to exert control on the reincarnation process and still continues to trigger weak spots of incarnated humans through their remote control operated etheric scalar implant technology."
+"The Resistance Movement is working to hack the computer program which controls the implants in the etheric mainframe computer of the Archons. When this is done, the Resistance Movement will be able to shut down the scalar field around the implants and then the implants and corresponding black holes in folds of etheric spacetime continuum will evaporate fast and finally true Light will arrive to planet Earth."
+"However, the Archons managed to reprogram the implants and the new version of the etheric implant program was activated on December 25th, 2004. This put a huge stress on the etheric plane around the Earth in general. That etheric pressure disturbed the tectonic plates and triggered a massive Sumatra earthquake and tsunami on the very next day."

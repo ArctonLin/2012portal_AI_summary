@@ -1,0 +1,5 @@
+<!-- topic: Draco | doc: interview/2016-05-01__cobra-and-corey-goode-interview-by-rob | 2016-05-01 | Cobra and Corey Goode Interview by Rob | keywords: draco -->
+[Relevant content] Corey Goode reports intel regarding "pumpkin seed shape cruisers" identified as Draco, observed in Australia and Antarctica. He states that these Draco ships attempted to leave Earth's atmosphere but were attacked by "dark chevron ships" (rumored to be Earth Alliance ships). Cobra confirms that "Dracos" came to Earth to take part in the experience to resolve the cosmic anomaly. Cobra also notes that "Dracos" are one of the races that do not want to cooperate with the Galactic Confederation because they have an agenda to dominate other races.
+[Key quotes] "Some recording that they were of Russian origin and then there were reports of these very large pumpkin seed shape cruisers which are Draco."
+"This is why the Dracos came here. This is why the Orions came here. This is why the Pleiadians came here."
+"Races that don’t want to cooperate are basically mostly races that have an agenda, especially races that want to dominate other races, for example like Dracos."

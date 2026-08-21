@@ -1,0 +1,5 @@
+<!-- topic: Reptilian | doc: meeting/2023-05-13__cobra-2023-taipei-ascension-conference | 2023-05-13 | Cobra 2023 Taipei Ascension Conference | keywords: reptilian -->
+[Relevant content] The dark forces, including reptilians and Chimera, invaded Earth to control it. Reptilians control the lower four layers of the emotional plane. A "Reptilian control grid" seriously suppresses Goddess energy and is still active in the etheric plane. When people have conflicts, reptilians show up to create misunderstandings and further suppress Goddess energy. Once this grid is removed, Goddess energy will flow more easily.
+[Key quotes] "The dark forces, reptilians and the Chimera invade the Earth in order to control it for themselves."
+"The reptilians control the lower four layers of the emotional plane."
+"Reptilian control grid seriously suppresses Goddess energy. This grid is still very active in the etheric plane. When people have a conflict, reptilians will show up and create more misunderstandings among conflicting parties."

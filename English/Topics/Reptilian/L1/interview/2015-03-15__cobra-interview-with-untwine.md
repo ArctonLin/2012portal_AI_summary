@@ -1,0 +1,3 @@
+<!-- topic: Reptilian | doc: interview/2015-03-15__cobra-interview-with-untwine | 2015-03-15 | Cobra Interview with Untwine | keywords: reptilian -->
+[Relevant content] Untwine asks if Archons are humanoid or have another form. Cobra states that non-physical Archons sometimes choose to shape themselves in a more reptilian type body, but this is purely upon their choice.
+[Key quotes] "Those who are non-physical some of them keep that humanoid form and some of them choose to keep different shapes, some of them tend to shape themselves in a more reptilian type body. But this is purely upon their choice, it is not something they are forced to do it is something they choose to do."

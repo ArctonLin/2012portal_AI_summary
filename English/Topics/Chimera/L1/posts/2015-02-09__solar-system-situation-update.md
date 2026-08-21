@@ -1,0 +1,5 @@
+<!-- topic: Chimera | doc: posts/2015-02-09__solar-system-situation-update | 2015-02-09 | Solar System Situation Update | keywords: chimera -->
+[Relevant content] The Breakthrough phase involves the Light forces gathering momentum against the Chimera and Cabal. The solar system was under control of the Orion/Andromedan Chimera empire for 26,000 years. A non-interference treaty was signed between Light forces and Chimera. The Chimera group gave permission to negative militaries to build joint secret Moon and Mars bases. Since early last year, Light forces are dealing with the Chimera directly. Operations to clear the solar system from the last vestiges of darkness are codenamed MOSS.
+[Key quotes] "The Breakthrough phase means that the Light forces are no longer focused only on opposing the Chimera and the Cabal, but are gathering momentum for the final breakthrough instead."
+"Our Solar System has been under control of Orion/Andromedan Chimera empire and their Draco/Reptilian minions for the last 26,000 years"
+"Since early last year, the Light forces are dealing with the Chimera directly."

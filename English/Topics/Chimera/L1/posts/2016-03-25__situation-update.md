@@ -1,0 +1,3 @@
+<!-- topic: Chimera | doc: posts/2016-03-25__situation-update | 2016-03-25 | Situation Update | keywords: chimera -->
+[Relevant content] The clearing of the Chimera group continues. The removal of plasma strangelet bombs has triggered a strong reaction from the Chimera group, which ordered the Archons to increase the volume of their technologies to attack and suppress Lightworkers and Lightwarriors using infrasound and plasma scalar waves.
+[Key quotes] "This has triggered a strong reaction of the Chimera group and they have ordered the Archons to turn up the volume of their technologies to attack and suppress the Lightworkers and Lightwarriors"

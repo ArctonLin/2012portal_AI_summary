@@ -1,0 +1,4 @@
+<!-- topic: Chimera | doc: posts/2018-10-13__situation-update | 2018-10-13 | Situation Update | keywords: chimera -->
+[Relevant content] A huge quantum fluctuation Dyson sphere, 4 light years in diameter, created by the Chimera group in 1996, has been completely removed by Galactic Light Forces. The main Chimera control center is located on the surface of the planet, receiving constant audio-video feeds from physical biochips.
+[Key quotes] "This quantum Dyson sphere was a very advanced quantum hyperdimensional portal that was created by the Chimera group in 1996 and is now completely gone forever."
+"The physical biochip (produced by Siemens) located next to the implant of every incarnated human sends a constant audio-video feed to the main Chimera control center, located on the surface of the planet"

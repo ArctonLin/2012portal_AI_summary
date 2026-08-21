@@ -1,0 +1,3 @@
+<!-- topic: Chimera | doc: posts/2014-12-23__isis-portal-activation-part-ii-report | 2014-12-23 | IS:IS Portal Activation Part II Report | keywords: chimera -->
+[Relevant content] The Light forces removed vast proportions of the Chimera scalar plasma grid a few days before the activation. This is noted as the first victory over plasma scalar technologies on the surface since the 1996 Archon invasion.
+[Key quotes] "Few days before the activation, the Light forces have managed to remove vast proportions of the Chimera scalar plasma grid. This is a very significant achievement, since this is the very first time since the 1996 Archon invasion that any kind of victory over plasma scalar technologies on the surface of this planet has been achieved."

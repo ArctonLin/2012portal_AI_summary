@@ -1,0 +1,4 @@
+<!-- topic: Draco | doc: posts/2015-10-19__proxy-galactic-war-in-syria | 2015-10-19 | Proxy Galactic War in Syria | keywords: draco -->
+[Relevant content] Khazarians are actually Dracos who came to planet Earth in the late Atlantean period through the Caucasus portal and kept reincarnating into human bodies. The Caucasus portal was also the main entry point for the Reptilian warrior slave caste. Pleiadians and allied races supported the Earth population in their fight against Chimera/Draco/Reptilian suppression.
+[Key quotes] "Here it is important to understand that Khazarians are actually Dracos who came to planet Earth in late Atlantean period through the Caucasus portal and kept reincarnating into human bodies."
+"Pleiadians and allied races were always supporting the Earth population in their fight for freedom against Chimera/Draco/Reptilian suppression."

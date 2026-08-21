@@ -1,0 +1,4 @@
+<!-- topic: Archon | doc: posts/2014-08-05__short-planetary-situation-update | 2014-08-05 | Short Planetary Situation Update | keywords: archon -->
+[Relevant content] The etheric Archon grid is in its final stage of dissolution, and the power of the Archons is diminishing rapidly. The Archons are described as black nobility families behind the Jesuits, focused on keeping humanity as religion-programmed slaves in the reincarnation cycle. They are currently at the top of the food chain alongside the Chimera group.
+[Key quotes] "The etheric Archon grid is the final stage of dissolution and the power of the Archons diminishing rapidly"
+"the Archons (black nobility families behind the Jesuits, focused on keeping humanity as religion-programmed slaves in reincarnation cycle) are still at the top of the food chain."

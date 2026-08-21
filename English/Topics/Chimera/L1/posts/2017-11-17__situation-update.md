@@ -1,0 +1,4 @@
+<!-- topic: Chimera | doc: posts/2017-11-17__situation-update | 2017-11-17 | Situation Update | keywords: chimera -->
+[Relevant content] The Chimera group is getting worried and ramping up defenses in Low Earth Orbit through proxies within the USAF. A massive investigation against the Cabal will lead to mass arrests when the Chimera faction within the Air Force can no longer cover the Cabal's back with toplet bombs.
+[Key quotes] "The Chimera group is getting really worried and they are ramping up their defenses in Low Earth Orbit through their proxies within USAF."
+"Although we are not there yet, there is a massive investigation against the Cabal taking place and it will ultimately lead to the mass arrests when the Chimera faction within the Air Force will not be able to cover the Cabal's back with their toplet bombs anymore."

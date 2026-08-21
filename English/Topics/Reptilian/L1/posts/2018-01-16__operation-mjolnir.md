@@ -1,0 +1,4 @@
+<!-- topic: Reptilian | doc: posts/2018-01-16__operation-mjolnir | 2018-01-16 | Operation Mjolnir | keywords: reptilian -->
+[Relevant content] The Illuminati Breakaway Complex (IBC) has teamed with native Earth Dracos and Reptilians, as well as those who entered the Solar System during the 1996-1999 Archon invasion. IBC is connected to about 1 million native Reptilians living on the surface, especially in Africa and Latin America, who are known as vampires.
+[Key quotes] "Below the surface, Illuminati Breakaway Complex has teamed with native Earth Dracos and Reptilians and also with Dracos and Reptilians that have entered this Solar System in the 1996-1999 timeframe during the last Archon invasion."
+"Illuminati Breakaway Complex is also connected to about 1 million native Reptilians that live on the surface especially in Africa and Latin America but also on other continents and are known as vampires"

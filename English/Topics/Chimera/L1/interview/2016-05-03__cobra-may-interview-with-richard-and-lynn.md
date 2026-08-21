@@ -1,0 +1,4 @@
+<!-- topic: Chimera | doc: interview/2016-05-03__cobra-may-interview-with-richard-and-lynn | 2016-05-03 | Cobra May Interview with Richard and Lynn | keywords: chimera -->
+[Relevant content] [reported] The spike in gamma rays on April 10, 2016, indicates that the Chimera barrier inside the outer barrier, close to the Kuiper belt, is beginning to dissolve, allowing more gamma rays to enter the solar system. The termination shock is the area of the Chimera barrier, containing many ships of the Chimera and the highest concentration of toplet plasma bombs. The Light forces are currently removing this barrier.
+[Key quotes] "It means that the outer barrier or shall I say, the Chimera barrier inside of the outer barrier, close to the Kupier belt is beginning to dissolve."
+"Termination shock is the area of the so called Chimera barrier with many ships of the Chimera and the highest concentration of toplet plasma bombs of the Chimera group."

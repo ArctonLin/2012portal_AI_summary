@@ -1,0 +1,3 @@
+<!-- topic: Draco | doc: interview/2016-11-23__pleiadian-interview-with-cobra-and-adrieuious | 2016-11-23 | Pleiadian Interview with Cobra and Adrieuious | keywords: draco -->
+[Relevant content] Cobra explained that during the archon invasions of 1996 and 1999, many "dracos and reptilians" came to Earth and underground bases, providing their technology and versions of biochips. The Resistance Movement has removed most of these implants, but not all.
+[Key quotes] "there was the archon invasions and many dracos and reptilians and other races came to this time and the underground bases and gave their technology and their version of the biochips."

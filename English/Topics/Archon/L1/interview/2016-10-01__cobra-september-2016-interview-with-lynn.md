@@ -1,0 +1,3 @@
+<!-- topic: Archon | doc: interview/2016-10-01__cobra-september-2016-interview-with-lynn | 2016-10-01 | Cobra September 2016 Interview with Lynn | keywords: archon -->
+[Relevant content] [reported] Cobra describes the 1996 Archon invasion of the Congo, noting that the Rwanda genocide one year prior laid the groundwork for opening the negative portal. He states that negative entities, mostly reptilian from the Orion sector and some from Andromeda, came through this portal.
+[Key quotes] "Actually there was a quite visible war. There was the Rwanda genocide one year before and it was laying the ground work, the preparation for opening the negative portal... One year before or shall we say around the year before the Archon invasion of 1996."

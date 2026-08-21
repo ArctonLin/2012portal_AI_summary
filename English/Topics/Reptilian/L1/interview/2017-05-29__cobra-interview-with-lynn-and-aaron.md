@@ -1,0 +1,4 @@
+<!-- topic: Reptilian | doc: interview/2017-05-29__cobra-interview-with-lynn-and-aaron | 2017-05-29 | Cobra Interview with Lynn and Aaron | keywords: reptilian -->
+[Relevant content] Regarding the fighting in Ukraine, COBRA stated that certain underground locations of reptilian nature have been cleared, but the negative plasma associated with those places has not been cleared yet. [reported] COBRA clarified that reptilians have not been cleared years ago, but there is still a small amount of them around. [reported]
+[Key quotes] "Actually no, there have been certain underground locations of reptilian nature which have been cleared but they have been anchoring some very negative energy there and this has not been cleared completely. The reptilian base has been cleared but the negative plasma associated with those places has not been cleared yet."
+"The reptilians have not been cleared years ago. There is still a small amount of them around not a long time ago."

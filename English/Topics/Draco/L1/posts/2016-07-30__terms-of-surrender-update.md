@@ -1,0 +1,4 @@
+<!-- topic: Draco | doc: posts/2016-07-30__terms-of-surrender-update | 2016-07-30 | Terms of Surrender Update | keywords: draco -->
+[Relevant content] Cobra states that the Rockefeller faction is "Draconian by its origin" and will never surrender. He explains that the Draconian race evolved from dense matter and that the more negative members of that race do not have sufficient contact with spirit to be redeemed. Consequently, they will fight back with false flags until they are removed into the Galactic Central Sun.
+[Key quotes] "The Rockefeller faction is Draconian by its origin and will never surrender, they will fight back with their false flags until they are removed into the Galactic Central Sun."
+"The Draconian race has evolved from dense matter and the more negative members of that race do not have sufficient contact with the spirit to be redeemed."

@@ -1,0 +1,4 @@
+<!-- topic: Archon | doc: interview/2014-09-23__cobra-interview-on-victory-of-the-light-show | 2014-09-23 | Cobra Interview on Victory of the Light Show | keywords: archon -->
+[Relevant content] [reported] The Archons have distorted the life story and message of Mary Magdalene to suppress her truth. [reported] The Archons manipulated the religion of Islam and other major religions after the original prophets died. [reported] Archons used the Mecca cube to suppress a Goddess vortex and enslave people in the 3rd dimension through occult magical rituals.
+[Key quotes] "Of course the Archons have distorted her life story and her message because they wanted to suppress her message and her truth."
+"He was a person that had a mystical experience, a genuine contact with the light that was later manipulated by the Archons."

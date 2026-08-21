@@ -1,0 +1,4 @@
+<!-- topic: Chimera | doc: posts/2023-01-08__the-return-of-spirit | 2023-01-08 | The Return of Spirit | keywords: chimera -->
+[Relevant content] The clearing of the Chimera group continues with Mjolnir technology removing black holes from implants and the inverted grid. Millions of years ago, the Chimera built huge particle accelerators in the form of Dyson rings in the Rigel star system in Orion to create toplet and strangelet bombs to control the Rigel and Sol star systems. Knowing their defeat is near, the Chimera are trying to strengthen the quarantine by launching an absurd number of satellites into Near Earth orbit.
+[Key quotes] "Millions of years ago, the Chimera have built huge particle accelerators in the form of Dyson rings billions of miles in diameter in the Rigel star system in Orion."
+"Knowing their defeat is near, the Chimera are trying to strengthen the quarantine by launching absurd number of satellites into the Near Earth orbit."

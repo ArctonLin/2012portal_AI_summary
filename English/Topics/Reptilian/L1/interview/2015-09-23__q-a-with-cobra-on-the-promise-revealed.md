@@ -1,0 +1,4 @@
+<!-- topic: Reptilian | doc: interview/2015-09-23__q-a-with-cobra-on-the-promise-revealed | 2015-09-23 | Q&A with Cobra on The Promise Revealed | keywords: reptilian -->
+[Relevant content] [reported] Cobra described the Reptilian/Draco faction as having a strong impact throughout the planet, working hand in hand with criminal syndicates on the surface. In the last 2 years, the vast majority of the reptilian presence was removed from the underground, leaving only the Chimera group with their own stronghold.
+[Key quotes] "There was, of course, the Reptilian/Draco faction, who has a strong impact throughout the planet. Actually, those reptilian factions had contact with criminal elements on the surface... They were working hand in hand with those reptilians and with the Draco’s."
+"In the last 2 years, there were many changes – changes for the better I would say. The vast majority of the reptilian presence was removed."

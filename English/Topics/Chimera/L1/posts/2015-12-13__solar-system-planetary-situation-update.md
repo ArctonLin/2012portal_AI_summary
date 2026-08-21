@@ -1,0 +1,4 @@
+<!-- topic: Chimera | doc: posts/2015-12-13__solar-system-planetary-situation-update | 2015-12-13 | Solar System / Planetary Situation Update | keywords: chimera -->
+[Relevant content] The clearing of the Chimera group continues. The main remaining problem is Cabal implants connected to the Yaldabaoth plasma vortex. The vast majority of physical Chimera bases are located in the Kuiper belt, forming the "Kuiper Ring," which serves as the outer line of defense for Chimera-controlled territories against the Galactic Confederation and Ashtar Command. Operations to remove the Kuiper Ring will start soon.
+[Key quotes] "Clearing of the Chimera group continues."
+"The vast majority of physical Chimera bases are positioned inside the Kuiper belt and form the so-called Kuiper Ring, the outer line of defense which protects the Chimera-controlled territories inside this Solar System against the liberation forces of the Galactic Confederation and the Ashtar Command."

@@ -1,0 +1,4 @@
+<!-- topic: Draco | doc: posts/2018-02-03__situation-update | 2018-02-03 | Situation Update | keywords: draco -->
+[Relevant content] Dragon sources confirmed the deployment of the Galactic High Command fleet in Medium Earth Orbit by stating that "ET invasion has begun." The region between 1000 and 8000 miles altitude was guarded by the innermost ring of the Chimera-controlled Draco fleet since its arrival in 1996. This Draco fleet defense ring was penetrated on January 27th, 2018, by the Galactic Confederation fleet, resulting in the elimination of most Draco forces in the following days.
+[Key quotes] "Dragon sources have confirmed this by stating that “ET invasion has begun”."
+"This Draco fleet defense ring was penetrated on January 27th late in the evening by Galactic Confederation fleet and most of Draco forces eliminated in the following days."

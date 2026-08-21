@@ -1,0 +1,5 @@
+<!-- topic: Draco | doc: interview/2016-12-27__cobra-december-2016-interview-on-prepare-for-cha | 2016-12-27 | Cobra December 2016 Interview on Prepare for Change | keywords: draco -->
+[Relevant content] Cobra stated that the Chimera group uses Artificial Intelligence to control Draco's and Reptilians, describing a symbiosis of a negative nature. When asked if Draco's and Cabal empires are still causing trouble in other solar systems, Cobra confirmed they are contained within the Sol System. Cobra also explained that Draconians use "incarnation chambers" to project their soul essence into physical bodies, a technology they had in the past but now use to a very limited degree.
+[Key quotes] "The Chimera group is using A.I. to control Draco’s and Reptilians."
+"They’re contained here."
+"I think you’re referring to the teleportation chambers or I would say incarnation chambers when they project their soul essence into the physical body. This is technology they have or shall we say they had in the past quite much, but now to a very limited degree."

@@ -1,0 +1,3 @@
+<!-- topic: Archon | doc: posts/2017-05-02__discernment-and-awareness | 2017-05-02 | Discernment and Awareness | keywords: archon -->
+[Relevant content] A massive disinformation campaign against key Lightwarriors was engineered by etheric and plasma Archons, who manipulated personality weaknesses to "suggest" attacks against specific individuals.
+[Key quotes] "On top of those weaponized attacks, a massive disinformation campaign against the key Lightwarriors on the planet has been engineered by the etheric and plasma Archons, manipulating personality weaknesses of certain people, "suggesting" them to attack."

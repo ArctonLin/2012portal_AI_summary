@@ -1,0 +1,6 @@
+<!-- topic: Reptilian | doc: meeting/2026-07-26__1221-ascension-portal-activation-workshop-by-cobra-day-two-note | 2026-07-26 | 12:21 Ascension Portal Activation Workshop by Cobra Day Two Note | keywords: reptilian -->
+[Relevant content] [reported] Cobra stated that the Light Forces defeated two non-physical networks of reptilians during the activation. One network, which had existed for 26,000 years and created wars, slavery, and suffering, was defeated on the etheric plane. On the astral plane, small groups of reptilians are scattered and trying to escape, expected to be swept away within 24 hours. On the mental plane, Draco overlords remain, expected to be gone within a week. These networks were reinforced in 1996 and contained trillions of reptilians on the non-physical planes.
+[Key quotes] "There were two groups of reptilians that had been there since... This was created during the quarantine, in the past 26,000 years."
+"One of them was defeated yesterday, after 26,000 years... so now it is gone."
+"On the astral plane there are still small groups of reptilians scattered around, trying to escape; they will be swept away within 24 hours."
+"There were billions upon billions, trillions and trillions of reptilians on the non-physical planes."

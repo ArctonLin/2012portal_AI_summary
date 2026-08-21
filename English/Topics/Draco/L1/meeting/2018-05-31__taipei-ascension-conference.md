@@ -1,0 +1,3 @@
+<!-- topic: Draco | doc: meeting/2018-05-31__taipei-ascension-conference | 2018-05-31 | Taipei Ascension Conference | keywords: draco -->
+[Relevant content] [reported] Cobra stated that Draconians believed they had the right to claim Earth because they were there first and installed their royalty, nobility, and military. With Earth now under the domain of the Light Forces, the Galactic Confederation will use military force to dismantle all darkness unconditionally.
+[Key quotes] "The Draconians had believed that they had the right to lay claim over the Planet because they were here first and proceeded to install their royalty, nobility and military."

@@ -1,0 +1,3 @@
+<!-- topic: Draco | doc: posts/2015-10-06__the-great-forgetting-of-1996 | 2015-10-06 | The Great Forgetting of 1996 | keywords: draco -->
+[Relevant content] During the 1996 invasion, all sentient beings within the Solar System, including Dracos, Reptilians, and Zetas, were implanted with plasma implants and tied to the Chimera's AI network (the Veil).
+[Key quotes] "All beings contained within that barrier inside the Solar System, including all surface humans, all Cabal factions, all subterranean beings... all Pleiadians, Sirians, Andromedans, Arcturians, Dracos, Reptilians, Zetas and all other sentient beings whatsoever were implanted with plasma implants and tied to Chimera's AI network (the Veil)."

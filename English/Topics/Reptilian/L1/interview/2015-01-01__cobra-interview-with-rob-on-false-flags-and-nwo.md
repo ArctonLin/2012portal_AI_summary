@@ -1,0 +1,3 @@
+<!-- topic: Reptilian | doc: interview/2015-01-01__cobra-interview-with-rob-on-false-flags-and-nwo | 2015-01-01 | Cobra Interview with Rob on False Flags and NWO Plans | keywords: reptilian -->
+[Relevant content] Rob asks about the Khazarians, noting they are descendants of Abraham's religion. Cobra identifies them as a branch of the Khazarians whose core area was used as a portal during Archon invasions to bring "reptilian hybrids in humanoid bodies" to Earth.
+[Key quotes] "The same area was used as a portal through various Archon invasions to bring reptilian hybrids in humanoid bodies to planet Earth and these are the ones that we call the Khazarians."

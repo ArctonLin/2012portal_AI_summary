@@ -1,0 +1,3 @@
+<!-- topic: Chimera | doc: posts/2015-12-20__solar-system-situation-update | 2015-12-20 | Solar System Situation Update | keywords: chimera -->
+[Relevant content] The Light Forces have started to clear the Chimera bases of the Kuiper Ring, beginning the disintegration of the Chimera's main defense line that previously prevented Light forces from taking control of the outer Solar System.
+[Key quotes] "The Light Forces have started to clear the Chimera bases of the Kuiper Ring and are thus beginning to disintegrate the main defense line of the Chimera which previously prevented the Light forces from taking full control of the outer Solar System."

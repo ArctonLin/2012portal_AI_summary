@@ -1,0 +1,4 @@
+<!-- topic: Reptilian | doc: posts/2012-04-17__forces-of-light-and-forces-of-darkness | 2012-04-17 | forces of light and forces of darkness | keywords: reptilian -->
+[Relevant content] The Resistance Movement is credited with clearing all remaining Reptilian forces from the solar system and, shortly after the year 2000, clearing all subterranean Reptilian bases in severe battles. The Rockefeller faction is described as consisting mostly of Draconian lords who used to have many Reptilian slaves in their galactic empire and attempted to repeat this slave society structure on Earth.
+[Key quotes] "With assistance from the Confederation, they have cleared all remaining Reptilian forces from this solar system. Shortly after the year 2000 they have also cleared all subterranean Reptilian bases in severe battles."
+"They are mostly Draconian lords that used to have many Reptilian slaves in their galactic empire and they wanted to repeat the same on Earth."
