@@ -19,9 +19,11 @@ L2: Entire year summary
 L3: All year summary
 
 ## Source 
-Source data from 2012portal.blogspot.com and www.golden-ages.org
+Source data from [2012portal Blog](2012portal.blogspot.com) and [Golden Age Group](www.golden-ages.org)
 
 English Summary here: [full-corpus-summary.md](English/full-corpus-summary.md)
+
+English Topic here: [English Topics](English/Topics)
 
 Chinese Summary here: [full-corpus-summary.md](Chinese/full-corpus-summary.md)
 
@@ -30,18 +32,12 @@ AI may be wrong.
 
 The text that AI read is based on [Cobra Voice EN](https://cobra-voice.net/en/) and [Cobra Voice CH](https://cobra-voice.net)
 
-You can use [English Search Site](https://cobra-voice.net/en/advanced_search.php) to scan English original post.
+You can use [English Search Page](https://cobra-voice.net/en/advanced_search.php) to search English original info.
 
-Or can use [Chinese Search Site](https://cobra-voice.net/advanced_search.php) to scan Chinese original post.
+Or can use [Chinese Search Page](https://cobra-voice.net/advanced_search.php) to search Chinese original info.
 
 ## Future work
-The English version only contain 2012portal post, the meeting and interview is not included.
-
-Only Chinese version contain all post, meeting and interview.
-
-But the AI is not good at chinese analysis.
-
-So I will collect the English version full data then try again if I have spare time.
+Now, I am summarize more English topics... I think it may take a week to do.
 
 Feel free to open a issue in github here if you have any suggestion.
 
