@@ -1,0 +1,4 @@
+<!-- topic: Cabal | doc: interview/2023-02-01__cobra-interview-on-goddess-temple-project-by-wlm | 2023-02-01 | Cobra Interview on Goddess Temple Project by WLMM | keywords: cabal -->
+[Relevant content] [reported] Cobra stated that while the pit beneath DARPA is the stronghold of the Chimera group, there are many other Cabal and Illuminati-oriented strongholds on the surface in military bases and other locations. Clearing the DARPA pit will collapse the rule of the Cabal on the surface of the planet.
+[Key quotes] "Of course, there are other strongholds this pit beneath DARPA is the stronghold of the Chimera group, but there are many other Cabal, Illuminati oriented strongholds on the surface, in the military bases and other locations."
+"This DARPA pit is a very powerful stronghold, and when this will be cleared, it'll be a huge breakthrough that will just collapse the rule of the Cabal on the surface of the planet."

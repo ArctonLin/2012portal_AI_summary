@@ -1,0 +1,4 @@
+<!-- topic: Toplet Bomb | doc: posts/2016-10-09__a-major-situation-update | 2016-10-09 | A Major Situation Update | keywords: toplet bomb, toplet -->
+[Relevant content] The mainframe computer of the Chimera group monitors surface population activity and prevents contact between the surface population and the Agartha network/ET beings of Light using plasma toplet bomb retaliation mechanisms. The Resistance and Pleiadian fleet cannot yet shut down scalar plasma weapons on LEO satellites because they are protected with plasma toplet bombs.
+[Key quotes] "That computer constantly monitors the activity of surface population and prevents contact between the surface population and the Agartha network and/or extraterrestrial beings of Light with plasma toplet bomb retaliation mechanisms."
+"The Resistance and the Pleiadian fleet can not yet shut down those weapons as they are protected with plasma toplet bombs."

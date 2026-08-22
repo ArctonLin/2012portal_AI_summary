@@ -1,0 +1,3 @@
+<!-- topic: Jesuit | doc: posts/2014-09-08__planetary-situation-update | 2014-09-08 | Planetary Situation Update | keywords: jesuit -->
+[Relevant content] Although the Black Nobility Archons are losing power, their Jesuit minions are keeping infiltrating the Eastern Alliance and the Dragons, hoping to create a new world war between the East and the West. Key people within the Eastern Alliance and Dragon groups are aware of this infiltration.
+[Key quotes] "Although the Black Nobility Archons keep losing power daily, their Jesuit minions keep infiltrating the Eastern Alliance and the Dragons, hoping to create a new world war between the East and the West."

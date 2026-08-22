@@ -1,0 +1,4 @@
+<!-- topic: Cabal | doc: posts/2017-06-12__vacuum-metastability-event | 2017-06-12 | Vacuum Metastability Event | keywords: cabal -->
+[Relevant content] Top members of the Cabal and many members of the Chimera are using the anomaly of the Long Island plasma vortex as a shield against the Light. This is why the East Coast has the highest concentration of the Cabal on the planet. The removal of the black stone will cause the underlying force that allowed the existence of the Cabal and suffering to cease to exist.
+[Key quotes] "Top members of the Cabal and many members of the Chimera are using the anomaly of this vortex as a shield against the Light and this is why the East Coast has the highest concentration of the Cabal on the planet."
+"The underlying force that was allowing the existence of the Cabal and suffering will cease to exist."

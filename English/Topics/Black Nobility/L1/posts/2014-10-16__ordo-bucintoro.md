@@ -1,0 +1,4 @@
+<!-- topic: Black Nobility | doc: posts/2014-10-16__ordo-bucintoro | 2014-10-16 | Ordo Bucintoro | keywords: black nobility -->
+[Relevant content] The post describes how Misraim masonic lodges were infiltrated by Jesuits and "misused by Italian Black Nobility for their purposes." It also mentions that Otto Skorzeny, a member of the Thule society, tried to re-create Ordo Bucintoro and misuse it for negative purposes together with "a Black Nobility member Junio Valerio Borghese," renaming it Order Palazzo Stern.
+[Key quotes] "Unfortunately, most Misraim masonic lodges were infiltrated by the Jesuits almost immediately and misused by Italian Black Nobility for their purposes."
+"Otto Skorzeny, a member of the Thule society, tried to re-create Ordo Bucintoro and misuse it for negative purposes together with a Black Nobility member Junio Valerio Borghese, and renamed it Order Palazzo Stern."

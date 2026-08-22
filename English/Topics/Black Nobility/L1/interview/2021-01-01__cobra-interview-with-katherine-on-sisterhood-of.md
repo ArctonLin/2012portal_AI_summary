@@ -1,0 +1,6 @@
+<!-- topic: Black Nobility | doc: interview/2021-01-01__cobra-interview-with-katherine-on-sisterhood-of | 2021-01-01 | Cobra interview with Katherine on Sisterhood of the Rose | keywords: black nobility -->
+[Relevant content] [reported] Cobra explains that the outer group of Templars was fighting with the Black Nobility for the domination of the planet and lost.
+[reported] Cobra states that the interconnection of Grail bloodlines (Bourbon and Habsbourg) among other bloodlines was made on purpose by the White Nobility to preserve Grail DNA and Goddess mysteries, while other bloodlines (incarnated in the area of Prussia) wanted to prevent this.
+
+[Key quotes] "And the purpose of that secret group was to preserve the Goddess mysteries while the outer group was more involved with the creation of a new financial system and was actually fighting with negative… with Black Nobility for the domination of the planet and they lost."
+"So this is the bloodline, which was transmitting DNA of a certain person that was named Jesus and a certain person that was named Mary Magdalene, and interconnection of those two bloodlines among other bloodlines was made on purpose by the White Nobility to preserve the Grail DNA and Goddess mysteries."

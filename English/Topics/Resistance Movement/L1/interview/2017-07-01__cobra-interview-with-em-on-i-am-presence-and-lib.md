@@ -1,0 +1,5 @@
+<!-- topic: Resistance Movement | doc: interview/2017-07-01__cobra-interview-with-em-on-i-am-presence-and-lib | 2017-07-01 | Cobra Interview with EM on I AM Presence and Liberation | keywords: resistance movement, resistance -->
+[Relevant content] [reported] Cobra confirmed that Resistance Members also underestimated the quarantine Earth status and were surprised by the difficulty and duration of the situation.
+[reported] Cobra mentioned that he was contacted by the Resistance at the time of previous attacks with direct and precise instructions on how to protect himself.
+[Key quotes] "Yes, they also underestimated the situation and it was quite a surprise for them as well. Not as much as for the surface population but still they were not expecting this to be so difficult and they were not expecting this to be taking so long."
+"I was contacted by the Resistance at the time of those attacks and shortly after those attacks with very direct and precise instructions about what to do to protect myself."

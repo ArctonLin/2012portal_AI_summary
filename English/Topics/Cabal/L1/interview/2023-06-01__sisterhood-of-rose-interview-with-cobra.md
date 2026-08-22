@@ -1,0 +1,4 @@
+<!-- topic: Cabal | doc: interview/2023-06-01__sisterhood-of-rose-interview-with-cobra | 2023-06-01 | Sisterhood of Rose Interview with Cobra | keywords: cabal -->
+[Relevant content] [reported] Cobra stated that the Cabal is pushing hard for the implementation of CBDCs, which represents a "digital prison" for full surveillance and control. The Cabal's plan for a new biochip technology tied to a global online digital currency system (the "Mark of the Beast") has been completely stopped and destroyed by the Light Forces and the Resistance Movement.
+[Key quotes] "You recently stated that the Cabal is pushing hard for the implementation of the CBDCs."
+"Okay. This plan has been completely stopped. This technology was destroyed by the Light Forces. The Resistance Movement has completely destroyed this new biochip technology. So it's not existing anymore."

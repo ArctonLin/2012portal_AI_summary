@@ -1,0 +1,4 @@
+<!-- topic: Black Nobility | doc: posts/2012-04-17__forces-of-light-and-forces-of-darkness | 2012-04-17 | forces of light and forces of darkness | keywords: black nobility -->
+[Relevant content] The document identifies the Rothschild faction as controlling the "Black nobility of Europe (except Italy)," describing them as mostly Rigelian dark lords in origin who were responsible for the deluge in Atlantis. The Jesuit faction is described as including "black nobility families of Italy."
+[Key quotes] "Black nobility of Europe (except Italy) belongs to this faction. They are mostly Rigelian dark lords in origin and in Atlantis they were responsible for the deluge."
+"About 10% of Jesuits belong to this faction, among with some cardinals, black pope (Adolfo Nicolas), white pope (Joseph Ratzinger) and black nobility families of Italy."

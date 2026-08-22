@@ -1,0 +1,3 @@
+<!-- topic: Illuminati | doc: posts/2024-09-15__matrix-and-luminous-plasma | 2024-09-15 | Matrix and Luminous Plasma | keywords: illuminati, brotherhood of death -->
+[Relevant content] The main dark network on the surface of the planet consists of globally interconnected layers of Negative military, Negative police, Black nobility, Illuminati, Deep state, and Negative financial complex. The Lurker subquantumly entangles with all those factions.
+[Key quotes] "What is now left is the main dark network on the surface of the planet which consists of globally interconnected layers of Negative military, Negative police, Black nobility, Illuminati, Deep state and Negative financial complex."

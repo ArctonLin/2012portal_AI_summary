@@ -1,0 +1,3 @@
+<!-- topic: Illuminati | doc: interview/2017-01-01__cobra-interview-with-louisa-on-the-goldfish-repo | 2017-01-01 | Cobra Interview with Louisa on The GoldFish Report | keywords: illuminati, brotherhood of death -->
+[Relevant content] [reported] Cobra identifies the "real fear of the Cabal, of those Illuminati networks" as the exposure of their crimes, specifically child abuse and experiments, which would cause extreme anger among the population.
+[Key quotes] "And when the truth comes out, people will be extremely angry...look at the French Revolution, and this is the real fear of the Cabal, of those Illuminati networks ..what happens when people find out about child abuse, about all the experiments, about everything that happened."

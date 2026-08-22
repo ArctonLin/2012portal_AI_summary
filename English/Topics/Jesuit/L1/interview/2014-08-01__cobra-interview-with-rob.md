@@ -1,0 +1,4 @@
+<!-- topic: Jesuit | doc: interview/2014-08-01__cobra-interview-with-rob | 2014-08-01 | Cobra Interview with Rob | keywords: jesuit -->
+[Relevant content] [reported] Cobra states that the Zionists are a faction inside the Cabal led by the Rothschild dynasty, and they are obeying directives from the Jesuits. Their objective is to remove Palestinians from Israel completely. He also states that the Rwandan Genocide in 1994 was an Archon creation organized through a Jesuit network that put certain people in positions in Rwanda and neighboring countries.
+[Key quotes] "The Rothchild’s dynasty is the leader of that faction. They are obeying the directive from the Jesuits. Their objective is to remove the Palestinians from Israel completely."
+"One was a Jesuit network which has put certain people in positions in Rwanda and neighboring countries."

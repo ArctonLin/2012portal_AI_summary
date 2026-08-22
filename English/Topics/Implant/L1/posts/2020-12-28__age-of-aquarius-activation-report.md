@@ -1,0 +1,3 @@
+<!-- topic: Implant | doc: posts/2020-12-28__age-of-aquarius-activation-report | 2020-12-28 | Age of Aquarius Activation Report | keywords: implant -->
+[Relevant content] Following the December 21st meditation, the Light Forces have begun the gradual clearing of the implants of surface humanity. The document provides links to implant removal techniques and implant triangulation exercises to assist in this process.
+[Key quotes] "They have also begun with gradual clearing of the implants of the surface humanity, and you can help them in this process with implant removal techniques mentioned here..."

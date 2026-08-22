@@ -1,0 +1,4 @@
+<!-- topic: Resistance Movement | doc: interview/2023-01-01__sisterhood-of-the-rose-interview-with-cobra | 2023-01-01 | Sisterhood of the Rose Interview with Cobra | keywords: resistance movement, resistance -->
+[Relevant content] Debra identified Cobra as the chief intel provider for the resistance movement. Cobra stated that underground Beings of Light, including the Resistance Movement, will become more active and involved in surface operations following the Portal of Light activation.
+[Key quotes] "Cobra is the chief intel provider for the resistance movement, where he offers important planetary and galactic information at his blog, 2012portal.blogspot.com."
+"...the Resistance Movement to have more influence on what's happening on the surface of the planet... underground Beings of Light will become more active. They will become more involved again in the surface operations."

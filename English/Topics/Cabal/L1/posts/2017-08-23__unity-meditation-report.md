@@ -1,0 +1,3 @@
+<!-- topic: Cabal | doc: posts/2017-08-23__unity-meditation-report | 2017-08-23 | Unity Meditation Report | keywords: cabal -->
+[Relevant content] The Archons were occultly using the East Coast plasma vortex to protect the Cabal. With this protective cover nearly gone, many actions of the Cabal, including their extensive child abuse networks, will be soon exposed to the general population.
+[Key quotes] "The Archons were occultly using the East Coast plasma vortex to protect the Cabal and with this protective cover now nearly gone, many actions of the Cabal, including their extensive child abuse networks, will be soon exposed to the general population."

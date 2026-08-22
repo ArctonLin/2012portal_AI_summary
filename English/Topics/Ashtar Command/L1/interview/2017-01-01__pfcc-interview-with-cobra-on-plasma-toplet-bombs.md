@@ -1,0 +1,4 @@
+<!-- topic: Ashtar Command | doc: interview/2017-01-01__pfcc-interview-with-cobra-on-plasma-toplet-bombs | 2017-01-01 | PFCC interview with COBRA on plasma toplet bombs | keywords: ashtar command -->
+[Relevant content] A nine-year-old child claims to communicate with the Ashtar Command and that Ashtar imparts that between April and September 2017, the plasma toplet bombs will be disarmed. Cobra states that the child's statements about him and the Resistance are not correct.
+[Key quotes] "There is a nine-year-old child from Chong Qing, who claims that he can have out of body experience or astral projection once he meditates to communicate with the blue Avians, Ashtar Command and the inner earth civilization. Quite lately, Ashtar imparts him that between April and September 2017, the plasma toplet bombs will be disarmed and the event will occur straight away without delay."
+"His statements about me and the Resistance are not correct."

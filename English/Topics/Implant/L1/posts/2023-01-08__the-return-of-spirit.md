@@ -1,0 +1,3 @@
+<!-- topic: Implant | doc: posts/2023-01-08__the-return-of-spirit | 2023-01-08 | The Return of Spirit | keywords: implant -->
+[Relevant content] The Light Forces are using Mjolnir technology to remove black holes from implants and from the inverted grid on the surface of the planet. When the critical mass of these black holes is removed, positive spiritual energy from the Buddhic plane will begin to precipitate on the surface planes for the first time since 1996.
+[Key quotes] "The Light Forces are using Mjolnir technology to remove the black holes from the implants and from the inverted grid on the surface of the planet."

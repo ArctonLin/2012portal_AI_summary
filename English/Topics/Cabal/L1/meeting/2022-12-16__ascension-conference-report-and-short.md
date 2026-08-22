@@ -1,0 +1,4 @@
+<!-- topic: Cabal | doc: meeting/2022-12-16__ascension-conference-report-and-short | 2022-12-16 | ascension-conference-report-and-short | keywords: cabal -->
+[Relevant content] [reported] The Cabal repackaged catastrophic information regarding the end of times into the narrative of global warming. The Cabal reacts according to its traumas and does not use common sense, although it is aware of the polar shift. The Cabal is one of two groups of influence gripping the mass of humanity, alongside the warriors of light.
+[Key quotes] "And finally all this catastrophic information about the end of times was repackaged in a rather special way into global warming by the Cabal."
+"Why does the Cabal continue to act as it does if it knows about the polar shift? Answer: the Cabal is not rational and it is in its traumas."

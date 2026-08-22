@@ -1,0 +1,3 @@
+<!-- topic: Toplet Bomb | doc: interview/2019-10-30__cobra-interview-silver-trigger-activation | 2019-10-30 | Cobra Interview: Silver Trigger Activation | keywords: toplet bomb, toplet -->
+[Relevant content] [reported] At the upcoming Taiwan Ascension Conference, Cobra will provide more detailed explanations of the primary anomaly and the toplet bomb to help people understand why the Event hasn't happened yet and what conditions need to be fulfilled.
+[Key quotes] "Also I will give even more detailed explanations of the primary anomaly, of the toplet bomb, so that people can really understand what is going on behind the scene."

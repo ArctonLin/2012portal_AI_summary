@@ -1,0 +1,3 @@
+<!-- topic: Implant | doc: posts/2022-01-03__divine-intervention-activation-report | 2022-01-03 | Divine Intervention Activation Report | keywords: implant -->
+[Relevant content] For Pleiadian contact to occur, individuals who do not own land must be in nature at least 60 meters/yards away from the nearest human being to avoid implant/biochip interference.
+[Key quotes] "People who do not own land will be contacted also, but for that contact they will need to be in nature at least 60 meters/yards away from the nearest human being to avoid implant / biochip interference, and as far away as possible from the local military bases."

@@ -1,0 +1,3 @@
+<!-- topic: Biochip | doc: interview/2015-01-01__cobra-interview-with-rob-on-jade-helm-and-the-ev | 2015-01-01 | Cobra Interview with Rob on Jade Helm and the Event | keywords: biochip -->
+[Relevant content] [reported] Cobra confirmed that following the 1996 Archon invasion, a mass implant program was conducted from 1996 to 1999. This involved massive implantation through plasma etheric scalar technology, the distribution of implants globally through vaccination programs containing biochips, and physical implants inserted in underground bases after trauma-based mind programming sessions.
+[Key quotes] "Second, there was a lot of implants being distributed globally through vaccinations programs with biochips."

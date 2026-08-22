@@ -1,0 +1,3 @@
+<!-- topic: Jesuit | doc: posts/2021-07-13__planetary-situation-update | 2021-07-13 | Planetary Situation Update | keywords: jesuit -->
+[Relevant content] Child abuse centers exist below some castles of the Black nobility and below some churches and Catholic schools under Jesuit control. The top priority of the Resistance and Positive military is to rescue children captured there.
+[Key quotes] "and also child abuse centers below some castles of the Black nobility and below some churches and Catholic schools under Jesuit control. Top priority of the Resistance and the Positive military now is to rescue as many children as possible still captured there."

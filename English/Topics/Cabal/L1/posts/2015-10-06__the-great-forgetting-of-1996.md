@@ -1,0 +1,5 @@
+<!-- topic: Cabal | doc: posts/2015-10-06__the-great-forgetting-of-1996 | 2015-10-06 | The Great Forgetting of 1996 | keywords: cabal -->
+[Relevant content] During the 1996 invasion, all Cabal factions within the Solar System were implanted with plasma implants and tied to Chimera's AI network (the Veil). Massive geopolitical shifts are currently taking place that will lead to the final defeat of the Cabal. The area of the Hassuna-Samarra Goddess vortex (Syria and most likely soon Iraq) is described as the playing ground for the proxy war between the Eastern Alliance and the Cabal.
+[Key quotes] "All beings contained within that barrier inside the Solar System, including all surface humans, all Cabal factions... were implanted with plasma implants and tied to Chimera's AI network (the Veil)."
+"There are massive geopolitical shifts taking place right now that will lead to the final defeat of the Cabal."
+"The area of the Hassuna-Samarra Goddess vortex (Syria and most likely soon Iraq) is now the playing ground for the proxy war between the Eastern Alliance and the Cabal:"

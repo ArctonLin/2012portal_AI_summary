@@ -1,0 +1,3 @@
+<!-- topic: Jesuit | doc: interview/2016-05-26__cobra-pfc-may-interview-with-richard-and-lynn | 2016-05-26 | Cobra PFC May Interview with Richard and Lynn | keywords: jesuit -->
+[Relevant content] [reported] Cobra states that Jesuits and other Archon forces have attempted to cast a negative light on witchcraft to suppress female healers who used the practice to improve living conditions.
+[Key quotes] "Jesuits and some other Archon forces have tried to put a bad light on witchcraft and describe it as something negative because there were many female healers that were using this practice to heal and improve the conditions of their fellow living beings around the planet."

@@ -1,0 +1,3 @@
+<!-- topic: Cabal | doc: posts/2013-03-09__weekly-liberation-meditations-phase-2_9 | 2013-03-09 | weekly liberation meditations phase 2 9 | keywords: cabal -->
+[Relevant content] The meditation instructions include visualizing members of the physical dark Cabal (Rothschilds, Rockefellers, Kissinger, George Bush, Jesuits) surrendering and stepping down from power, releasing control over the financial system and mass media. Civil authority is to arrest those who do not surrender.
+[Key quotes] "Visualize members of the physical dark Cabal, such as central banking criminals Rothschilds and Rockefellers, and other members of this Cabal such as Henry Kissinger, George Bush, the Jesuits etc. peacefully surrendering and stepping down from their positions of power"

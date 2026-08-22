@@ -1,0 +1,4 @@
+<!-- topic: Implant | doc: interview/2014-08-01__cobra-interview-with-rob | 2014-08-01 | Cobra Interview with Rob | keywords: implant -->
+[Relevant content] [reported] Rob asks if there has been progress in the removal of etheric implants and invisibles after the cosmic goddess solstice activation. [reported] Cobra states there was some progress but not yet enough. [reported] Cobra states that when scalar technology and implants are removed, there will be a drastic improvement in well-being, with people becoming happier, more balanced, and less violent.
+[Key quotes] "There was some progress but not yet enough."
+"When the scalar technology and the implants are removed there will be a drastic improvement in well being. People will be much more happy. People will be much more balanced and much less violent behavior among general population."

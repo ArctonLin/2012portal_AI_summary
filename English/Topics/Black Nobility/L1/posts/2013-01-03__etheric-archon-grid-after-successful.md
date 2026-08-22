@@ -1,0 +1,3 @@
+<!-- topic: Black Nobility | doc: posts/2013-01-03__etheric-archon-grid-after-successful | 2013-01-03 | etheric archon grid after successful | keywords: black nobility -->
+[Relevant content] The document states that etheric Archons transmit data from the etheric mainframe computer into the physical Black Box, which is in the possession of one of the main Italian black nobility families and is connected to the physical mainframe computer of the Cabal ("the Beast").
+[Key quotes] "Etheric Archons transmit data from the etheric mainframe computer into the physical Black Box which is in possession of one of the main Italian black nobility families and is connected with the physical mainframe computer of the Cabal (»the Beast«)..."

@@ -1,0 +1,3 @@
+<!-- topic: Implant | doc: interview/2015-09-23__q-a-with-cobra-on-the-promise-revealed | 2015-09-23 | Q&A with Cobra on The Promise Revealed | keywords: implant -->
+[Relevant content] [reported] Cobra states that the connection between beings in the universe and the sea of universal love was cut artificially with "implants" in this sector of the universe millions of years ago. Planet Earth is described as the last remnant of that factor.
+[Key quotes] "That connection was cut artificially with implants in this sector of the universe millions of years ago, and the last remnant of that factor is planet Earth..."

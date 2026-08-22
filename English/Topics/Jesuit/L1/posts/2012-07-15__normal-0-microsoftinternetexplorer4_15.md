@@ -1,0 +1,5 @@
+<!-- topic: Jesuit | doc: posts/2012-07-15__normal-0-microsoftinternetexplorer4_15 | 2012-07-15 | normal 0 microsoftinternetexplorer4 15 | keywords: jesuit -->
+[Relevant content] The post claims that a special task group created by Archons about 2500 years ago created the Jesuits, who have been running the show on the planet for the last 500 years. It identifies Hans Kolvenbach as the old black Pope and Adolfo Nicolas as the new one. It states that Rothschilds are the bankers for the Jesuits in the last two centuries and that the Rockefeller/Illuminazi faction is a Jesuit creation of the 20th century.
+[Key quotes] "Anyway, this group has created the Jesuits and Jesuits are running the show on this planet for the last 500 years as you can read in this fairly accurate, although a little outdated report:"
+"Rothschilds are the bankers for the Jesuits in the last two centuries."
+"The Rockefeller / Illuminazi faction is a Jesuit creation of the 20th century with a purpose to hinder and misuse the technological and scientific progress of humanity"

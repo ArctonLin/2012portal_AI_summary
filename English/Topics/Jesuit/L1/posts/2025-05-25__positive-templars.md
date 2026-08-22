@@ -1,0 +1,3 @@
+<!-- topic: Jesuit | doc: posts/2025-05-25__positive-templars | 2025-05-25 | Positive Templars | keywords: jesuit -->
+[Relevant content] The document includes a link to an article titled "The Black Nobility Jesuit Order Founders of Fascism Freemasonry Illuminati The Vatican and Zionism," noting that families related to the Grail bloodline lost power after World Wars due to the focused effort of the 13th Illuminati bloodline to destroy the Goddess.
+[Key quotes] "All those families lost a lot of power after both world wars after the focused effort of the 13th Illuminati bloodline to destroy the Goddess: https://www.humorousmathematics.com/post/the-black-nobility-jesuit-order-founders-of-fascism-freemasonry-illuminati-the-vatican-and-zionism"

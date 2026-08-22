@@ -1,0 +1,3 @@
+<!-- topic: Implant | doc: interview/2026-07-02__sisterhood-of-the-rose-interview-with-cobra-12-21-ascension-portal-activation-pa | 2026-07-02 | Sisterhood of the Rose Interview with Cobra "12:21 ASCENSION PORTAL ACTIVATION PART 2" | keywords: implant -->
+[Relevant content] [reported] Cobra stated that he has previously described how the implants are structured, what the programming is, and how this is being dismantled. He noted that this process has not even started in terms of the specific healing of the divine masculine and feminine union related to these structures.
+[Key quotes] "I was describing how the implants are structured, what the programming is and how this is being dismantled. And if people follow that guidance, there will be many breakthroughs."

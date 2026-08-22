@@ -1,0 +1,5 @@
+<!-- topic: Toplet Bomb | doc: posts/2018-07-28__make-this-viral-key-to-freedom | 2018-07-28 | MAKE THIS VIRAL! KEY TO FREEDOM MEDITATION AT THE ECLIPSE 2018-8-11 | keywords: toplet bomb, toplet -->
+[Relevant content] Plasma toplet bombs are located inside the planetary plasma shield. They are the real reason for the current impasse between Light and dark forces, ensuring mutually assured destruction (MAD). When these bombs are removed, a breakthrough can happen. The meditation instructions include visualizing the White Fire of AN purifying all remaining toplet bombs on the plasma plane and Light Forces removing/dissolving them.
+[Key quotes] "Plasma toplet bombs are still located inside the planetary plasma shield... They are the real reason for current impasse between the Light and the dark forces, and are assuring mutually assured destruction (MAD)..."
+"When those toplet bombs are removed, the breakthrough can happen."
+"Visualize the White Fire of AN purifying all remaining toplet bombs on plasma plane around the Earth. Visualize the Light Forces of Galactic Command Fleet removing and dissolving all remaining toplet bombs with their advanced technologies."

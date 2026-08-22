@@ -1,0 +1,3 @@
+<!-- topic: Toplet Bomb | doc: interview/2017-12-01__cobra-interview-by-we-love-mass-meditation | 2017-12-01 | Cobra Interview by We Love Mass Meditation | keywords: toplet bomb, toplet -->
+[Relevant content] Cobra stated that many plasma toplet bombs have been cleared, but a few more need to be cleared. The Event cannot happen without these plasma toplet bombs being removed.
+[Key quotes] "C: I would say that many has been cleared already and there are a few much more that needs to be cleared so that problem has not been resolved yet but will need to be resolved before The Event can happen. The Event can NOT happen without these [plasma toplet bombs] being removed."

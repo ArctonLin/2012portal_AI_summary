@@ -1,0 +1,3 @@
+<!-- topic: Toplet Bomb | doc: interview/2017-12-24__cobra-interview-by-international-golden-age-grou | 2017-12-24 | Cobra Interview by International Golden Age Group | keywords: toplet bomb, toplet -->
+[Relevant content] Cobra stated that the conditions of the plasma plane, specifically the toplet bombs, are "absolutely not ready" for the Event.
+[Key quotes] "C : Yes when the time is right. But the conditions are not right, it’s not about the number of Lightworkers… I would say they are ready. But there are other things that are not ready, basically the conditions of the plasma plane, the toplet bombs, that is absolutely not ready."

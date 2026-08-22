@@ -1,0 +1,5 @@
+<!-- topic: Resistance Movement | doc: posts/2012-05-12__normal-0-microsoftinternetexplorer4_12 | 2012-05-12 | normal 0 microsoftinternetexplorer4 12 | keywords: resistance movement, resistance -->
+[Relevant content] The document is an open letter addressed to Drake, David Wilcock, Benjamin Fulford, Bill Brockbrader, and Kerry Cassidy, calling for unity among "key positive players" to assist in the liberation of Earth from "dark forces." The author invites these individuals to meet (in person or via Skype) to settle differences, forgive, and create a "unified field of light, love and support" to design a strategy for liberation. The author provides the contact email "cobraresistance@gmail.com" for coordination.
+[Key quotes] "It is time to forget our apparent differences and join forces in our fight for freedom."
+"We need to create a coherent field of intent that will manifest through the masses of humanity."
+"You can contact me if you are so guided at cobraresistance@gmail.com and we can coordinate things."

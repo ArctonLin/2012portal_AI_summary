@@ -1,0 +1,5 @@
+<!-- topic: Black Nobility | doc: posts/2023-10-10__situation-update | 2023-10-10 | Situation Update | keywords: black nobility -->
+[Relevant content] On October 5th, the Resistance cleared the vast majority of child abuse locations in the cellars under Black nobility castles, rescuing many children. The Black nobility viewed this as an intrusion on their private property and became afraid for their lives. In response, the Pallavicini family gave orders to activate Doom33. The goal of the Black nobility is to expand the Israeli conflict to create World War III in alignment with Armageddon prophecies.
+[Key quotes] "on October 5th the Resistance has cleared the vast majority of child abuse locations in the cellars under Black nobility castles, rescuing many children."
+"Black nobility has seen this as an act of intrusion on their private property and for the first time in their existence they became afraid for their own lives."
+"The goal of the Black nobility is to expand Israeli conflict as far as possible with hopes to create a Word War III in alignment with Armageddon prophecies"

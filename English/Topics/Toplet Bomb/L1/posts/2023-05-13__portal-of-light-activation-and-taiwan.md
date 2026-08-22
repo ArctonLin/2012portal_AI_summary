@@ -1,0 +1,4 @@
+<!-- topic: Toplet Bomb | doc: posts/2023-05-13__portal-of-light-activation-and-taiwan | 2023-05-13 | Portal of Light Activation and Taiwan Conference Reports | keywords: toplet bomb, toplet -->
+[Relevant content] Following the Portal of Light activation, the Light forces destroyed all remaining toplet bombs. This is described as a huge victory because toplet bombs represented a major danger to the planet and a huge barrier against planetary liberation. The removal of toplet bombs makes removing other obstacles easier, faster, and less risky.
+[Key quotes] "Second, the Light forces have destroyed all remaining toplet bombs. This is a huge victory, since topet bombs represented major danger to the planet and a huge barrier against the planetary liberation."
+"The good news is that removing all remaining obstacles will be much easier, relatively faster and much less risky than removing the toplet bombs."

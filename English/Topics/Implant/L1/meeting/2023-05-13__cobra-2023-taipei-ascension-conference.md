@@ -1,0 +1,7 @@
+<!-- topic: Implant | doc: meeting/2023-05-13__cobra-2023-taipei-ascension-conference | 2023-05-13 | Cobra 2023 Taipei Ascension Conference | keywords: implant -->
+[Relevant content] [reported] Cobra describes three implants in the human body: two in the frontal lobe above the eyes and one above the belly button. The brain implants affect normal thinking, while the belly button implant blocks Kundalini energy flow and suppresses sexual energy, causing separation between sex and love.
+[reported] The dark forces have implanted electromagnetic fences in the human aura using artificial standing waves to project misconceptions and false ideas.
+[reported] The 3-D false matrix reality includes implants that all humans have been implanted with; the two implants above the eyebrows block connection to Source and free will initiative, while the one near the navel suppresses emotions and blocks Kundalini energy.
+[Key quotes] "There are three implants in the human body, two in the frontal lobe above the eyes and one above the belly button. The two brain implants affect humans’ normal thinking"
+"The implant above the belly button blocks Kundalini energy flow. It can also suppress human sexual energy and cause sex/ love separation."
+"It includes the implants that all humans have been implanted with. The two implants just above Each eyebrow on the frontal lobe blocks our connection to source and blocks our Freewill initiative. The one near the naval Suppresses our emotions and blocks our kundalini energy."

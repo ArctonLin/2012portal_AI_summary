@@ -1,0 +1,3 @@
+<!-- topic: Jesuit | doc: posts/2012-04-06__resistance-movement-normal-0 | 2012-04-06 | resistance movement normal 0 | keywords: jesuit -->
+[Relevant content] The post states that the Resistance Movement seized most of the gold that was in Illuminati hands in January and early February 2012. It explicitly notes that this gold is not scattered in safes of small banks around the world under Jesuit control, but is now in underground chambers of the Resistance Movement.
+[Key quotes] "It is not in Mariana trench, it is not in Fort Knox, it is not in cellars of private Rothschild villas and chateaux, it is not in vaults under Kloten airport, it is not in safes of UBS in Zurich, it is not scattered in safes of small banks around the world under Jesuit control."

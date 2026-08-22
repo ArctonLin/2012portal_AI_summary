@@ -1,0 +1,3 @@
+<!-- topic: Black Nobility | doc: interview/2015-10-27__q-a-with-cobra-on-the-promise-revealed | 2015-10-27 | Q&A with Cobra on The Promise Revealed | keywords: black nobility -->
+[Relevant content] [reported] Rob asks for a hierarchy of dark forces. Cobra states: "I would say the black nobility, the Archons controlling the Jesuits and the Knights of Malta, and they are controlling the Rothschilds, and they then branch to the Israeli, actually the Khazarian network..."
+[Key quotes] "I would say the black nobility, the Archons controlling the Jesuits and the Knights of Malta, and they are controlling the Rothschilds, and they then branch to the Israeli, actually the Khazarian network which is in Israel, US, UK, Turkey, Qatar, Saudi Arabia."

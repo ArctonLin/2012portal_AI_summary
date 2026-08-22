@@ -1,0 +1,4 @@
+<!-- topic: Cabal | doc: posts/2018-11-30__short-situation-update | 2018-11-30 | Short Situation Update | keywords: cabal -->
+[Relevant content] The Cabal is realizing they will lose and has recently used Directed Energy Weapons in California to burn masses of people alive. Their occult purpose was to create a fire sacrifice to create a negative anomaly vortex to attract more cosmic primary anomaly to Earth to prolong their control.
+[Key quotes] "On the other hand, the Cabal is realizing more and more that they will lose, and they do not take defeat lightly. They have recently used Directed Energy Weapons in California to burn masses of people alive"
+"Their occult purpose behind this mass murder was to create a fire sacrifice to create a negative anomaly vortex to attract more of the cosmic primary anomaly to planet Earth to prolong their control of the planet."

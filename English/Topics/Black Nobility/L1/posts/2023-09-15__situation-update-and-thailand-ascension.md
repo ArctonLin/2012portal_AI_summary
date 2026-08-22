@@ -1,0 +1,5 @@
+<!-- topic: Black Nobility | doc: posts/2023-09-15__situation-update-and-thailand-ascension | 2023-09-15 | Situation Update and Thailand Ascension Conference | keywords: black nobility -->
+[Relevant content] Black nobility is described as being at the top of the food chain on the planet. They were mandated by the Chimera 26,000 years ago to manage and control the surface population. Since the Chimera is gone, they are connecting with the Lurker in black magic rituals. Main families include Orsini, Colonna, Torlonia, Theodoli, and Massimo, who claim descent from the Roman empire. Black nobility members together with their Jesuit agents are about 2,000 people strong.
+[Key quotes] "Black nobility is now on the top of the food chain on this planet. They were mandated by the Chimera 26,000 year ago to run the management and control of the surface population."
+"Main black nobility families such as Orsini, Colonna, Torlonia, Theodoli and Massimo claim their descent from the Roman empire."
+"Black nobility members together with their Jesuit agents are about 2000 people strong."

@@ -1,0 +1,3 @@
+<!-- topic: Ashtar Command | doc: interview/2021-12-21__cobra-interview-divine-intervention-activation | 2021-12-21 | Cobra Interview: Divine Intervention Activation | keywords: ashtar command -->
+[Relevant content] [reported] After the December 21st Activation, groups can use the momentum to connect with the Ashtar Command to keep the channel open.
+[Key quotes] "After the Activation on December 21st, you can use this momentum in your groups to connect, to use meditations, to connect with our Galactic friends, with the Galactic Confederation, with the Ashtar Command, with the Pleiadians, with Sirians. So just to keep that connection, which will be established and to keep the channel open."

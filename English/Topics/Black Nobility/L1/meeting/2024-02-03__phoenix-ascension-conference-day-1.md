@@ -1,0 +1,3 @@
+<!-- topic: Black Nobility | doc: meeting/2024-02-03__phoenix-ascension-conference-day-1 | 2024-02-03 | Phoenix Ascension Conference Day 1 Presented by Cobra | keywords: black nobility -->
+[Relevant content] Andromedan forces and Aldebaran forces are actively involved in the liberation process. These races are skilled at dealing with draconian races and black nobility. When the situation is ready, they will come to below and on the surface of the planet to trigger the liberation.
+[Key quotes] "They are skilled of dealing with draconian races and black nobility. So, when the situation is ready, they will come to below and on the surface of the planet to trigger it."

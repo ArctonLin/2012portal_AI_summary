@@ -1,0 +1,4 @@
+<!-- topic: Black Nobility | doc: interview/2026-07-02__sisterhood-of-the-rose-interview-with-cobra-12-21-ascension-portal-activation-pa | 2026-07-02 | Sisterhood of the Rose Interview with Cobra "12:21 ASCENSION PORTAL ACTIVATION PART 2" | keywords: black nobility -->
+[Relevant content] [reported] Cobra stated that the black nobility, Jesuits, and Zionists believe the US-Iran war is being used as an end-time showdown like Armageddon to manifest the arrival of their messiah, whom Cobra identified as the "prince of darkness."
+[Key quotes] "Debra: Now you mentioned in a recent update that the black nobility, the Jesuits, and the Zionists believe that the US-Iran war is being used as an end time showdown like the Armageddon. They intend to use war to manifest the arrival of their messiah. Can you tell us who is their messiah...
+Cobra: The prince of darkness is their messiah..."

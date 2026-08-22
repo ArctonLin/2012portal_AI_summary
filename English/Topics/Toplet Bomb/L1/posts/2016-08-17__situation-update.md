@@ -1,0 +1,3 @@
+<!-- topic: Toplet Bomb | doc: posts/2016-08-17__situation-update | 2016-08-17 | Situation Update | keywords: toplet bomb, toplet -->
+[Relevant content] Since mid-July, the concentration of toplet plasma bombs has fallen below a certain threshold which allows cracks in the Veil to appear. This means plasma free of primary anomaly began to appear on the surface of the planet, allowing clearer vertical energetic communication with non-physical spiritual guides.
+[Key quotes] "Since mid-July, the concentration of toplet plasma bombs has fallen below a certain threshold which allows cracks in the Veil to appear."

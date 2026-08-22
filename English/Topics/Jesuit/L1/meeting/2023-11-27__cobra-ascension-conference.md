@@ -1,0 +1,3 @@
+<!-- topic: Jesuit | doc: meeting/2023-11-27__cobra-ascension-conference | 2023-11-27 | Cobra Ascension Conference | keywords: jesuit -->
+[Relevant content] [reported] Cobra stated that during the French Revolution, the controlling people or Jesuits infiltrated the French freemasonry movement and other forces to change the form of the government, causing the revolution to become more violent.
+[Key quotes] "One example is French Revolution. The purpose of the people involved in the French revolution was to bring more equality to the people. But what actually happened was the controlling people or Jesuits infiltrating the French freemasonry movement and other forces to change the form of the government, and the revolution became more violent."

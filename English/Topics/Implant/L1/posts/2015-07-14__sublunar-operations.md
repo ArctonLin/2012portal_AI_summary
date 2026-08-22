@@ -1,0 +1,5 @@
+<!-- topic: Implant | doc: posts/2015-07-14__sublunar-operations | 2015-07-14 | Sublunar Operations | keywords: implant -->
+[Relevant content] Sublunar space is a region of intense Chimera activity. Some man-made satellites double as "Chimera plasma strangelet bomb implant stations." The Manned Orbiting Laboratory (MOL), officially canceled in 1969, is identified as the most important Chimera implant station. Other implant stations are located on some geostationary/geosynchronous satellites and some Near Earth Orbit (NEO) satellites, particularly the Keyhole (KH) group. Sublunar operations aim to remove all Chimera presence, their implant stations, and plasma bombs from this space.
+[Key quotes] "There are may man-made satellites orbiting the Earth, and some of them double as Chimera plasma strangelet bomb implant stations"
+"This project [Manned Orbiting Laboratory] was officially canceled in 1969, but in reality it went deep black and is still now the most important Chimera implant station."
+"The second group of Chimera implant stations are some of the geostationary and geosynchronous satellites"

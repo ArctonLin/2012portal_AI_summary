@@ -1,0 +1,5 @@
+<!-- topic: Illuminati | doc: interview/2016-09-01__cobra-interview-with-patrick-from-pfc | 2016-09-01 | Cobra Interview with Patrick from PFC | keywords: illuminati, brotherhood of death -->
+[Relevant content] [reported] Cobra states that the story of the Iron Mask is a symbol of the Illuminati, used to introduce Illuminati symbology into the mass population. [reported] Cobra explains that the Resistance Movement on Planet X treated the "Illuminati slave masters" in the same way the Cabal will be processed on Earth at the Event, with many going to the Central Sun.
+[Key quotes] "Actually, iron mask is one of the symbols of illuminati, and the purpose of this was to introduce part of the illuminati symbology in the mass population."
+"Do you know how the Resistance Movement on Planet X treated those illuminati slave masters right after they liberated their planet ?"
+"They were processed in the same way the cabal will be processed on planet Earth at the Event, and many of them went in to the Central Sun."

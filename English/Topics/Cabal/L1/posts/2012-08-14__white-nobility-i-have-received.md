@@ -1,0 +1,5 @@
+<!-- topic: Cabal | doc: posts/2012-08-14__white-nobility-i-have-received | 2012-08-14 | white nobility i have received | keywords: cabal -->
+[Relevant content] Not all aristocratic families have associated with the Cabal; the White Nobility has resisted. Black Nobility families associated with the Jesuits (Pallavicini, Orsini, Massimo, Borghese, Aldobrandini, Colonna, Pacelli, Odescalchi, Ortolani, Luzzatti) receive orders directly from Archons and are at the core of the conspiracy against the Goddess. Rothschilds are "nobility wannabes" left out of the information loop. Rockefellers are "plain commoners" with no idea of what is really going on.
+[Key quotes] "Black Nobility families that are associated with the Jesuits are allergic to the Goddess energy."
+"Rothschilds are nobility wannabes... and do not understand completely the occult war that is going on in the highest circles as they are left out of the information loop."
+"Meanwhile, Rockefellers are plain commoners and do not have the slightest idea about what is really going on."

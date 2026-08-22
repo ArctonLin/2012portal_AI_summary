@@ -1,0 +1,4 @@
+<!-- topic: Cabal | doc: posts/2012-06-15__normal-0-microsoftinternetexplorer4_15 | 2012-06-15 | normal 0 microsoftinternetexplorer4 15 | keywords: cabal -->
+[Relevant content] The dark Cabal is stated to have needed 25,000 years to create the Matrix and enslave humanity. Meditation instructions include visualizing members of the physical dark Cabal (Rothschilds, Rockefellers, Henry Kissinger, George Bush, Jesuits) peacefully surrendering and stepping down from power, releasing control over the financial system and mass media. Civil authority is visualized arresting Cabal members who do not surrender.
+[Key quotes] "The dark Cabal needed 25,000 years to create the Matrix and enslave humanity."
+"Visualize members of the physical dark Cabal, such as central banking criminals Rothschilds and Rockefellers, and other members of this Cabal such as Henry Kissinger, George Bush, the Jesuits etc. peacefully surrendering and stepping down from their positions of power."

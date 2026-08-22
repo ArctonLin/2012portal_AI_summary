@@ -1,0 +1,4 @@
+<!-- topic: Implant | doc: interview/2017-04-01__cobra-march-2017-interview-with-prepare-for-chan | 2017-04-01 | Cobra March 2017 Interview with Prepare For Change | keywords: implant -->
+[Relevant content] [reported] Aaron asks if marijuana is implanted and chipped with nano-tech. Cobra confirms this is true.
+
+[Key quotes] "Aaron – Next question. I found the following statement and I’d like you to tell us what you know about this: The statement starts by saying: Do you really think that you are getting pure marijuana, or clean marijuana? Think again! This is the marijuana especially the legal medical grade which is cataloged in Quantico Virginia at the FBI; implanted and chipped…. nano tech., it’s all GMO nanite compatible, very tiny computer systems. Same as with all smokes, vape, junk foods, etc. He’s asking Is this true? COBRA – Yes it’s true."

@@ -1,0 +1,5 @@
+<!-- topic: Cabal | doc: posts/2012-06-25__normal-0-microsoftinternetexplorer4_25 | 2012-06-25 | normal 0 microsoftinternetexplorer4 25 | keywords: cabal -->
+[Relevant content] The dark Cabal tried to infiltrate the Positive Military group to stop the mass arrests, which is currently being dealt with. Stardust 2 is a defense weapon that will be activated to prevent the Cabal from doing harm at the time of the Event, targeting neurotransmitters in the nerve cells of Cabal members. Taking hard-core Cabal members into the Galactic Central Sun is described as healing, not punishment, for those damaged beyond repair.
+[Key quotes] "The dark Cabal tried to infiltrate the Positive Military group to stop the mass arrests but this is currently successfully being dealt with."
+"Stardust 2 is a defence and not an attack weapon. It will be activated only to prevent the Cabal from doing harm at the time of the Event."
+"Taking certain hard-core members of the Cabal into the Galactic Central Sun is healing, not punishment."

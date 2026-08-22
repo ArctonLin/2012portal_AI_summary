@@ -1,0 +1,3 @@
+<!-- topic: Implant | doc: interview/2025-07-26__sisterhood-of-the-rose-interview-with-cobra-12-21-ascension-portal-activation | 2025-07-26 | Sisterhood of the Rose Interview with Cobra "12:21 Ascension Portal Activation" | keywords: implant -->
+[Relevant content] [reported] The region of Israel was the main implantation and programming center in the time of Atlantis and a main anchor for the Dark Lodge. The purification of Israel is coming towards the end of the planetary liberation process.
+[Key quotes] "That region is quite active since the times of Atlantis. It was the main implantation and programming center in the time of Atlantis, and in the later part of Atlantis, it was one of the main anchors for the Dark Lodge, the dark lords of Atlantis coming from Orion."

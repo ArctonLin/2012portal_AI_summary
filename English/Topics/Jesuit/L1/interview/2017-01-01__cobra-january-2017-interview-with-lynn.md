@@ -1,0 +1,5 @@
+<!-- topic: Jesuit | doc: interview/2017-01-01__cobra-january-2017-interview-with-lynn | 2017-01-01 | Cobra January 2017 Interview with Lynn | keywords: jesuit -->
+[Relevant content] [reported] Cobra confirms that attempts to secede from the US, such as the Cal-exit movement, are supported by the Cabal to weaken the region, and notes that these strategies fit Jesuit and Agenda 21 maps. Cobra states that Saudi Arabia is strongly controlled by the Jesuits and the Cabal due to the presence of shallow underwater ruins. Cobra describes Trump as someone who can be manipulated to steer the situation closer to the Jesuit agenda.
+[Key quotes] "Justin Trudeau is encouraging the states of Oregon and Washington to leave the US and join Canada with the strategy to “Balkanize” western and border states along Mexico and Canada into regions that fit Jesuit and Agenda 21 maps."
+"This is one of the reasons why Saudi Arabia is so strongly controlled by the Jesuits and by the Cabal."
+"if he can be manipulated in a way that steers the situation and closer to the Jesuit agenda."

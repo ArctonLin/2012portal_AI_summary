@@ -1,0 +1,3 @@
+<!-- topic: Black Nobility | doc: posts/2012-09-05__brotherhood-of-star-this-blog-post-will | 2012-09-05 | brotherhood of star this blog post will | keywords: black nobility -->
+[Relevant content] The document mentions that members of the Order of the Star (disciples of the Brotherhood of the Star) collaborated in the project of the Ascension of Jesus and Magdalene/Grail family lineage as a counterbalance against the "thirteenth bloodline of the black nobility."
+[Key quotes] "As Essenes they were collaborating in the project of Ascension of Jesus and Magdalene/Grail family lineage as a counterbalance against the thirteenth bloodline of the black nobility."

@@ -1,0 +1,4 @@
+<!-- topic: Toplet Bomb | doc: meeting/2025-01-15__2025-portal-workshop-taipei-taiwan-2 | 2025-01-15 | PORTAL 2025 WORKSHOP IN TAIPEI BY COBRA | keywords: toplet bomb, toplet -->
+[Relevant content] [reported] A question was asked why the Light Forces cannot stop the massacre in Gaza since the Toplet Bomb and Chimera have been eliminated. Cobra responded that the Light Forces cannot fully intervene in the surface world yet because direct intervention could provoke further chaos and retaliation from the dark forces, who still hold humanity as hostages.
+[Key quotes] "Q: Since the Toplet Bomb and Chimera have been eliminated, why can’t the Light Forces stop the massacre in Gaza?"
+"A: The Light Forces cannot fully intervene in the surface world yet. Direct intervention in Gaza could provoke further chaos in other regions, as the dark forces would retaliate by causing more problems."

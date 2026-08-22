@@ -1,0 +1,4 @@
+<!-- topic: Toplet Bomb | doc: posts/2014-10-07__plasma-and-planetary-situation-update | 2014-10-07 | Plasma and the Planetary Situation Update | keywords: toplet bomb, toplet -->
+[Relevant content] Quantum singularity wormholes within the plasmatic plane (Tunnels of Set) contain strangelet and toplet bombs tied to the physical Black Stone in the Long Island location. Significant progress has been made regarding the removal of plasma strangelet bombs, whereas plasma toplet bombs still remain a challenge.
+[Key quotes] "Those wormholes contain strangelet and toplet bombs and they are tied to the physical Black Stone in the Long Island location."
+"The Light forces are dealing with this situation and there has been significant progress regarding removal of the plasma strangelet bombs, whereas plasma toplet bombs still remain a challenge."

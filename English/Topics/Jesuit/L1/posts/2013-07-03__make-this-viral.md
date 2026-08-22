@@ -1,0 +1,3 @@
+<!-- topic: Jesuit | doc: posts/2013-07-03__make-this-viral | 2013-07-03 | MAKE THIS VIRAL! Liberation Meditation for Egypt | keywords: jesuit -->
+[Relevant content] The meditation instructions direct participants to visualize members of the physical dark Cabal, specifically naming "the Jesuits," peacefully surrendering and stepping down from positions of power, releasing control over the financial system and mass media.
+[Key quotes] "Visualize members of the physical dark Cabal, such as central banking criminals Rothschilds and Rockefellers, and other members of this Cabal such as Henry Kissinger, George Bush, the Jesuits etc. peacefully surrendering and stepping down from their positions of power, releasing control over the financial system and the mass media."

@@ -1,0 +1,7 @@
+<!-- topic: Ashtar Command | doc: meeting/2025-10-25__notes-on-cobras-ascension-workshop-in | 2025-10-25 | Notes on Cobra's Ascension Workshop in Munich on October 25, 2025 - Time Until Liberation from the Cosmic Perspective, Hostage Rescue Operation, Pulling Out the Lurker from the Root, Overview of Physical Intervention, The Importance of Manifestation ... | keywords: ashtar command -->
+[Relevant content] In the Galactic Network of Light Meditation, participants are instructed to silently call upon the names of Ashtar Command, Sananda, St. Germain, Kuthumi, and Goddess Isis to guide and protect the group. [reported]
+The light forces, particularly the Ashtar Command, have deployed a massive mothership into the solar system through hyperdimensional means to form a "hyperdimensional mandala." This configuration transmits energy from the Galactic Central Sun via each mothership throughout the solar system, including Earth, to dissolve the Lurker. [reported]
+The Ashtar Command is currently preparing for physical intervention, which has actually begun after August 21st. This involves the dramatic reduction of directed energy weapons and scalar wave weapons, freeing the vast majority of people from such attacks. [reported]
+
+[Key quotes] "The light forces, particularly the Ashtar Command, have deployed a massive mothership into the solar system through hyperdimensional means."
+"Currently, the light forces, particularly the Ashtar Command, are preparing for physical intervention, though I cannot discuss that here. However, it is indeed underway."

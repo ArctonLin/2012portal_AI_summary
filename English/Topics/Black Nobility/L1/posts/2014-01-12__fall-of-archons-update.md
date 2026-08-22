@@ -1,0 +1,5 @@
+<!-- topic: Black Nobility | doc: posts/2014-01-12__fall-of-archons-update | 2014-01-12 | Fall of the Archons Update | keywords: black nobility -->
+[Relevant content] The document lists Farnese, Orsini, Aldobrandini, and Chigi as the main Archon black nobility families still worth noticing. It details that the Farnese family created the Jesuits and built their first Pentagon in Caprarola; the Orsini family has a strong connection with the Reptilian race and created the pact between the Reptilian race and the Roman Catholic Church; the Aldobrandini family possesses secret documents about Atlantis; and the Chigi family are bankers for the Jesuits controlling Banca Monte dei Paschi de Siena.
+[Key quotes] "The main Archon black nobility families still worth noticing are Farnese, Orsini, Aldobrandini and Chigi."
+"The Farnese family is the main architect of the Cabal as they have created the Jesuits with a little help of the Borja family back in the 1540s."
+"The Orsini family has a very strong connection with the Reptilian race and is the main connecting link between the physical and non-physical Archons."

@@ -1,0 +1,3 @@
+<!-- topic: Jesuit | doc: posts/2012-06-15__normal-0-microsoftinternetexplorer4_15 | 2012-06-15 | normal 0 microsoftinternetexplorer4 15 | keywords: jesuit -->
+[Relevant content] The meditation instructions for the World Liberation Movement include visualizing members of the physical dark Cabal, specifically naming "the Jesuits," peacefully surrendering and stepping down from their positions of power.
+[Key quotes] "Visualize members of the physical dark Cabal, such as central banking criminals Rothschilds and Rockefellers, and other members of this Cabal such as Henry Kissinger, George Bush, the Jesuits etc. peacefully surrendering and stepping down from their positions of power"

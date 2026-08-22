@@ -1,0 +1,4 @@
+<!-- topic: Ashtar Command | doc: posts/2012-04-17__forces-of-light-and-forces-of-darkness | 2012-04-17 | forces of light and forces of darkness | keywords: ashtar command -->
+[Relevant content] Ashtar Command is identified as a section of the Galactic Confederation with the primary function of liberating Earth from dark forces. It is noted that "Ashtar Command" was made a trigger word for denial alters via Monarch mind programming in the mid-90s.
+[Key quotes] "Ashtar Command is a section of Galactic Confederation which primary function is to liberate planet Earth from the grip of the dark forces."
+"Many Earth based contactees for the Confederation were subjected to intense Monarch mind programming and in fact “Ashtar Command” was made to be a trigger word to activate strong denial alters."

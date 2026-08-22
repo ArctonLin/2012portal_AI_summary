@@ -1,0 +1,5 @@
+<!-- topic: Cabal | doc: posts/2017-04-22__situation-update | 2017-04-22 | Situation Update | keywords: cabal -->
+[Relevant content] The Cabal turned to electronic warfare after failing to trigger World War 3 directly. They are using directed energy weapons to target key Lightworkers and Lightwarriors to remove them from the surface. The Cabal has bribed members of the general population to become unconscious co-perpetrators of these crimes.
+[Key quotes] "Now that the Cabal could not trigger World War 3 directly... they have turned to electronic warfare."
+"they are now using directed energy weapons to their fullest, targeting key Lightworkers and Lightwarriors in an obvious attempt to remove them from the surface of the planet, as the Lightworkers and Lightwarriors with the power of their unified consciousness are one of the main obstacles in Cabal's plans to create global war."
+"Also, the Cabal has bribed many people from the general population to become unconscious co-perpetrators of those crimes against humanity."

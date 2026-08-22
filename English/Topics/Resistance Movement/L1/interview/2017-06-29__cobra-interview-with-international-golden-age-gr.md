@@ -1,0 +1,3 @@
+<!-- topic: Resistance Movement | doc: interview/2017-06-29__cobra-interview-with-international-golden-age-gr | 2017-06-29 | Cobra Interview with International Golden Age Group | keywords: resistance movement, resistance -->
+[Relevant content] [reported] Cobra stated that the Agarthan network and the Resistance Movement have already taken care of their own Cintamani grids long ago and are fine, but a network connected with surface humanity is needed.
+[Key quotes] "The Light forces themselves for example the Agarthan network, and the Resistance Movement, have taken care of their own Cintamani grids long time ago and they are just fine."

@@ -1,0 +1,3 @@
+<!-- topic: Implant | doc: posts/2021-11-01__flash-overtura-update | 2021-11-01 | Flash Overtura Update | keywords: implant -->
+[Relevant content] The black cube room in the Urim base in Israel contains a quantum supercomputer that processes SIGINT data and relays it to the etheric implant/Chimera network. This room is described as the center of the inverted planetary grid and the planetary primary anomaly.
+[Key quotes] "The black cube room contains a very powerful quantum supercomputer which processes and analyses all SIGINT data coming into the Urim base, and relays it to its etheric counterpart and to the etheric implant/Chimera network."

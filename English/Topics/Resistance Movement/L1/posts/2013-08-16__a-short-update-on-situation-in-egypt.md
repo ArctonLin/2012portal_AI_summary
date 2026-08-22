@@ -1,0 +1,4 @@
+<!-- topic: Resistance Movement | doc: posts/2013-08-16__a-short-update-on-situation-in-egypt | 2013-08-16 | A Short Update on the Situation in Egypt and Planetary Situation in General | keywords: resistance movement, resistance -->
+[Relevant content] The Resistance Movement is asking those who feel guided to continue meditations for Egypt to harmonize the situation. The Resistance Movement is requesting that the Positive Military forces in Egypt remove Blackwater mercenaries immediately and requesting a fair and public trial for arrested Muslim Brotherhood officials.
+[Key quotes] "The Resistance Movement is asking those who feel so guided to continue with their meditations for Egypt to harmonize the situation."
+"The Resistance Movement is requesting that the Positive Military forces in Egypt remove Blackwater mercenaries from their country immediately."

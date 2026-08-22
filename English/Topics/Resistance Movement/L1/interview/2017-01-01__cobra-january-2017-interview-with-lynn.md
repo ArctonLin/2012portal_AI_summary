@@ -1,0 +1,4 @@
+<!-- topic: Resistance Movement | doc: interview/2017-01-01__cobra-january-2017-interview-with-lynn | 2017-01-01 | Cobra January 2017 Interview with Lynn | keywords: resistance movement, resistance -->
+[Relevant content] [reported] The Resistance Movement's future plans for Mexico are part of the original plans for Central and South America. A certain positive group is working behind the scenes in Mexico, but the situation is not ready yet. The Resistance did not exist at the time of the Plus Ultra secret society, but Plus Ultra is connected with the Inner Earth.
+[Key quotes] "OK, the plans for Mexico are part of the original plans for central America and South America. I would say there is a certain positive group working behind the scenes there but the situation is simply not ready yet."
+"It is not connected with the Resistance because the Resistance did not exist at that time, but yes, it is connected with the Inner Earth."

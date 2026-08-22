@@ -1,0 +1,5 @@
+<!-- topic: Ashtar Command | doc: interview/2025-07-14__cobra-interview-on-1221-ascension-portal-activation-by-wlmm-igag-and-japan-prepa | 2025-07-14 | Cobra Interview on 12:21 Ascension Portal Activation by WLMM, IGAG and Japan Prepare for Change Official | keywords: ashtar command -->
+[Relevant content] [reported] Cobra elaborated on an energy vortex in Yemen related to Ashtar Sheran, stating it is an ancient vortex thousands of years old that has been suppressed in the last 2000 years. Once healed and restored, the region can anchor strong Ascension energies. The interview also lists a mass meditation for "liberating commanders of Ashtar Command from Negative military."
+[Key quotes] "Nogi: You previously mentioned that there is an energy vortex in Yemen related to Ashtar Sheran. Could you elaborate on what activities Commander Ashtar Sheran has undertaken in Yemen?"
+"Cobra: This is an ancient vortex, which is thousands upon thousands of years old, and it has been drastically suppressed in the last 2000 years."
+"Meditation for liberating commanders of Ashtar Command from Negative military"

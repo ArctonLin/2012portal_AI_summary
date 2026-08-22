@@ -1,0 +1,4 @@
+<!-- topic: Resistance Movement | doc: interview/2017-01-01__pfcc-interview-with-cobra-on-plasma-toplet-bombs | 2017-01-01 | PFCC interview with COBRA on plasma toplet bombs | keywords: resistance movement, resistance -->
+[Relevant content] [reported] A nine-year-old child claimed to have communicated with the Resistance Movement on December 24, 2016, and that Cobra was allowed by the Resistance Movement group to record a video of the base. Cobra stated that the child's statements about him and the Resistance are not correct.
+[Key quotes] "On 24th of December 2016, the kid communicated with Resistance Movement and he claimed that you were allowed by the Resistance Movement group to record a video of the base."
+"His statements about me and the Resistance are not correct. I will not comment on his other statements."

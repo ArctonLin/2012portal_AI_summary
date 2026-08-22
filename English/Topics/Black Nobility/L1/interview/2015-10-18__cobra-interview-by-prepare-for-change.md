@@ -1,0 +1,3 @@
+<!-- topic: Black Nobility | doc: interview/2015-10-18__cobra-interview-by-prepare-for-change | 2015-10-18 | Cobra Interview by Prepare for Change | keywords: black nobility -->
+[Relevant content] [reported] Lynn asks about the number of physical Archons of Italian Nobility on Earth. Cobra clarifies that "There are still some physical Archons in the black nobility families, Italian, mostly some of them are German black nobility families and from other nations but they are loosing power daily."
+[Key quotes] "There are still some physical Archons in the black nobility families, Italian, mostly some of them are German black nobility families and from other nations but they are loosing power daily."

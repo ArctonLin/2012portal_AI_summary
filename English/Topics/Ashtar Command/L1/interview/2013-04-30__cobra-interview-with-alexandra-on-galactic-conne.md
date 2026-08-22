@@ -1,0 +1,3 @@
+<!-- topic: Ashtar Command | doc: interview/2013-04-30__cobra-interview-with-alexandra-on-galactic-conne | 2013-04-30 | Cobra Interview with Alexandra on Galactic Connection | keywords: ashtar command -->
+[Relevant content] [reported] Cobra states that central Arizona is a major vortex point for the Galactic Federation and Ashtar Command, and that after First Contact, it will be one of the most concentrated areas for ships to appear.
+[Key quotes] "Actually, central AZ is a major vortex point for galactic federation and Ashtar command. After first contact – this will be one of the most concentrated areas for ships to appear."

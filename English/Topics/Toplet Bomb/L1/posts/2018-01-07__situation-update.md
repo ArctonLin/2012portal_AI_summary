@@ -1,0 +1,4 @@
+<!-- topic: Toplet Bomb | doc: posts/2018-01-07__situation-update | 2018-01-07 | Situation Update | keywords: toplet bomb, toplet -->
+[Relevant content] The Light Forces have cleared all plasma toplet bombs and almost all anomalous plasma in the sublunar space. All remaining toplet bombs and the vast majority of plasma anomaly are now concentrated close to the Earth surface, not extending beyond 3 Earth radii from the center of the planet.
+[Key quotes] "The Light Forces have cleared all plasma toplet bombs and almost all anomalous plasma in the sublunar space."
+"All toplet bombs and the vast majority of plasma anomaly along with plasmoid entities and fragments of negative SSP factions are now concentrated close to the Earth surface, not extending beyond 3 Earth radii from the center of the planet"

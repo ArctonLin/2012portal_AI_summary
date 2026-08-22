@@ -1,0 +1,3 @@
+<!-- topic: Implant | doc: posts/2015-09-13__solar-system-situation-update | 2015-09-13 | Solar System Situation Update | keywords: implant -->
+[Relevant content] The Chimera group holds a small number of key Pleiadians, Sirians, Andromedans, and representatives of other Light star races as hostages deep inside their strongholds at "implant stations" throughout the Solar System. This hostage mechanism is used to hold back these star races in their progress towards planetary liberation.
+[Key quotes] "The Chimera still has a very small number of key Pleiadians, Sirians, Andromedans and representatives of other Light star races held as hostages deep inside their strongholds at implant stations throughout the Solar System."

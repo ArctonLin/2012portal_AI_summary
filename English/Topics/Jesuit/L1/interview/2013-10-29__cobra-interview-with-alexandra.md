@@ -1,0 +1,5 @@
+<!-- topic: Jesuit | doc: interview/2013-10-29__cobra-interview-with-alexandra | 2013-10-29 | Cobra Interview with Alexandra | keywords: jesuit -->
+[Relevant content] [reported] Cobra states that the Pope's refusal to meet Netanyahu is a continuation of the Jesuit strategy to adapt swiftly and softly to the situation to appear as good guys. [reported] Cobra identifies the Jesuits and the Illuminati as the major remaining "bad boys" on the block, noting that the negative part of the NSA was controlled by the Illuminati faction, which was in turn controlled by the Jesuits. [reported] Cobra states that the Jesuits are master manipulators and do not have the highest interest of humanity as their goal.
+[Key quotes] "It’s a continuation of the Jesuit strategy... It’s just a survival tactic of the church and the Jesuits."
+"The negative part of the NSA was actually controlled by Illuminati faction which was in turn controlled by the Jesuits."
+"Jesuits and Rothschild to a certain degree... I would agree with that – Jesuits and Illumaniti."

@@ -1,0 +1,4 @@
+<!-- topic: Resistance Movement | doc: interview/2017-03-08__interview-with-cobra-from-russia | 2017-03-08 | Interview with Cobra from Russia | keywords: resistance movement, resistance -->
+[Relevant content] [reported] Putin knows about the Pleiadians but not about the Agarthans and especially not about the Resistance Movement. The plans of the Resistance Movement regarding Russia involve keeping strengthening the alliance of positive forces within Russia in ways that are not to be disclosed. Nobody from the surface can join the Resistance at this point.
+[Key quotes] "He knows about the Pleiadians but not about the Agarthans an especially not about the Resistance Movement."
+"The Resistance will keep strenghteing the alliance of positive forces within Russia in ways that are not to be disclosed. Nobody from the surface can join the Resistance at this point."

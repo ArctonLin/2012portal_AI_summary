@@ -1,0 +1,3 @@
+<!-- topic: Toplet Bomb | doc: posts/2016-04-13__a-short-situation-update | 2016-04-13 | A Short Situation Update | keywords: toplet bomb, toplet -->
+[Relevant content] The Light forces have begun to dismantle the Chimera barrier, which is the outer defense line of the Chimera group. This barrier consists of a fleet of motherships connected to plasma toplet bombs. Its purpose is to prevent positive interstellar and galactic energies from penetrating the Solar System.
+[Key quotes] "Chimera barrier is the outer defense line of the Chimera group and consists of a fleet of motherships, connected to plasma toplet bombs."

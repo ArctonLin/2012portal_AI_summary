@@ -1,0 +1,3 @@
+<!-- topic: Cabal | doc: posts/2025-09-04__short-situation-update | 2025-09-04 | Short Situation Update | keywords: cabal -->
+[Relevant content] Infiltrated Jesuit agents within the Resistance Movement planted false intelligence about surface Cabal groups into Resistance computers. The endgame of the black nobility was to allow the Resistance to clear other dark factions, placing the black nobility at the top, before taking over the Resistance to conquer the Solar System.
+[Key quotes] "They have managed to hijack the X Resistance faction to the degree that many of those people were actively sabotaging the liberation mission... by planting false intel about the surface Cabal groups into the Resistance computers..."

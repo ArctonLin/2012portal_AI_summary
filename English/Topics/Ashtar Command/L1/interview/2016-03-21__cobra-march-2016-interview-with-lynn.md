@@ -1,0 +1,3 @@
+<!-- topic: Ashtar Command | doc: interview/2016-03-21__cobra-march-2016-interview-with-lynn | 2016-03-21 | Cobra March 2016 Interview with Lynn | keywords: ashtar command -->
+[Relevant content] [reported] Lynn quotes the Ascension Plan stating that the majority of 70 billion non-incarnated human souls were mass evacuated on August 14th, 1999, to the motherships of the Ashtar Command.
+[Key quotes] "In the Ascension Plan, you said: “The majority of 70 billion non-incarnated human souls were mass evacuated on August 14th, 1999 to the motherships of the Ashtar Command and then transported to a certain planet on the outskirts of the Pleiades star cluster."

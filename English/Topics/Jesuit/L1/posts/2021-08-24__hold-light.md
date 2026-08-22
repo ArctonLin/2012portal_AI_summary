@@ -1,0 +1,4 @@
+<!-- topic: Jesuit | doc: posts/2021-08-24__hold-light | 2021-08-24 | Hold the Light | keywords: jesuit -->
+[Relevant content] Cooperation between Eastern and Western Cabal factions was expanded with Jesuit presence in the early Qing court in Beijing in the 17th and 18th centuries. In the last few decades, black nobility families and Jesuits moved key people from the West to China and partnered with Xi and the Chinese Communist Party in 2016 to create a New World Order dystopian society with China as the world hegemon.
+[Key quotes] "This was the beginning of long and successful cooperation between Eastern and Western Cabal factions which was greatly expanded with Jesuit presence in early Qing court in Beijing in 17th and 18th centuries."
+"the black nobility families and the Jesuits have decided to move many of their key people from West to China and in 2016 they have partnered a new alliance with Xi and the Chinese Communist Party"

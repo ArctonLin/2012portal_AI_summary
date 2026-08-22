@@ -1,0 +1,5 @@
+<!-- topic: Resistance Movement | doc: posts/2013-04-24__the-secret-space-program-time-has-come | 2013-04-24 | the secret space program time has come | keywords: resistance movement, resistance -->
+[Relevant content] After 1999, the Resistance Movement started clearing underground bases and removed all Reptilians except for a very few individuals on the surface. Deeper portions of those bases were cleared in 2003. In 2012, the Resistance Movement removed the vast majority of the physical gold from the hands of the Cabal. In early 2013, the Resistance Movement cleared all underground facilities of the Cabal through Operation Underlord.
+[Key quotes] "After 1999, the Resistance Movement has started clearing those underground bases and removed all Reptilians except for a very few individuals on the surface of the planet."
+"In 2012, the Resistance Movement has removed the vast majority of the physical gold from the hands of the Cabal."
+"In early 2013, the Resistance Movement has cleared all underground facilities of the Cabal through Operation Underlord."

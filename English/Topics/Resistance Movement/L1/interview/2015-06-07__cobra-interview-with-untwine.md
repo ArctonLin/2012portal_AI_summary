@@ -1,0 +1,5 @@
+<!-- topic: Resistance Movement | doc: interview/2015-06-07__cobra-interview-with-untwine | 2015-06-07 | Cobra Interview with Untwine | keywords: resistance movement, resistance -->
+[Relevant content] The arrest of Archons on the surface of the planet is mostly done by the resistance movement. The physical Chimera are being arrested and removed from the planet by the Resistance Movement. If parts of the population start being violent after the Event, the resistance movement, together with the positive military and local law enforcement, will be able to calm down the situation.
+[Key quotes] "If you’re speaking about the ones on the surface of the planet, this is mostly done by the resistance movement."
+"It’s the same, the physical ones are being arrested and removed from the planet by the Resistance Movement, those who are on the etheric and plasma planes are being removed by the galactic forces."
+"If this happens after the event, of course the resistance movement together with positive military and local law enforcement will be able to calm down the situation."

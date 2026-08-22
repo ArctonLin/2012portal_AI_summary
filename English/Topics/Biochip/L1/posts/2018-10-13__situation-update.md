@@ -1,0 +1,4 @@
+<!-- topic: Biochip | doc: posts/2018-10-13__situation-update | 2018-10-13 | Situation Update | keywords: biochip -->
+[Relevant content] The physical biochip, produced by Siemens, is located next to the implant of every incarnated human and sends a constant audio-video feed to the main Chimera control center on the surface of the planet. Plasma implants and physical biochips act as seals covering up all layers of programming received by the surface population.
+[Key quotes] "The physical biochip (produced by Siemens) located next to the implant of every incarnated human sends a constant audio-video feed to the main Chimera control center, located on the surface of the planet"
+"Plasma implants and physical biochips are the seals that are covering up all layers of programming that the surface population has received"

@@ -1,0 +1,5 @@
+<!-- topic: Jesuit | doc: posts/2014-09-16__planetary-situation-update_16 | 2014-09-16 | A New Planetary Situation Update | keywords: jesuit -->
+[Relevant content] The Jesuits are continuing with their plan for one world religion. They are concentrating their attack on the Romanov White Nobility family. Jesuit agents are trying to turn the plans of the BRICS alliance to remove the petrodollar into plans to use the global currency reset for the Jesuit plan of world domination. Jesuits were infiltrating China since the 16th century and have a vast network there. Catalunya is trying to break free from the Jesuit/SMOM controlled Spanish monarchy.
+[Key quotes] "Meanwhile, the Jesuits are continuing with their plan for one world religion:"
+"Jesuit agents are trying to turn the plans of the BRICS alliance to remove the petrodollar supremacy of the military-industrial complex into plans to use global currency reset for the Jesuit plan of world domination. You need to know that Jesuits were infiltrating China since the 16th century and they have a vast network there."
+"Catalunya is trying to break free from Jesuit/SMOM controlled Spanish monarchy..."

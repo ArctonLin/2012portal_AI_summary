@@ -1,0 +1,4 @@
+<!-- topic: Toplet Bomb | doc: posts/2017-11-17__situation-update | 2017-11-17 | Situation Update | keywords: toplet bomb, toplet -->
+[Relevant content] Knowledge of heavy quark reactions that could lead to the creation of toplet bombs is reaching mainstream science. The mass arrests of the Cabal will ultimately lead to a point where the Chimera faction within the Air Force will not be able to cover the Cabal's back with their toplet bombs anymore.
+[Key quotes] "Knowledge of existence of heavy quark reactions that could potentially lead to creation of toplet bombs is finally reaching mainstream science"
+"Although we are not there yet, there is a massive investigation against the Cabal taking place and it will ultimately lead to the mass arrests when the Chimera faction within the Air Force will not be able to cover the Cabal's back with their toplet bombs anymore."

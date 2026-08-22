@@ -1,0 +1,3 @@
+<!-- topic: Toplet Bomb | doc: posts/2015-08-26__planetary-situation-update | 2015-08-26 | Planetary Situation Update | keywords: toplet bomb, toplet -->
+[Relevant content] Plasma strangelet and even plasma toplet bombs were put into implants of some of the most evolved and powerful Lightworkers and Lightwarriors as a hostage control mechanism to ensure they do not escape from the quarantine.
+[Key quotes] "A little more disturbing is the presence of plasma strangelet and even plasma toplet bombs that were put into implants of some of the most evolved and most powerful Lightworkers and Lightwarriors as a hostage control mechanism to ensure they do not escape from the quarantine."

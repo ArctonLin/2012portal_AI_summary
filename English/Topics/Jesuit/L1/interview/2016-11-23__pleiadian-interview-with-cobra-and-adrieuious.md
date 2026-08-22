@@ -1,0 +1,3 @@
+<!-- topic: Jesuit | doc: interview/2016-11-23__pleiadian-interview-with-cobra-and-adrieuious | 2016-11-23 | Pleiadian Interview with Cobra and Adrieuious | keywords: jesuit -->
+[Relevant content] [reported] Cobra confirms that Trump is a Jesuit puppet, stating that while he is not high in the Jesuit structure, his policies are directly engineered by them. Cobra notes that Trump received Jesuit education and that some of his mafia contacts are directly controlled by the Jesuits.
+[Key quotes] "yes, but he is not high in the Jesuits structure but his policies are directly engineered to a great degree by the Jesuits, he received Jesuit education, and some of his contacts in the mafia are directly controlled by the Jesuits."

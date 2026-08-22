@@ -1,0 +1,5 @@
+<!-- topic: Cabal | doc: interview/2013-06-04__cobra-interview-with-alexandra-on-galactic-conne | 2013-06-04 | Cobra Interview with Alexandra on Galactic Connection | keywords: cabal -->
+[Relevant content] [reported] The Event will involve the arrest of the Cabal and the reset of the financial system. The Cabal seized prosperity funds and stole money from them. The Cabal is building concentration camps/FEMA facilities but will never be allowed to use them; if they try, the Event will happen immediately. The Cabal is using etheric HAARP to influence weather. The Cabal is trying to slow down and interfere with the Federal Reserve audit. Members of the Cabal have been interrogated and detained. All mafias were connected to the Cabal.
+[Key quotes] "On the physical plane there will be the arrest of the Cabal, the res-set of the financial system"
+"The cabal is building those facilities and or has been building those facilities for decades... They will never be used."
+"The cabal is trying to slow down and interfere with the process."

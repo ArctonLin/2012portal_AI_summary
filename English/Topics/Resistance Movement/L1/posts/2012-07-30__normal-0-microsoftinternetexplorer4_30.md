@@ -1,0 +1,4 @@
+<!-- topic: Resistance Movement | doc: posts/2012-07-30__normal-0-microsoftinternetexplorer4_30 | 2012-07-30 | normal 0 microsoftinternetexplorer4 30 | keywords: resistance movement, resistance -->
+[Relevant content] The Event will be an unified effort of the Pleiadians, the Resistance Movement, Positive Military, White Dragon Society, and other positive groups. Many people have asked to join the Resistance, but this is not possible at this point; only a few extremely well-trained agents are operating on the surface. After the Event, the Resistance will gradually make itself known to the general public.
+[Key quotes] "It will be an unified effort of the Pleiadians, the Resistance Movement, Positive Military, White Dragon Society and other positive groups."
+"Many people have asked to join the Resistance. This is not possible at this point. Only few extremely well trained agents of the Resistance are now operating on the surface of the planet."

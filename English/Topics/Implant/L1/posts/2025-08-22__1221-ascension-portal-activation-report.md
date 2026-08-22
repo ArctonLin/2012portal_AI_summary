@@ -1,0 +1,7 @@
+<!-- topic: Implant | doc: posts/2025-08-22__1221-ascension-portal-activation-report | 2025-08-22 | 12:21 Ascension Portal Activation Report | keywords: implant -->
+[Relevant content] The only part of the Lurker now remaining is within the implant remnants of the surface population and within the implant remnants of all Light Force members that were exposed to anomaly within this Solar system after 1996.
+All Lurker infested implant remnants of the Light Forces will be completely cleared until October 10th. It is becoming increasingly possible that all Lurker infection in the implant remnants of the surface humanity will also be cleared until October 10th, but that timeline has not been secured yet.
+The Lurker creates tunnels of Set interference patterns between the implants that engulf the 30 meters surface layer of the planet.
+[Key quotes] "The only part of the Lurker now remaining is within the implant remnants of the surface population and within the implant remnants of all Light Force members that were exposed to anomaly within this Solar system after 1996."
+"All that Lurker infection for all beings in the Multiverse, and all Lurker infested implant remnants of the Light Forces will be completely cleared until October 10th."
+"The Lurker still interferes with the free will to a degree, and creates a tunnels of Set interference patterns between the implants that engulf the 30 meters surface layer of the planet."

@@ -1,0 +1,3 @@
+<!-- topic: Jesuit | doc: posts/2024-11-24__a-new-cobra-interview | 2024-11-24 | A New Cobra Interview | keywords: jesuit -->
+[Relevant content] [reported] Cobra stated that Cagliostro made a fatal mistake by spreading Isis mysteries in the Papal States, leading to his capture and imprisonment by the Jesuits. The Jesuits also spread disinformation to tarnish Cagliostro's name.
+[Key quotes] "He made a fatal mistake by spreading Isis mysteries in the Papal States right under the noses of the Jesuits, and they soon captured him and imprisoned him for life. The Jesuits also spread a lot of disinformation about him, tarnishing his name."

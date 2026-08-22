@@ -1,0 +1,5 @@
+<!-- topic: Resistance Movement | doc: interview/2013-04-30__cobra-interview-with-alexandra-on-galactic-conne | 2013-04-30 | Cobra Interview with Alexandra on Galactic Connection | keywords: resistance movement, resistance -->
+[Relevant content] [reported] Forces of light and the resistance movement are aware of the oil spill in Arkansas and will contain the damage. [reported] The Resistance movement will NOT allow World War III to happen; it is not an option and will not be tolerated. [reported] The resistance movement has been removing physical gold from the hands of the Cabal in 2012.
+[Key quotes] "I can just say there are forces of light and resistance movement and other forces that are aware. They can not completely intervene on the surface yet. They will be able to contain the damage so it will not be a major disaster."
+"Resistance movement will NOT allow WWIII to happen. WWIII is not an option – will not be tolerated."
+"You have told us in one of your posts that the resistance movement has been removing the physical gold out of the hands of the cabal in 2012l."

@@ -1,0 +1,3 @@
+<!-- topic: Toplet Bomb | doc: interview/2016-08-01__cobra-interview-on-inner-guidance-and-galactic-h | 2016-08-01 | Cobra Interview on Inner Guidance and Galactic Heartbeat | keywords: toplet bomb, toplet -->
+[Relevant content] [reported] When asked for a progress report on the removal of toplet bombs, plasma strangelet bombs, and plasma bombs, Cobra states that the vast majority of plasma strangelet bombs have been completely removed. The main problem now are the plasma toplet bombs, and progress is being made, but he cannot be more specific.
+[Key quotes] "The vast majority of plasma strange-let bombs have been completely removed. The main problem now are the plasma toplet bombs and there is, I would say there is progress being made but I can not be more specific."

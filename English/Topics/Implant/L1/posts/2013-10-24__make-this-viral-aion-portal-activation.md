@@ -1,0 +1,3 @@
+<!-- topic: Implant | doc: posts/2013-10-24__make-this-viral-aion-portal-activation | 2013-10-24 | MAKE THIS VIRAL! AION PORTAL ACTIVATION | keywords: implant -->
+[Relevant content] The six-pointed star configuration occurring at the AION portal activation (November 23, 2013) is the same configuration that happened at the Harmonic Concordance in November 2003, when the Resistance hacked the etheric implant computer program.
+[Key quotes] "The six pointed star is the very same configuration that happened at the Harmonic Concordance in November 2003 (when the Resistance hacked the etheric implant computer program)..."

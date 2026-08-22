@@ -1,0 +1,4 @@
+<!-- topic: Resistance Movement | doc: posts/2019-12-04__blue-dawn-ascension-conference-report | 2019-12-04 | Blue Dawn / Ascension Conference Report | keywords: resistance movement, resistance -->
+[Relevant content] An admin hijacked the official Cobra Facebook group for purposes that neither the author nor the Resistance Movement can support. A new official Cobra Facebook group will be created with full alignment with Resistance Movement protocols, and all new admins will undergo a strict three-phase screening protocol.
+[Key quotes] "one of the admins has kicked all other admins out of the group, hijacked the group, renamed it and is now using it for purposes that neither I or the Resistance Movement can support."
+"A new official Cobra facebook group will be created with full alignment with Resistance Movement protocols, and all new admins will go through strict three phase screening protocol."

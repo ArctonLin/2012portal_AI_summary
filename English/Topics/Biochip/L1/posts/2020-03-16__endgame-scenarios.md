@@ -1,0 +1,3 @@
+<!-- topic: Biochip | doc: posts/2020-03-16__endgame-scenarios | 2020-03-16 | Endgame Scenarios | keywords: biochip -->
+[Relevant content] The Resistance was able to destroy all biochips which were meant to be put into the new coronavirus vaccine. Therefore, the new vaccine cannot contain any biochips, although it may still contain dangerous chemicals.
+[Key quotes] "The Resistance was able to destroy all biochips which were meant to be put into the new vaccine which is being developed against the coronavirus. Therefore the new vaccine can NOT contain any biochips, although it can still contain chemicals dangerous for your health."

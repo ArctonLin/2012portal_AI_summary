@@ -1,0 +1,4 @@
+<!-- topic: Cabal | doc: posts/2012-06-20__normal-0-microsoftinternetexplorer4_7163 | 2012-06-20 | normal 0 microsoftinternetexplorer4 7163 | keywords: cabal -->
+[Relevant content] It seems very unlikely that the Cabal will surrender. Some factions were sincerely considering surrender, but the other option seems to prevail. Plans are being developed in response to this. The Jesuit faction is constantly blocking Cobra's access to funds that rightfully belong to him.
+[Key quotes] "It seems very unlikely at this point that Cabal will surrender. Some factions of the Cabal were sincerely considering surrender, but the other option seems to prevail."
+"Actually there are vast funds that rightfully belong to me and could be put into good use in those projects, but the Jesuit faction is constantly blocking my access to that money."

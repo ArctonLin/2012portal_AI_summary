@@ -1,0 +1,5 @@
+<!-- topic: Cabal | doc: posts/2012-06-09__normal-0-microsoftinternetexplorer4_09 | 2012-06-09 | normal 0 microsoftinternetexplorer4 09 | keywords: cabal -->
+[Relevant content] The Cabal is weakened but retains access to conventional, chemical, and biological weapons; 20% of the military and 40% of the population still support them. The Rothschild and Rockefeller factions had full access to nuclear weapons until December 2011; the Jesuit faction had access until a few days before June 9, 2012. Real negotiations for the surrender of the Cabal could only start after the Jesuit faction's access to nukes was solved. The Cabal uses mass media control to create an illusion that nothing is happening.
+[Key quotes] "The Cabal is now weakened but not yet without power. They still have access to conventional and also some chemical / biological weapons."
+"Only after that was solved, real negotiations for the surrender of the Cabal could start taking place."
+"Also, through the control of the mass media the Cabal wants to create an illusion that nothing is happening to discourage people from actually doing something to speed up the changes."

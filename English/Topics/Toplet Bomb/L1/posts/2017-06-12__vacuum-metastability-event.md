@@ -1,0 +1,4 @@
+<!-- topic: Toplet Bomb | doc: posts/2017-06-12__vacuum-metastability-event | 2017-06-12 | Vacuum Metastability Event | keywords: toplet bomb, toplet -->
+[Relevant content] Anomalous plasma filaments of the Yaldabaoth head, together with toplet bombs, are coupled with the "black stone" (a top quark-antiquark condensate) located in a Chimera underground facility near the RHIC collider on Long Island. The Light forces are working to disable the black stone and remove the remaining toplet bombs. The removal of the black stone will create a vacuum metastability event that triggers the Event.
+[Key quotes] "Anomalous plasma filaments of the Yaldabaoth head together with toplet bombs are coupled with the black stone, a top quark-antiquark condensate."
+"The Light forces are now working directly to disable the black stone and remove the remaining toplet bombs and the progress is going according to the plan."

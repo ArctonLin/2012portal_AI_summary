@@ -1,0 +1,3 @@
+<!-- topic: Illuminati | doc: interview/2016-12-02__cobra-interview-by-iruka-umino | 2016-12-02 | Cobra Interview by Iruka Umino | keywords: illuminati, brotherhood of death -->
+[Relevant content] [reported] Cobra states that Michael Jackson was killed because he tried to publicize that the Illuminati were manipulating humans. [reported] Cobra adds that many musicians are connected with the light forces, but if they attempt to expose the Illuminati, they are killed.
+[Key quotes] "When he tried to publicize that Illuminati were manipulating human, he was killed. Many of musicians are connected with the light forces but if they attempt to expose the Illuminati, they are killed."

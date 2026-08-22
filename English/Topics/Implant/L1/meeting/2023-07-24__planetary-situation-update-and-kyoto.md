@@ -1,0 +1,7 @@
+<!-- topic: Implant | doc: meeting/2023-07-24__planetary-situation-update-and-kyoto | 2023-07-24 | planetary-situation-update-and-kyoto | keywords: implant -->
+[Relevant content] [reported] Etheric implants, after 26,000 years, are not disintegrating very fast but practically do not exist anymore; theoretically, their quantum signature can still be felt, but for practical purposes, they are gone.
+[reported] The locations of three physical biochips are behind each eye in the frontal lobe (influencing mental thought process) and about 5 cm above the navel (influencing emotional process and activating primal fear).
+[reported] When humans have implants or biochips, they deny information that goes against the programming or go into mental breakdown. If biochips are removed, shocks may still occur but the situation can be processed better.
+[Key quotes] "Etheric implants, after 26000 years, are not disintegrating very fast. Practically speaking, they do not exist anymore. Theoretically, you can still feel their quantum signature, but for practical purpose, they are gone already."
+"The locations of 3 physical biochips are shown in this picture. Ones are behind each eye, in the frontal lobe of the brain. They try to influence the mental thought process. Another one is in about 5 cm above the navel which influences the emotional process."
+"When somebody has an implant or biochips, and when these humans on the surface are presented the information which goes against the programming, they first deny it and stick to the programming."

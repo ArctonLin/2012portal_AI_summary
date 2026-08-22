@@ -1,0 +1,3 @@
+<!-- topic: Resistance Movement | doc: interview/2013-12-03__cobra-interview-with-alexandra-meadors | 2013-12-03 | Cobra interview with Alexandra Meadors | keywords: resistance movement, resistance -->
+[Relevant content] [reported] Alexandra asks if the Resistance is able to determine how low the Cabal's coffers have gone. Cobra responds that the Cabal has no reserves and relies on fresh daily income, and that the Event will stop this machine.
+[Key quotes] "Are you, able, is the resistance able to determine, how low their coffers have gone... Actually, they don’t have much reserves... it’s like an ongoing proverbial (?) machine until it stops, by the event."

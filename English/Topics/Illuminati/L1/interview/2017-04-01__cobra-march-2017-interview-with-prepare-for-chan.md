@@ -1,0 +1,3 @@
+<!-- topic: Illuminati | doc: interview/2017-04-01__cobra-march-2017-interview-with-prepare-for-chan | 2017-04-01 | Cobra March 2017 Interview with Prepare For Change | keywords: illuminati, brotherhood of death -->
+[Relevant content] [reported] A questioner mentions an article claiming the president of NBC is an "Illuminati leader" who controls the television company and that Bill Cosby was ruined to stop him from purchasing NBC. Cobra confirms there were allegations but states the reality was twisted, though some truth remains.
+[Key quotes] "But the network’s president, Illuminati leader, who controls NBC would lose power of the television company if Bill Cosby purchased it. The only way to stop the purchase was to ruin Bill Cosby."

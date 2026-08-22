@@ -1,0 +1,3 @@
+<!-- topic: Jesuit | doc: interview/2021-01-01__cobra-interview-with-katherine-on-sisterhood-of | 2021-01-01 | Cobra interview with Katherine on Sisterhood of the Rose | keywords: jesuit -->
+[Relevant content] [reported] Since the creation of the Jesuit Society of Jesus in the 16th century, Jesuits have been very active in infiltrating Rosicrucian groups (from the 17th century) and Masonic groups (from the 18th century), corrupting almost all of those organizations.
+[Key quotes] "I would say since the 17th century the Jesuits were very active in infiltrating Rosicrucian groups. And from the 18th century they were very active in infiltrating the Masonic groups. So they corrupted almost all of those organizations."

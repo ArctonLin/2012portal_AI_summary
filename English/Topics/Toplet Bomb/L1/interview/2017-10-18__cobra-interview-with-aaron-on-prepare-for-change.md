@@ -1,0 +1,3 @@
+<!-- topic: Toplet Bomb | doc: interview/2017-10-18__cobra-interview-with-aaron-on-prepare-for-change | 2017-10-18 | Cobra Interview with Aaron on Prepare for Change | keywords: toplet bomb, toplet -->
+[Relevant content] Aaron asked for an update on the Yaldabaoth, Black Stone, and toplet bombs. Cobra stated that the Black Stone has been completely removed, Yaldabaoth is losing power, and the toplet bombs are being progressively removed.
+[Key quotes] "COBRA – Black stone has been completely removed. Yaldabaoth is loosing much of it’s power but there are other entities which are being cleared also. And the toplet bombs are being progressively removed, as we speak."

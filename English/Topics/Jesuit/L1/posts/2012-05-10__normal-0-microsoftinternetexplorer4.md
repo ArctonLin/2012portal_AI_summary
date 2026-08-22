@@ -1,0 +1,3 @@
+<!-- topic: Jesuit | doc: posts/2012-05-10__normal-0-microsoftinternetexplorer4 | 2012-05-10 | normal 0 microsoftinternetexplorer4 | keywords: jesuit -->
+[Relevant content] The post clarifies that dark forces on the physical plane consist of a few dozen Archons found mostly in Jesuit circles. These beings are to be removed with the coming mass arrests.
+[Key quotes] "Dark forces consist of a few dozens Archons (found mostly in Jesuit circles), a few hundred Draconians (found among Illuminati banking cartel) and a few thousand Reptilians (found in private mercenary armies such as KBR and Academi-former Blackwater)."

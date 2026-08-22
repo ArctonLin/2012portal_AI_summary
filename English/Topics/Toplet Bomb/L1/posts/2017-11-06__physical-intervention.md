@@ -1,0 +1,4 @@
+<!-- topic: Toplet Bomb | doc: posts/2017-11-06__physical-intervention | 2017-11-06 | Physical Intervention | keywords: toplet bomb, toplet -->
+[Relevant content] The clearing of plasma toplet bombs has progressed to the point where more positive physical action towards planetary liberation will be seen, but not yet the Event. As the number of remaining plasma bombs decreases, more physical actions will be taken to stop the Cabal.
+[Key quotes] "The clearing of plasma toplet bombs has progressed to the point where we will see more positive physical action towards the planetary liberation, but not yet the Event."
+"The reason why the dark forces were able to do so much evil is because nobody stopped them. Now, as the number of remaining plasma bombs is decreasing fast, there will be more and more physical actions that will have the sole purpose of stopping the Cabal in their actions."

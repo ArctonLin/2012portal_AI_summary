@@ -1,0 +1,3 @@
+<!-- topic: Black Nobility | doc: posts/2025-06-22__make-this-viral-1221-ascension-portal | 2025-06-22 | MAKE THIS VIRAL! 12:21 ASCENSION PORTAL ACTIVATION AUGUST 12-AUGUST 18-AUGUST 21, 2025 | keywords: black nobility -->
+[Relevant content] The document states that after the 12:21 Ascension Portal opens in August 2025, the only remaining planetary evil will be the Brotherhood of Death, specifically identified as the Illuminati and black nobility.
+[Key quotes] "The only evil remaining will be personal evil within the energy field of the surface humanity, and the planetary evil of the Brotherhood of Death (Illuminati and black nobility)."

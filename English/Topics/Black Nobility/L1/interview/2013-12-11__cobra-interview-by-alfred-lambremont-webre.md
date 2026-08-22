@@ -1,0 +1,3 @@
+<!-- topic: Black Nobility | doc: interview/2013-12-11__cobra-interview-by-alfred-lambremont-webre | 2013-12-11 | Cobra Interview by Alfred Lambremont Webre | keywords: black nobility -->
+[Relevant content] [reported] Cobra explains that the 1996 Congo invasion was arranged through Black Nobility families in Italy via their Jesuit network, Knights of Malta, and negative military contacts.
+[Key quotes] "Basically, this was arranged through Black Nobility families in Italy through their Jesuit network and then through Knights of Malta and through Knights of Malta to various negative military contacts around the planet."

@@ -1,0 +1,3 @@
+<!-- topic: Resistance Movement | doc: posts/2012-07-16__normal-0-microsoftinternetexplorer4_16 | 2012-07-16 | normal 0 microsoftinternetexplorer4 16 | keywords: resistance movement, resistance -->
+[Relevant content] People are asking the Resistance to intervene directly in the current situation on the planet. The Resistance is aware of humanity's suffering and will respond, but the extent and shape of their operations remain classified.
+[Key quotes] "People are also asking the Resistance to intervene now directly in the situation on this planet. The Resistance is aware of the suffering of humanity and cries for help and will respond, but the extent and shape of their operations remain classified for now."

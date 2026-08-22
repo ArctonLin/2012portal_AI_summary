@@ -1,0 +1,3 @@
+<!-- topic: Implant | doc: posts/2013-04-08__short-situation-update-clearing-of | 2013-04-08 | short situation update clearing of | keywords: implant -->
+[Relevant content] A partial lunar eclipse on April 25th, 2013, is expected to bring much of the remaining anomaly of the implant hemispheres into the awareness of surface-based Lightworkers so it can be processed and transmuted through conscious awareness.
+[Key quotes] "Partial lunar eclipse on April 25th will bring much of the remaining anomaly of the implant hemispheres into the awareness of the surface based Lightworkers so that it can be processed and transmuted through conscious awareness."

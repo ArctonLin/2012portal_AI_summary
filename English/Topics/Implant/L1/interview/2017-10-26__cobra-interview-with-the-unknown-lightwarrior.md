@@ -1,0 +1,2 @@
+<!-- topic: Implant | doc: interview/2017-10-26__cobra-interview-with-the-unknown-lightwarrior | 2017-10-26 | Cobra Interview with The Unknown Lightwarrior | keywords: implant -->
+[Relevant content] No direct mention of "implant" in this document. (Note: While the document discusses archons, reptilians, and control, the specific keyword "implant" does not appear in the text provided for this file).

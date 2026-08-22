@@ -1,0 +1,3 @@
+<!-- topic: Resistance Movement | doc: interview/2020-01-01__cobra-interview-with-sisterhood-of-the-rose-on-a | 2020-01-01 | Cobra Interview with Sisterhood of the Rose on Age of Aquarius | keywords: resistance movement, resistance -->
+[Relevant content] [reported] There are goddess vortices which are taken care of by the Light Forces and the Resistance Movement, although on the surface within the human race, there is nothing completely active at the moment.
+[Key quotes] "There are goddess vortices which are taken care of by the Light Forces, by the Resistance Movement, but on the surface within the human race, there is nothing completely active at the moment, which creates a problem of course."

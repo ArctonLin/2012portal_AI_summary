@@ -1,0 +1,5 @@
+<!-- topic: Implant | doc: meeting/2024-02-03__phoenix-ascension-conference-day-1 | 2024-02-03 | Phoenix Ascension Conference Day 1 Presented by Cobra | keywords: implant -->
+[Relevant content] [reported] Biochips are not active anymore, but subquantum anomaly is created around the chip. There are two above the eyes and one above the navel. These are the weakest spots of the human body and aura, and points where subquantum anomaly can reach into.
+[reported] Archangels descended into matter to remove implants delivered by the Lurker and subquantum anomaly; for most who were implanted, the process was too strong, leading to the beginning of the dark forces in Orion.
+[Key quotes] "Bioships are not active anymore, but there is still subquantum anomaly created around the chip. There are two above eyes and above navel. They are the weakest spots of human body and aura."
+"They went into matter to remove the implants that was delivered by the lurker and subquantum anomaly. To most of those who were implanted, the process was too strong and many lost their connections with higher selves."

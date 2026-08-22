@@ -1,0 +1,4 @@
+<!-- topic: Resistance Movement | doc: interview/2021-01-01__cobra-interview-with-katherine-on-sisterhood-of | 2021-01-01 | Cobra interview with Katherine on Sisterhood of the Rose | keywords: resistance movement, resistance -->
+[Relevant content] Cobra stated that Resistance Movement priestesses surfaced in Paris near Notre Dame between November 8th and 11th, 2018, to activate the vortex and planetary kundalini. He confirmed that members of the Resistance practice Hieros Gamos.
+[Key quotes] "the Resistance Movement priestesses have come to the surface in Paris near Notre Dame in 2018 and activated the vortex, started vortex reactivation again, in between November 8th and 11th, 2018."
+"Katherine: How about the members of the Resistance? Do they practice Hieros Gamos? Cobra: Yes. Yes, they do."

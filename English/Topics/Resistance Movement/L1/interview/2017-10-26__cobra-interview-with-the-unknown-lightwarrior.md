@@ -1,0 +1,3 @@
+<!-- topic: Resistance Movement | doc: interview/2017-10-26__cobra-interview-with-the-unknown-lightwarrior | 2017-10-26 | Cobra Interview with The Unknown Lightwarrior | keywords: resistance movement, resistance -->
+[Relevant content] [reported] The interviewer noted that Cobra receives firsthand regular intel directly from the Resistance Movement, representing the offworld group on the surface.
+[Key quotes] "Cobra you get a lot of, you know, firsthand regular intel about this sort of thing directly from the Resistance Movement – being the offworld group that you represent on the surface here."

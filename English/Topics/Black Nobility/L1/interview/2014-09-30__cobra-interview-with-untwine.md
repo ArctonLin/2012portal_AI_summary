@@ -1,0 +1,3 @@
+<!-- topic: Black Nobility | doc: interview/2014-09-30__cobra-interview-with-untwine | 2014-09-30 | Cobra Interview with Untwine | keywords: black nobility -->
+[Relevant content] [reported] Cobra explains that at the end of the 18th century, Jesuits infiltrated masonic networks in France. He states that "the top jesuits and the archons, italian black nobility family, used the same symbols, especially through France, after the French revolution, to further suppress human freedom."
+[Key quotes] "They infiltrated the masonic networks, and the top jesuits and the archons, italian black nobility family, used the same symbols, especially through France, after the French revolution, to further suppress human freedom."

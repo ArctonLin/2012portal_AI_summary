@@ -1,0 +1,3 @@
+<!-- topic: Resistance Movement | doc: posts/2021-02-17__planetary-situation-update | 2021-02-17 | Planetary Situation Update | keywords: resistance movement, resistance -->
+[Relevant content] The Resistance cleared the vast majority of Chimera underground bases and achieved a significant blitzkrieg breakthrough on February 10th, gaining the upper hand in the planetary subterranean domain.
+[Key quotes] "The Resistance has managed to clear the vast majority of Chimera underground bases and made a significant blitzkrieg breakthrough there on February 10th and now holds the upper hand in planetary subterranean domain."

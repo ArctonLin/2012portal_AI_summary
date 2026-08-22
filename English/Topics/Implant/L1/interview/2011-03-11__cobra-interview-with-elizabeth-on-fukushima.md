@@ -1,0 +1,4 @@
+<!-- topic: Implant | doc: interview/2011-03-11__cobra-interview-with-elizabeth-on-fukushima | 2011-03-11 | Cobra Interview with Elizabeth on Fukushima | keywords: implant -->
+[Relevant content] Elizabeth asks if the Event is the clearing of resistance within humans through "implants and programming" to imagine the scale of the operation. Cobra confirms that the Event involves the education of the masses to integrate the vast shift in perspective.
+[Key quotes] "E: So, the Event, which we can begin to talk about now, really is the clearing of the resistance that is within us, through these implants and through this programming, to even imagine this scale of operation and to be emotionally ready to consider that this is an evolution of our own consciousness rather than an outside, kind of overwhelming, influence. Is that a good way to talk about it?"
+"C: Yes. One of the main factors in the Event will be the education of the masses..."

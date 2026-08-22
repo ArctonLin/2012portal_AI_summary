@@ -1,0 +1,4 @@
+<!-- topic: Implant | doc: interview/2015-10-18__cobra-interview-by-prepare-for-change | 2015-10-18 | Cobra Interview by Prepare for Change | keywords: implant -->
+[Relevant content] [reported] Cobra addresses the topic of microchipping, stating it is no longer a problem. The microchipping campaign began after WWII following the WHO vaccination campaign in the late 1940s. The Resistance Movement has neutralized all microchips, so they are no longer active. Regarding cloning, Cobra clarifies that it is not the soul that is implanted into a clone, but the personality and various energy bodies; the physical body can also be implanted.
+[Key quotes] "Micro-chipping is no longer a problem... the Resistant Movement has neutralized all the micro chips so they are no longer active."
+"It is not a soul that is implanted but the personality which is ensouled is being implanted, various energy bodies can be implanted and unfortunately the physical body also can be implanted."

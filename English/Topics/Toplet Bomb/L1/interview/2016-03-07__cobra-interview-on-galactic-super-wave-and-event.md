@@ -1,0 +1,5 @@
+<!-- topic: Toplet Bomb | doc: interview/2016-03-07__cobra-interview-on-galactic-super-wave-and-event | 2016-03-07 | Cobra Interview on Galactic Super-wave and Event Timing | keywords: toplet bomb, toplet -->
+[Relevant content] PFCC asks if the Event can happen instantly if all toplet quark bombs are removed before the Galactic Super-wave reaches Earth. [reported] Cobra states that the Galaxy is a living being and the removal of toplet bombs and the Galactic Super-wave are synchronized. When asked about the timeline for bomb removal, Cobra states that toplet bombs take a long time to clear and that the sooner people realize this and keep working, the sooner it will come. A question about setting a deadline for removal is answered as classified.
+[Key quotes] "Galaxy is a living being and the removal of toplet bombs and the Galactic Super-wave are synchronized."
+"The reality of the situation is that toplet bombs take long time to clear. The sooner we all realize this and keep working for the liberation, the sooner it will come."
+"The answer to this question needs to remain classified."

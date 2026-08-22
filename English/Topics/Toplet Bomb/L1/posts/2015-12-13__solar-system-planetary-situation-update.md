@@ -1,0 +1,3 @@
+<!-- topic: Toplet Bomb | doc: posts/2015-12-13__solar-system-planetary-situation-update | 2015-12-13 | Solar System / Planetary Situation Update | keywords: toplet bomb, toplet -->
+[Relevant content] The clearing of the Chimera group continues. The main remaining problem is identified as implants of Cabal members connected to Tunnels of Set and Yaldabaoth plasma accretion vortex, which are tied to plasma strangelet and toplet bombs.
+[Key quotes] "The main problem remaining are implants of the Cabal members, connected with Tunnels of Set to Yaldabaoth plasma accretion vortex which extends throughout the Solar system, tied to plasma strangelet and toplet bombs."

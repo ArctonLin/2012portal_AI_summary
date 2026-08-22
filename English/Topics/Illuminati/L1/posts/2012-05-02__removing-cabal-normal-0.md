@@ -1,0 +1,4 @@
+<!-- topic: Illuminati | doc: posts/2012-05-02__removing-cabal-normal-0 | 2012-05-02 | removing cabal normal 0 | keywords: illuminati, brotherhood of death -->
+[Relevant content] Amnesty will be granted to some members of the Cabal, specifically those born into the Illuminati who had no choice but to go along with the program or risk being killed. Many younger generation Illuminati do not agree with the program and have been secretly helping Light forces. After the Event, psychological help will be offered to them for integration into society.
+[Key quotes] "Amnesty will be granted to some of them. This pertains mostly to those that were born into the Illuminati and basically had no choice but to go along with the program or risk being killed."
+"Many of the younger generations Illuminati do not agree with the program and some have been secretly helping the Light forces to take down the Cabal."

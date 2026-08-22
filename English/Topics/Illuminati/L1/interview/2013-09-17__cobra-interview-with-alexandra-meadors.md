@@ -1,0 +1,3 @@
+<!-- topic: Illuminati | doc: interview/2013-09-17__cobra-interview-with-alexandra-meadors | 2013-09-17 | Cobra Interview with Alexandra Meadors | keywords: illuminati, brotherhood of death -->
+[Relevant content] [reported] Cobra comments on David Icke, stating he did a great job awakening humanity about the Illuminati and providing good basic information on the structure of the Cabal and Reptilians.
+[Key quotes] "He has did a great job about awakening humanity about Illuminati and some good information on the Reptilians. I am not following his work lately. He released some good and basic information about the structure of the Cabal."

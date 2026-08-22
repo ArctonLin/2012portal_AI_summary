@@ -1,0 +1,5 @@
+<!-- topic: Resistance Movement | doc: posts/2018-06-27__gamma-timeline | 2018-06-27 | Gamma Timeline | keywords: resistance movement, resistance -->
+[Relevant content] In the gamma timeline, some Lightworkers might be accepted into the Resistance according to Entry protocols. A second group might be accepted later and allowed to bring pets; this group will not be integrated into Resistance society but will live in a special underground colony. Resistance agents might establish physical contact with certain surface Lightworkers to offer assistance.
+[Key quotes] "another small group of Lightworkers might be accepted into the Resistance as per Entry protocols."
+"Some time after initial group, another group might be accepted into the Resistance and they will be able to take their pets with them. This second group will not be integrated into the Resistance society and a special colony is being prepared for them in a certain location underground."
+"At a certain point, Resistance agents might establish physical contact with certain Lightworkers on the surface and offer assistance."

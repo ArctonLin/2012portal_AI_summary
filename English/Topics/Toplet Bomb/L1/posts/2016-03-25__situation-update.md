@@ -1,0 +1,4 @@
+<!-- topic: Toplet Bomb | doc: posts/2016-03-25__situation-update | 2016-03-25 | Situation Update | keywords: toplet bomb, toplet -->
+[Relevant content] The vast majority of plasma strangelet bombs have been removed, and the Light forces are now focusing on the removal of plasma toplet bombs, successfully using the same approach. This removal is easing tension inside the Solar System, opening up Quarantine Earth, and speeding up the Disclosure process.
+[Key quotes] "The vast majority of plasma strangelet bombs have been removed and now the Light forces are focusing on removal of plasma toplet bombs, successfully using the same approach."
+"The removal of plasma strangelet and toplet bombs is easing the tension inside our Solar System, opening up Quarantine Earth and speeding up Disclosure process for the surface population."

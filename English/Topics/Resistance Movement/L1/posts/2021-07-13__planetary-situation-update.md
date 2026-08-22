@@ -1,0 +1,4 @@
+<!-- topic: Resistance Movement | doc: posts/2021-07-13__planetary-situation-update | 2021-07-13 | Planetary Situation Update | keywords: resistance movement, resistance -->
+[Relevant content] The top priority of the Resistance and the Positive military is to rescue children still captured in underground tunnels and abuse centers. The Resistance and the Pleiadian fleet have contacted the Positive military in the USA, Russia, and China to prepare for the Event.
+[Key quotes] "Top priority of the Resistance and the Positive military now is to rescue as many children as possible still captured there."
+"The Resistance and the Pleiadian fleet have contacted the Positive military in USA, Russia and China several times in the last few months, and certain plans have been set into motion to prepare for the Event."

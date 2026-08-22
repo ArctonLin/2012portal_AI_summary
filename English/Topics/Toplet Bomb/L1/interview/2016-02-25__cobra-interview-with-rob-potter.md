@@ -1,0 +1,4 @@
+<!-- topic: Toplet Bomb | doc: interview/2016-02-25__cobra-interview-with-rob-potter | 2016-02-25 | Cobra Interview with Rob Potter | keywords: toplet bomb, toplet -->
+[Relevant content] Rob asks if the Event can occur if 144K people meditate before the removal of strangelet bombs; Cobra says it is possible. Rob asks what prevents the Cabal from detonating a strangelet or toplet bomb as a last resort. [reported] Cobra states that those with access to strangelet bombs are not many, are not emotionally polarized but mentally polarized, and they plan rather than react, which is how they maintained the quarantine for 25k years.
+[Key quotes] "Yes, it’s possible."
+"Those that have access to strangelet bombs, they are not many and they are not so emotionally polarized, they are more mentally polarized and they plan. They do not react. This is how they were able to maintain this quarantine for 25k years."

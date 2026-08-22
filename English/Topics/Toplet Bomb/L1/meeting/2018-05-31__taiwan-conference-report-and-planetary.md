@@ -1,0 +1,5 @@
+<!-- topic: Toplet Bomb | doc: meeting/2018-05-31__taiwan-conference-report-and-planetary | 2018-05-31 | taiwan-conference-report-and-planetary | keywords: toplet bomb, toplet -->
+[Relevant content] [reported] Strangelet bombs have been removed, but some toplet bombs remain active. Toplet bombs are difficult to clear because they are connected to the surface population. The Resistance Movement (RM) is ensuring they do not detonate, and no help is requested from the surface population due to risk. Toplet bombs were invented by the Chimera group millions of years ago. Removing toplet bombs is a task for Galactic Forces, who have been removing them since the discovery of the Chimera and the bombs.
+[Key quotes] "The strangelet bombs have been removed but there are still some toplet bombs active. The toplet bombs will be difficult to clear as they are connected to the surface population."
+"Toplet bombs were invented by the Chimera group millions of years ago."
+"Removing the toplet bombs is a task of the Galactic Forces; they have been removing them ever since."

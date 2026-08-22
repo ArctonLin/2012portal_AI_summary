@@ -1,0 +1,3 @@
+<!-- topic: Illuminati | doc: posts/2012-05-10__normal-0-microsoftinternetexplorer4 | 2012-05-10 | normal 0 microsoftinternetexplorer4 | keywords: illuminati, brotherhood of death -->
+[Relevant content] The document clarifies the location of remaining dark forces on the physical plane. It states that a few hundred Draconians are found among the "Illuminati banking cartel."
+[Key quotes] "The second and the last place where you can find any dark forces is the physical plane on the surface of planet Earth. Dark forces consist of a few dozens Archons (found mostly in Jesuit circles), a few hundred Draconians (found among Illuminati banking cartel) and a few thousand Reptilians (found in private mercenary armies such as KBR and Academi-former Blackwater)."

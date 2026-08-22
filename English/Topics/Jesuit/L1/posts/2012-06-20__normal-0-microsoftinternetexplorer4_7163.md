@@ -1,0 +1,3 @@
+<!-- topic: Jesuit | doc: posts/2012-06-20__normal-0-microsoftinternetexplorer4_7163 | 2012-06-20 | normal 0 microsoftinternetexplorer4 7163 | keywords: jesuit -->
+[Relevant content] The post mentions that the Jesuit faction is constantly blocking Cobra's access to vast funds that rightfully belong to him. He has been fighting to get this money back for years without success.
+[Key quotes] "Actually there are vast funds that rightfully belong to me and could be put into good use in those projects, but the Jesuit faction is constantly blocking my access to that money. I keep fighting to get it back for years, but as of yet, without success."

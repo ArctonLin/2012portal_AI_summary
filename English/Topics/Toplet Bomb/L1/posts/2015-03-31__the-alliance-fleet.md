@@ -1,0 +1,4 @@
+<!-- topic: Toplet Bomb | doc: posts/2015-03-31__the-alliance-fleet | 2015-03-31 | The Alliance Fleet | keywords: toplet bomb, toplet -->
+[Relevant content] The only problem outside Earth is a small number of Chimera individuals defending strongholds with plasma strangelet and toplet bombs. After the successful removal of all physical strangelet and toplet bombs in late January 2015, the MOSS operation was initialized.
+[Key quotes] "Now the only problem outside Earth is a very small number of Chimera individuals and their minions which defend their Solar System strongholds (mainly implant guardian stations) with plasma strangelet and toplet bombs."
+"After the successful removal of all physical strangelet and toplet bombs in late January this year, an operation for the final liberation of our Solar System (codenamed MOSS) has been initialized."

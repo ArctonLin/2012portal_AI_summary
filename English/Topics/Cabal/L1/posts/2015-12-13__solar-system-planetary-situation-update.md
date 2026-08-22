@@ -1,0 +1,6 @@
+<!-- topic: Cabal | doc: posts/2015-12-13__solar-system-planetary-situation-update | 2015-12-13 | Solar System / Planetary Situation Update | keywords: cabal -->
+[Relevant content] The main problem remaining in the clearing of the Chimera group is the implants of Cabal members, which are connected to the Tunnels of Set and Yaldabaoth plasma accretion vortex. These implants are tied to plasma strangelet and toplet bombs.
+Implants of Lightworkers and Lightwarriors are connected to the implants of Cabal members with the Tunnels of Set, which hinders their spiritual progress but accelerates the clearing of the Cabal's implants and the disintegration of the Yaldabaoth vortex.
+
+[Key quotes] "The main problem remaining are implants of the Cabal members, connected with Tunnels of Set to Yaldabaoth plasma accretion vortex which extends throughout the Solar system, tied to plasma strangelet and toplet bombs."
+"Implants of the Lightworkers and Lightwarriors are connected to the implants of the Cabal members with Tunnels of Set and this hinders their spiritual progress, but at the same time accelerates the clearing of the Cabal's implants and disintegration of the Yaldabaoth octopus plasma accretion vortex."

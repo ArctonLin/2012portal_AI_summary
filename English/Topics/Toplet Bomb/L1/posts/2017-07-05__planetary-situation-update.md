@@ -1,0 +1,3 @@
+<!-- topic: Toplet Bomb | doc: posts/2017-07-05__planetary-situation-update | 2017-07-05 | Planetary Situation Update | keywords: toplet bomb, toplet -->
+[Relevant content] The main focus of the Light forces is the clearing of the plasma "head" of the Yaldabaoth entity, toplet bombs, black stone, and primary anomaly. This is described as a very sensitive operation for which little intel can be provided until completion.
+[Key quotes] "The main focus of the Light forces is now the clearing of the plasma „head“ of the Yaldabaoth entity, toplet bombs, black stone and primary anomaly associated with all these."

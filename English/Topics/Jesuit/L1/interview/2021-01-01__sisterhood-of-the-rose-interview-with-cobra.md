@@ -1,0 +1,3 @@
+<!-- topic: Jesuit | doc: interview/2021-01-01__sisterhood-of-the-rose-interview-with-cobra | 2021-01-01 | Sisterhood of the Rose Interview with Cobra | keywords: jesuit -->
+[Relevant content] [reported] The Jesuit faction of the Cabal wants depopulation of the Earth, whereas the Rothschilds are more inclined towards the Great Reset/techno-feudalism. The Queen of England is connected to the Rothschilds and sees herself as a "good guy" because she is against depopulation.
+[Key quotes] "The Jesuit faction wants depopulation of the Earth. And the Rothschilds are more inclined towards the Great Reset... more like a techno-feudalism type of society without mass exterminations."

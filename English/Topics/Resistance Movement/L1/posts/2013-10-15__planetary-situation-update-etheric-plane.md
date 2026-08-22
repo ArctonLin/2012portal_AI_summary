@@ -1,0 +1,5 @@
+<!-- topic: Resistance Movement | doc: posts/2013-10-15__planetary-situation-update-etheric-plane | 2013-10-15 | Planetary Situation Update: Etheric Plane | keywords: resistance movement, resistance -->
+[Relevant content] The Resistance Movement is working to hack the computer program that controls the implants in the etheric mainframe computer of the Archons. Once hacked, the Resistance will be able to shut down the scalar field around the implants, causing them to evaporate. The Resistance hacked this program once on November 9th, 2003. After December 21st, 2012, the Resistance managed to break into the etheric mainframe computer, but the specific implant program has not been hacked yet.
+[Key quotes] "The Resistance Movement is working to hack the computer program which controls the implants in the etheric mainframe computer of the Archons."
+"The Resistance has already hacked that program once on November 9th, 2003, the day of the Harmonic Concordance."
+"After December 21st, 2012, the Resistance has managed to break into the etheric mainframe computer of the Archons but the particular program regarding implants has not been hacked yet."

@@ -1,0 +1,4 @@
+<!-- topic: Cabal | doc: posts/2013-01-03__etheric-archon-grid-after-successful | 2013-01-03 | etheric archon grid after successful | keywords: cabal -->
+[Relevant content] If the Event were triggered while the etheric Archon grid remained, the Archons would influence the Cabal and others to turn the Event into a disaster. The etheric Archons transmit data to the physical Black Box, which is connected to the physical mainframe computer of the Cabal ("the Beast") and NSA.
+[Key quotes] "If the Event was triggered, the etheric Archons would influence everyone involved: the surface Light forces carrying out the Event, the general population as well as the Cabal and all this would turn the Event into a disaster."
+"Etheric Archons transmit data from the etheric mainframe computer into the physical Black Box which is in possession of one of the main Italian black nobility families and is connected with the physical mainframe computer of the Cabal (»the Beast«)"

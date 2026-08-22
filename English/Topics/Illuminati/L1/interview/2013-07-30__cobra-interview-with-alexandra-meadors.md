@@ -1,0 +1,3 @@
+<!-- topic: Illuminati | doc: interview/2013-07-30__cobra-interview-with-alexandra-meadors | 2013-07-30 | Cobra Interview with Alexandra Meadors | keywords: illuminati, brotherhood of death -->
+[Relevant content] [reported] Cobra disagrees with the idea that a negative ET will come forward as a savior to reveal a satanic connection in the new financial system, stating that the new financial system is coming from the light forces, not the Cabal/Illuminati.
+[Key quotes] "I absolutely disagree with that. The new financial system is not coming from the cabal. It is coming from the light forces. The cabal does not have enough power to do something like this any more."

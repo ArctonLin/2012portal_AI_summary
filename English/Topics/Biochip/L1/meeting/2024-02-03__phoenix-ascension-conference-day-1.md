@@ -1,0 +1,4 @@
+<!-- topic: Biochip | doc: meeting/2024-02-03__phoenix-ascension-conference-day-1 | 2024-02-03 | Phoenix Ascension Conference Day 1 Presented by Cobra | keywords: biochip -->
+[Relevant content] [reported] Biochips still exist in the physical plane but are not active; however, subquantum anomaly is created around the chip. They are located above the eyes and above the navel, which are the weakest spots of the human body and aura where subquantum anomaly can reach in. These are the last aspects of the quarantine that must be disassembled before contact can begin.
+[Key quotes] "Another aspect of this is the biochips that still exist in physical plane. Bioships are not active anymore, but there is still subquantum anomaly created around the chip."
+"They are the weakest spots of human body and aura. They are the points subquantum anomaly can reach into, so they are the spots protections are needed the most."

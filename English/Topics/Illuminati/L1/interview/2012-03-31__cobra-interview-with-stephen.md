@@ -1,0 +1,5 @@
+<!-- topic: Illuminati | doc: interview/2012-03-31__cobra-interview-with-stephen | 2012-03-31 | Cobra interview with Stephen | keywords: illuminati, brotherhood of death -->
+[Relevant content] [reported] Stephen asks why Cobra chose the name "Cobra," noting it is a "strong Illuminati symbol." Cobra responds that the cobra is also a symbol for kundalini and liberation, which is dangerous to the Illuminati. Cobra later states that many high-ranking Illuminati have brilliant credentials in academia and the corporate world.
+[Key quotes] "As you would agree, it has a slight fear element – being both a dangerous and venomous snake; a strong Illuminati symbol if ever there was one…"
+"Cobra is also a symbol for kundalini, the force of enlightenment, the force of liberation and freedom. And yes, that IS dangerous to the Illuminati. It represents a slight fear element to them and they have every reason to be afraid…"
+"Many high ranking Illuminati have brilliant credentials in academia and corporate world and look what have they done to the planet."

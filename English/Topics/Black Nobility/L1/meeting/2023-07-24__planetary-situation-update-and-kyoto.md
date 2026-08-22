@@ -1,0 +1,3 @@
+<!-- topic: Black Nobility | doc: meeting/2023-07-24__planetary-situation-update-and-kyoto | 2023-07-24 | planetary-situation-update-and-kyoto | keywords: black nobility -->
+[Relevant content] The Chimera group controls through black nobility families, which have infiltrated almost the whole systems, from politics to mass media to everything. Through this network, they control the whole human society.
+[Key quotes] "The Chimera group controls through black nobility families, and they have infiltrated almost the whole systems, from politics to mass media to everything. And through the network, they control the whole human society."

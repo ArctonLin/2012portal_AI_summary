@@ -1,0 +1,4 @@
+<!-- topic: Resistance Movement | doc: posts/2013-11-28__the-jesuit-agenda | 2013-11-28 | The Jesuit Agenda | keywords: resistance movement, resistance -->
+[Relevant content] The main purpose of the NSA is to intercept and evaluate messages indicating contact with benevolent ET intelligence or with the Resistance, as such contact poses a perceived threat to the Jesuit empire. After 2004, all deep underground military bases were cleared by the Resistance.
+[Key quotes] "The main purpose of NSA is to monitor ALL electronic communications on the planet without exceptions and intercept, analyze and evaluate all messages that would indicate a contact with benevolent ET intelligence or with the Resistance as any trace of that contact would pose a perceived threat to the Jesuit empire."
+"After 2004, all those bases were cleared by the Resistance."

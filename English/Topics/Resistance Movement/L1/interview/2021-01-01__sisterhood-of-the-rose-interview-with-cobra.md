@@ -1,0 +1,4 @@
+<!-- topic: Resistance Movement | doc: interview/2021-01-01__sisterhood-of-the-rose-interview-with-cobra | 2021-01-01 | Sisterhood of the Rose Interview with Cobra | keywords: resistance movement, resistance -->
+[Relevant content] Cobra noted that the Resistance Movement expected less darkness than actually present, contributing to the challenging nature of the transition. He clarified that First Contact includes the Resistance Movement coming to the surface, though this aspect remains classified.
+[Key quotes] "The first one is there is simply more darkness than anybody expected, I expected, the Resistance Movement expected, or the Light Forces expected."
+"Does First Contact also include benevolent beings underground, like the Agarthans and the Resistance Movement coming to the surface? ... Yes, but this part is still classified."

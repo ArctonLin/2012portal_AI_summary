@@ -1,0 +1,3 @@
+<!-- topic: Toplet Bomb | doc: posts/2021-10-02__hold-light-ii | 2021-10-02 | Hold the Light II | keywords: toplet bomb, toplet -->
+[Relevant content] Since September 18th, the clearing of the subquantum anomaly has started, which means the Light forces are beginning to resolve the problem of the toplet bombs by isolating their effective radius of topness production into "collapsed spacetime bubbles."
+[Key quotes] "Clearing of the subquantum anomaly also means that the Light forces are finally beginning to resolve the problem of the toplet bombs, isolating their effective radius of topness production into the so-called “collapsed spacetime bubbles”."

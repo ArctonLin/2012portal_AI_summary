@@ -1,0 +1,3 @@
+<!-- topic: Black Nobility | doc: posts/2015-08-20__secret-of-imortality | 2015-08-20 | Secret of Immortality | keywords: black nobility -->
+[Relevant content] The post states that a message of the Cross of Lorraine is that "in every Archon or Black nobility family there are beings of Light incarnated who secretly or openly work for the Light and against the plans of the Cabal." It cites Francesco Colonna, a member of the Archon Colonna family, as an example of such a being.
+[Key quotes] "One message of the Cross of Lorraine is that in every Archon or Black nobility family there are beings of Light incarnated who secretly or openly work for the Light and against the plans of the Cabal."

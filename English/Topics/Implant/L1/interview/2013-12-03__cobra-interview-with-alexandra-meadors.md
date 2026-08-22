@@ -1,0 +1,4 @@
+<!-- topic: Implant | doc: interview/2013-12-03__cobra-interview-with-alexandra-meadors | 2013-12-03 | Cobra interview with Alexandra Meadors | keywords: implant -->
+[Relevant content] [reported] Cobra defines an implant as a device or technology (such as a crystal or alien object) inserted into the energy body using strong electromagnetic forces, which blocks the flow of energy. This is distinct from an entity, which is a living being inserted into the energy structure. [reported] Cobra states that the implant removal process has been "phenomenally successful."
+[Key quotes] "Okay, implant is a certain, I would say device, technology which has been inserted, inserted in our energy bodies with very strong electromagnetic forces. It can be a crystal, or a certain alien, implant, a certain object, on the higher planes which actually blocks the flow of energy."
+"And, for everybody that’s been asking, the implant removal process has been phenomenally successful."

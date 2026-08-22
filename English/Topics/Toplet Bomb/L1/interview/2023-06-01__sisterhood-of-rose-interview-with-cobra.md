@@ -1,0 +1,3 @@
+<!-- topic: Toplet Bomb | doc: interview/2023-06-01__sisterhood-of-rose-interview-with-cobra | 2023-06-01 | Sisterhood of Rose Interview with Cobra | keywords: toplet bomb, toplet -->
+[Relevant content] [reported] Cobra confirms that the toplet bombs have been destroyed following the Portal of Light Activation. This destruction has stabilized the positive timeline, and the remaining obstacles to planetary liberation can now be removed easier, faster, and with less risk.
+[Key quotes] "The toplet bombs have been destroyed, and now the remaining obstacles to planetary liberation can be removed easier, faster, and with less risk."

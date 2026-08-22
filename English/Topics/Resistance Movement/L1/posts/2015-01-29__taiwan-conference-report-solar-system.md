@@ -1,0 +1,3 @@
+<!-- topic: Resistance Movement | doc: posts/2015-01-29__taiwan-conference-report-solar-system | 2015-01-29 | Taiwan Conference Report / Solar System Situation Update | keywords: resistance movement, resistance -->
+[Relevant content] The Resistance Movement, alongside the Ashtar Command, Pleiadian Fleet, and Sirian Fleet, began an operation to clear the entire solar system of Chimera and Draco/Reptilian fleet fragments hiding in the main asteroid belt and Kuiper belt.
+[Key quotes] "This weekend, the Light forces of the Ashtar Command, the Pleiadian Fleet, the Sirian Fleet and the Resistance Movement have begun an operation to clear the entire solar system completely."

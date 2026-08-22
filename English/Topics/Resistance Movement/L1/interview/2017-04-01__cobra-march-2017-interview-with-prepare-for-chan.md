@@ -1,0 +1,4 @@
+<!-- topic: Resistance Movement | doc: interview/2017-04-01__cobra-march-2017-interview-with-prepare-for-chan | 2017-04-01 | Cobra March 2017 Interview with Prepare For Change | keywords: resistance movement, resistance -->
+[Relevant content] [reported] The RM (Resistance Movement) is working in Antarctica and is having very intense operations there right now. The Resistance sees the responsible use of replicator technology as being ensured by safety mechanisms that prevent irresponsible use.
+[Key quotes] "Lastly, is the RM (Resistance Movement) working in some manner with Antarctica? COBRA – Yes, they are having very intense operations there right now."
+"What does the Resistance see as responsible use of this technology? COBRA – The irresponsible use of that technology is not possible because all the replicators have a safety mechanism which prevents irresponsible use."

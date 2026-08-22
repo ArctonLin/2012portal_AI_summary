@@ -1,0 +1,5 @@
+<!-- topic: Toplet Bomb | doc: interview/2015-11-12__cobra-resistance-interview-with-rob | 2015-11-12 | Cobra Resistance Interview with Rob | keywords: toplet bomb, toplet -->
+[Relevant content] Rob asks if there is a certain number of strangelet and toplet bombs and if they are still being created. [reported] Cobra states there is a certain number, but no new ones are being created; their number is decreasing as they are being cleared. When asked for specific numbers (below 50 or above 100), Cobra states this is classified information. Later, regarding the Keshe free energy device, Cobra notes that the Resistance says the main thing that has to be removed are the strangelet bombs for many technologies to be released.
+[Key quotes] "There is a certain number of them, yes, but they are not being. . . no new ones are being created. Their number is decreasing all the time as they’re being cleared."
+"No. That’s classified information."
+"I have discussed those situations with them many times, but again, they always say that the main thing that has to be removed are the strangelet bombs and then many things can take place."

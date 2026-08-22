@@ -1,0 +1,4 @@
+<!-- topic: Implant | doc: posts/2015-03-31__the-alliance-fleet | 2015-03-31 | The Alliance Fleet | keywords: implant -->
+[Relevant content] The Chimera group defends their Solar System strongholds, which are identified as "implant guardian stations," using plasma strangelet and toplet bombs. It is stated that because every person on Earth has implants that block access to specific intelligence, information about the Chimera remains in the deepest shadow of the collective unconsciousness.
+[Key quotes] "Now the only problem outside Earth is a very small number of Chimera individuals and their minions which defend their Solar System strongholds (mainly implant guardian stations) with plasma strangelet and toplet bombs."
+"Because everybody on Earth has implants that block access to that intel, all intel about the Chimera is in the deepest shadow of collective unconsciousness..."

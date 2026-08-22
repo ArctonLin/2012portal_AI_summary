@@ -1,0 +1,5 @@
+<!-- topic: Implant | doc: interview/2020-01-01__cobra-interview-with-sisterhood-of-the-rose-on-a | 2020-01-01 | Cobra Interview with Sisterhood of the Rose on Age of Aquarius | keywords: implant -->
+[Relevant content] [reported] The clearing of implants is linked to the end-time madness where programming is triggered. If a person clears their head implants, they would experience enlightenment and unite with Source, but this is not currently possible as implants are tied to the planetary energy field. Performing the deprogramming protocol of implants (e.g., "I AM God, I AM not God") helps the Light Forces with all their operations, including removing toplet bombs. Implants and technology in energy fields disrupt the experience of Bubbles of Heaven.
+[Key quotes] "Well, it's an end time madness because all the programming is being triggered... So this is the reason why people react so strongly..."
+"If you would like to clear the implants, you would have to go beyond the veil. But if you did clear your implants, you would have the enlightenment experience; basically you would unite with the Source."
+"It would help the light forces with ALL of their operations."

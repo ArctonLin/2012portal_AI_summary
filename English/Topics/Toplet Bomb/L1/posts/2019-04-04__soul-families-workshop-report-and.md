@@ -1,0 +1,3 @@
+<!-- topic: Toplet Bomb | doc: posts/2019-04-04__soul-families-workshop-report-and | 2019-04-04 | Soul Families Workshop Report and Planetary Situation Update | keywords: toplet bomb, toplet -->
+[Relevant content] Clearing of the plasma toplet bombs is ongoing. The clearing process is approaching a stage where "certain unprecedented action of the Light forces may be possible in the not too distant future."
+[Key quotes] "Clearing of the Chimera group continues, as well as clearing of the plasma toplet bombs. Clearing of the toplet bombs is approaching the stage where “certain unprecedented action of the Light forces may be possible in the not too distant future”"

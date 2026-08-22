@@ -1,0 +1,4 @@
+<!-- topic: Jesuit | doc: posts/2013-09-11__planetary-situation-update-part-1 | 2013-09-11 | Planetary Situation Update Part 1 | keywords: jesuit -->
+[Relevant content] Large portions of the Jesuit and Rothschild factions have expressed theoretical willingness to surrender at the Event. Pope Francis is described as a "Jesuit white Pope" who puts on a friendly face to seek amnesty for himself and the Catholic Church. Members of Jesuit and Rothschild factions have expressed willingness to help take down the Rockefeller faction.
+[Key quotes] "Large portions of Jesuit and Rothschild factions have already expressed their theoretical willingness to surrender at the Event."
+"This is the reason why current Jesuit white Pope Francis puts on a friendly face. He wants to get amnesty for himself and the Catholic Church."

@@ -1,0 +1,3 @@
+<!-- topic: Cabal | doc: meeting/2026-07-10__official-notes-cobras-workshop-golden-timeline-and-activation-of-the-chalice-of-abundance-of-the-paris-vortex-in-paris-june-2026 | 2026-07-10 | OFFICIAL NOTES: Cobra’s workshop “GOLDEN TIMELINE AND ACTIVATION OF THE CHALICE OF ABUNDANCE OF THE PARIS VORTEX” in Paris June 2026 | keywords: cabal -->
+[Relevant content] There is an extensive underground network of chambers from Giza to Malta and the Vatican that is heavily suppressed by the Cabal. There is a negative masonic network in Egypt that is suppressing disclosure.
+[Key quotes] "It is heavily suppressed by the Cabal and there is a negative masonic network in Egypt that are suppressing disclosure."

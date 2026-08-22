@@ -1,0 +1,3 @@
+<!-- topic: Jesuit | doc: interview/2025-10-14__cobra-interview-by-iruka-october-14-2025-tokyo | 2025-10-14 | Cobra Interview by Iruka October 14, 2025 Tokyo | keywords: jesuit -->
+[Relevant content] [reported] Cobra stated that Toyotomi Hideyoshi expelled the Jesuits from Japan because they were a foreign power interfering in Japan's internal affairs. Hideyoshi's goal was to create a strong Japan, and the Dragon Family influenced him behind the scenes to unify Japan.
+[Key quotes] "Toyotomi Hideyoshi expelled the Jesuits from Japan... The Jesuits were a foreign power and were interfering in Japan's internal affairs. That's why he tried to drive them out."

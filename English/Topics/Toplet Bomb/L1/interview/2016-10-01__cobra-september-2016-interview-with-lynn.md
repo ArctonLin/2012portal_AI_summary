@@ -1,0 +1,4 @@
+<!-- topic: Toplet Bomb | doc: interview/2016-10-01__cobra-september-2016-interview-with-lynn | 2016-10-01 | Cobra September 2016 Interview with Lynn | keywords: toplet bomb, toplet -->
+[Relevant content] [reported] Lynn asked for an update on the toplet bombs. Cobra stated there was significant progress in this area. The Chimera group lost nerve in the beginning of September and attempted to trigger a full-scale galactic war in the solar system but was not successful.
+[Key quotes] "Lynn – Has there been any progress regarding the toplet bombs.
+COBRA – Yes of course. There was quite much progress in this area. . . the progress has been such that the Chimera group lost a little bit of nerve in the beginning of September and they wanted to trigger full scale . . . the last remnant of the full scale galactic war in the solar system and they were not successful."

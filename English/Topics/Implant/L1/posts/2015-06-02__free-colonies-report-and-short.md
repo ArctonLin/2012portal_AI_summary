@@ -1,0 +1,5 @@
+<!-- topic: Implant | doc: posts/2015-06-02__free-colonies-report-and-short | 2015-06-02 | Free the Colonies! Report and Short Planetary Situation Update | keywords: implant -->
+[Relevant content] The vast majority of Chimera bases and implant stations, including those on Iapetus, Enceladus, and Mimas, have been removed. The remaining Chimera bases and implant stations are located on selected asteroids (Near Earth Objects) and directly control planet Earth and its population. The removal of Chimera implant stations at L4 and L5 Lagrange points of the Earth/Moon system is noted as a significant victory; these stations had been positioned there for the last 26,000 years. Intel regarding L1 and L3 implant stations remains classified.
+[Key quotes] "The vast majority of Chimera bases and implant stations, including implant stations on Iapetus, Enceladus and Mimas, have now been removed."
+"Recent removal of Chimera implant stations at L4 and L5 Lagrange points of the Earth / Moon systems is a big victory."
+"Chimera, on the other hand, had small but powerful implant stations positioned at various Lagrange points for the last 26,000 years."

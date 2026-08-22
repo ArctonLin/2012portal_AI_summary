@@ -1,0 +1,3 @@
+<!-- topic: Resistance Movement | doc: posts/2013-07-14__make-this-viral-prepare-for-change | 2013-07-14 | MAKE THIS VIRAL! Prepare For Change | keywords: resistance movement, resistance -->
+[Relevant content] The Resistance Movement will provide its own infrastructure at the time of the Event. The grassroots infrastructure (prepareforchange.net) is being created to fill in the gaps and ensure the transition is smoother and more harmonious.
+[Key quotes] "Although the civil authority and the Resistance Movement will provide their own infrastructure at the time of the Event, it is very important to have grassroots infrastructure as well."

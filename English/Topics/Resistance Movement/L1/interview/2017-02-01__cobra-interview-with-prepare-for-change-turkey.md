@@ -1,0 +1,4 @@
+<!-- topic: Resistance Movement | doc: interview/2017-02-01__cobra-interview-with-prepare-for-change-turkey | 2017-02-01 | Cobra interview with Prepare For Change Turkey | keywords: resistance movement, resistance -->
+[Relevant content] [reported] Deeper layers of the underground tunnel system in Anatolia are used by the Agartha Network and the Resistance. It is not the highest purpose to answer whether there are people specifically selected by the resistance ready in Turkey to take over for the interim government after the Event.
+[Key quotes] "Deeper layers of the tunnels system are used by the Agartha Network and the Resistance."
+"Q16: Are there people specifically selected by the resistance ready in Turkey to take over for the interim government after the event? C: It is not the highest purpose to answer this question."

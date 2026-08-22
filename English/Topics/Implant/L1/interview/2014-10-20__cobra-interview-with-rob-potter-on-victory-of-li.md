@@ -1,0 +1,4 @@
+<!-- topic: Implant | doc: interview/2014-10-20__cobra-interview-with-rob-potter-on-victory-of-li | 2014-10-20 | Cobra Interview with Rob Potter on Victory of Light | keywords: implant -->
+[Relevant content] [reported] Rob asks if the reptilian races involved in violation of the galactic codex have been implanted and are running a program. [reported] Cobra agrees, stating that every being on the dark side has been implanted and programmed at a certain point. [reported] Rob asks if these beings will be liberated from their implants at the event. [reported] Cobra confirms this is correct for many of them.
+[Key quotes] "Yes, yes, in most cases actually. I would say that every being on the dark side has been implanted and programmed at a certain point."
+"Yes, for many of them that is correct."

@@ -1,0 +1,4 @@
+<!-- topic: Cabal | doc: posts/2022-01-03__divine-intervention-activation-report | 2022-01-03 | Divine Intervention Activation Report | keywords: cabal -->
+[Relevant content] The Cabal interfered with the signing process of the Planetary Liberation Petition on the first website multiple times and eventually deleted the petition page, forcing a migration to a second site. Legal initiatives are building infrastructure for the arrests of the Cabal during the Event and their subsequent trials.
+[Key quotes] "The Cabal has interfered with the signing process on the first petition website a few times and finally deleted the petition page, so we had to migrate to the second petition site."
+"On the surface of the planet, there are many legal initiatives that go parallel to the Planetary Liberation Petition, and are slowly but surely building legal infrastructure for arrests of the Cabal during the Event and their subsequent trials."

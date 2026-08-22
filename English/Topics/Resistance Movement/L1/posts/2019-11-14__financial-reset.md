@@ -1,0 +1,3 @@
+<!-- topic: Resistance Movement | doc: posts/2019-11-14__financial-reset | 2019-11-14 | Financial Reset | keywords: resistance movement, resistance -->
+[Relevant content] When the systemic crash occurs, the Light forces, specifically the Resistance Movement and the Galactic Confederation, will use advanced quantum computers to hack the global banking computer located at JP Morgan headquarters in New York.
+[Key quotes] "When this happens, dark forces will try to orchestrate the crash, and the Light forces (Resistance Movement and Galactic Confederation) will use their advanced quantum computers to hack the global banking computer which are located at JP Morgan headquarters in New York."

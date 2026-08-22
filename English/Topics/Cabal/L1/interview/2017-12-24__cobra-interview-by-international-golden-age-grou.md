@@ -1,0 +1,5 @@
+<!-- topic: Cabal | doc: interview/2017-12-24__cobra-interview-by-international-golden-age-grou | 2017-12-24 | Cobra Interview by International Golden Age Group | keywords: cabal -->
+[Relevant content] [reported] Cobra states that the Archon living in Macau is one of the main anchors of the Cabal in that region. The haze problem in China is not directly related to the Cabal but is caused by bad urban planning and misuse of resources, though negative plasmatic fields are connected to it. The French Revolution was a natural movement misused by the dark forces. Marie Antoinette's lavish lifestyle was used as a smear campaign by the dark forces/Cabal. The Chinese Civil War (1945-1949) was a proxy war between the Light forces and the Cabal, specifically a Jesuit plan to take over China via the Communist Party.
+[Key quotes] "Yes it is good to bury Cintamani stones in Macau, it is one of the main anchors of the cabal in that region"
+"It was a natural movement from the people that was mis-used by the dark"
+"Yes. It was Jesuit’s plan to take over China via China Communist Party."

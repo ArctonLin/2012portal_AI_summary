@@ -1,0 +1,3 @@
+<!-- topic: Jesuit | doc: interview/2020-03-01__cobra-interview-with-hoshino-on-ascension-timeli | 2020-03-01 | Cobra Interview with Hoshino on Ascension Timeline | keywords: jesuit -->
+[Relevant content] [reported] There are two factions in Black Nobility trying to settle scores; one faction ordered the virus to be created to crash the economy and take over. Jesuits are described as the minions of this faction.
+[Key quotes] "One of those factions has ordered this virus to be created at certain locations around the world. They would like to crash the economy. They would like to take over and create a system of complete domination. Of course, Jesuits are their minions."

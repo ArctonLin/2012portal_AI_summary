@@ -1,0 +1,4 @@
+<!-- topic: Black Nobility | doc: posts/2012-12-06__theomega-grid-tacticalreadiness-of | 2012-12-06 | theomega grid tacticalreadiness of | keywords: black nobility -->
+[Relevant content] The "Omega Grid" is defined as a small group of physical Archons within the black nobility families in Italy who have access to biochemical weapons through Jesuit controllers. The top Archon on the physical plane is stated to belong to the Pallavicini family (according to unconfirmed sources) and holds control via a "Black Box" technology.
+[Key quotes] "The Omega Grid is a small group of physical Archons within the black nobility families in Italy that have access to biochemical weapons through Jesuits controllers..."
+"The top Archon on the physical plane, who belongs to the Pallavicini family according to some unconfirmed sources, holds contol of the situation through a special technology, called Black Box."

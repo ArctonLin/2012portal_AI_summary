@@ -1,0 +1,5 @@
+<!-- topic: Cabal | doc: posts/2017-09-05__situation-update | 2017-09-05 | Situation Update | keywords: cabal -->
+[Relevant content] The Archons and the Cabal are misusing the excited plasma of the Yaldabaoth entity to increase the strength of plasma vortexes to trigger extreme weather. The Cabal planned for Hurricane Harvey to become another Katrina with thousands of casualties, but casualties were reduced by more than 95% from their original plan. Unhappy with the results, the Cabal modified another hurricane (Irma) to affect Caribbean islands and Florida.
+[Key quotes] "The Archons and the Cabal are misusing the excited plasma of the Yaldabaoth entity to increase the strength of plasma vortexes in order to trigger extreme weather."
+"casualties were reduced by more than 95% from what the Cabal has originally planned."
+"Unhappy with the results, the Cabal have modified another hurricane that is now affecting Caribbean islands and will almost certainly make landfall in Florida with potentially drastic consequences"

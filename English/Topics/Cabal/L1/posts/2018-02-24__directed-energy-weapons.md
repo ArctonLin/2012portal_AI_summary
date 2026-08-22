@@ -1,0 +1,4 @@
+<!-- topic: Cabal | doc: posts/2018-02-24__directed-energy-weapons | 2018-02-24 | Directed Energy Weapons | keywords: cabal -->
+[Relevant content] Directed energy weapons are used by the Cabal in attacks towards the awakened part of the human population. A meditation is provided to visualize Cabal middlemen refusing to use these weapons and Cabal members who do not surrender being removed from the planet.
+[Key quotes] "They are used by the Cabal in their attacks towards the awakened part of human population"
+"Visualize all Cabal middlemen refusing to use directed energy weapons anymore and learning to cooperate and joining the human society in a constructive way. Visualize all Cabal members that do not wish too surrender their use of directed energy weapons being removed from the planet as fast and effectively as possible."

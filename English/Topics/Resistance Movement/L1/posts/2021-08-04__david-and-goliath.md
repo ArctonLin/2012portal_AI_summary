@@ -1,0 +1,4 @@
+<!-- topic: Resistance Movement | doc: posts/2021-08-04__david-and-goliath | 2021-08-04 | David and Goliath | keywords: resistance movement, resistance -->
+[Relevant content] On July 24th, Goddess priestesses of the Resistance Movement performed a powerful kundalini activation in the catacombs below Paris, providing energy support to global anti-lockdown protests. The Resistance communicated that a provisional interim government will be formed at the time of the Event, rather than Trump returning to the White House.
+[Key quotes] "On July 24th , Goddess priestesses of the Resistance Movement did a very powerful kundalini activation in the catacombs below Paris:"
+"The Resistance has communicate that it is not Trump who will return to the White House at the time of the Event. Rather, a provisional interim government will be formed until new elections can be held as soon as logistically possible after the Event."

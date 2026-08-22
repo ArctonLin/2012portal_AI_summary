@@ -1,0 +1,6 @@
+<!-- topic: Implant | doc: posts/2018-07-17__planetary-ascension-process | 2018-07-17 | Planetary Ascension Process | keywords: implant -->
+[Relevant content] The fourth (Arhat) initiation means the dissolution of the "vertical implant" (vertical primary implant).
+The vertical primary implant is described as a rotating plasma black hole which separates personality identification from the I AM presence.
+When this implant is dissolved, the electric fire of the I AM presence absorbs all living matter of the causal, mental, astral, etheric, plasma, and physical bodies into itself, allowing it to project as a double torus living hologram (Light body).
+
+[Key quotes] "Here it needs to be said that the fourth (Arhat) initiation means dissolution of the vertical implant, vertical primary implant being a rotating plasma black hole which separates personality identification from the I AM presence. When this implant is dissolved, the electric fire of the I AM presence absorbs all living matter of the causal, mental, astral, etheric, plasma and physical bodies into itself, and can from then on project itself into the time / space continuum as a double torus living hologram of the rainbow resurrection body (Light body)"

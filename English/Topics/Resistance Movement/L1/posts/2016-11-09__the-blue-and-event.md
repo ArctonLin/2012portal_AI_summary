@@ -1,0 +1,3 @@
+<!-- topic: Resistance Movement | doc: posts/2016-11-09__the-blue-and-event | 2016-11-09 | The Blue and the Event | keywords: resistance movement, resistance -->
+[Relevant content] The document provides the contact email address for the Cobra Resistance (cobraresistance@gmail.com) for individuals who are guardians of caves or know their location, which are being prepared as portals for the Agarthans to contact the surface population.
+[Key quotes] "For this purpose, we are actively searching for people who are guardians of such caves or know their location, to contact me at cobraresistance@gmail.com"

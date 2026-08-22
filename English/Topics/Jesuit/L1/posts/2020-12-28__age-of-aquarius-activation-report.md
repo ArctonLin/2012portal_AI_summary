@@ -1,0 +1,5 @@
+<!-- topic: Jesuit | doc: posts/2020-12-28__age-of-aquarius-activation-report | 2020-12-28 | Age of Aquarius Activation Report | keywords: jesuit -->
+[Relevant content] In September 2019, a warning was issued regarding Jesuit plans for their version of the financial Reset, scheduled for January 2020. The Jesuits are noted to be well-versed in astrology and used the Saturn-Pluto conjunction in January 2020 to trigger public announcements about coronavirus. After the formation of BRICS/Eastern alliances in 2014-2015, Jesuits shifted their main base to China and moved Cabal agents there. Communism is identified as a Jesuit creation. Jesuits, along with Rothschild and Rockefeller factions, made trilateral agreements to join forces for their plans. The Jesuit version of the Great Reset is presented by Jesuit-educated Klaus Schwab.
+[Key quotes] "In September 2019, I have warned about Jesuit plans for their version of the financial Reset which they have scheduled for January 2020"
+"Most people are not aware that communism is a Jesuit creation"
+"Jesuit, Rothchild and Rockefeller factions have made trilateral agreements to join forces in their plans"

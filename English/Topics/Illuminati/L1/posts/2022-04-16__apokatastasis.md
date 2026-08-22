@@ -1,0 +1,3 @@
+<!-- topic: Illuminati | doc: posts/2022-04-16__apokatastasis | 2022-04-16 | Apocatastasis | keywords: illuminati, brotherhood of death -->
+[Relevant content] "Pits" are secret military bases up to 30 meters underground that were previously owned by the Illuminati Breakaway Complex and are now operated by the surface Cabal. There are about 1,000 such bases worldwide, with two main ones in Ukraine below Odessa and below the Azovstal metal plant in Mariupol (Pit 404).
+[Key quotes] "Pits are secret military bases up to 30 meters underground, which were before owned by the Illuminati Breakaway Complex and are now operated by the surface Cabal."

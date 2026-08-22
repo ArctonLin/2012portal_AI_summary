@@ -1,0 +1,4 @@
+<!-- topic: Jesuit | doc: posts/2024-09-15__matrix-and-luminous-plasma | 2024-09-15 | Matrix and Luminous Plasma | keywords: jesuit -->
+[Relevant content] Following a surprise attack on September 7th that removed the negative Agartha network, the Jesuits "freaked out" because they lost their negative spiritual support. They subsequently set a chain of negative events worldwide. The Jesuits aim to keep humanity in a materialistic physical eternal time loop without access to higher dimensions to ensure maximum entropy of the Matrix.
+[Key quotes] "Immediately after that attack, the Jesuits freaked out completely because they realized they do not have the negative spiritual support they had until now for many centuries."
+"The Jesuits want to keep humanity in materialistic physical eternal time loop without any access to higher dimensions because that ensures the maximum entropy of the Matrix."

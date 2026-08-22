@@ -1,0 +1,4 @@
+<!-- topic: Jesuit | doc: posts/2020-07-07__age-of-aquarius-activation-report | 2020-07-07 | Age of Aquarius Activation Report | keywords: jesuit -->
+[Relevant content] One Jesuit plan is to create the breakup of the United States by escalating left-right polarization during the November elections, using Hillary Clinton as a candidate to ensure maximal polarization. The second main Jesuit plan is to trigger a Chinese EMP attack on the USA that would escalate into a new world war.
+[Key quotes] "One of the Jesuit plans is to create the breakup of the United States (similar to what happened to USSR and Yugoslavia) by escalating the left-right polarization at the time of November elections."
+"The second main Jesuit plan is to trigger a Chinese EMP attack on USA that would escalate into a new world war"

@@ -1,0 +1,4 @@
+<!-- topic: Black Nobility | doc: posts/2013-11-28__the-jesuit-agenda | 2013-11-28 | The Jesuit Agenda | keywords: black nobility -->
+[Relevant content] The document states that the Jesuit organization is a 16th-century creation of the Farnese family, which is one of the most powerful papal Black Nobility families in Italy. It notes that the March revolution in Europe significantly lessened the power of the Jesuits by decreasing the influence of the Black Nobility.
+[Key quotes] "It is good to know that the Jesuit organization is a 16th century creation of the Farnese family, which is one of the most powerful papal Black Nobility families in Italy."
+"The March revolution in Europe has significantly lessened the power of the Jesuits as it decreased the influence of the Black Nobility, removed feudalism and accelerated the slavery abolition process worldwide."

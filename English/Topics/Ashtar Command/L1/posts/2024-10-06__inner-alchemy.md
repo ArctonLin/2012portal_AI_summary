@@ -1,0 +1,3 @@
+<!-- topic: Ashtar Command | doc: posts/2024-10-06__inner-alchemy | 2024-10-06 | Inner Alchemy | keywords: ashtar command -->
+[Relevant content] The ATVOR meditation involves visualizing a pillar of light descending from a mothership above the Earth. Participants are instructed to say "Ashtar Command" silently in their heart each time they breathe in, calling upon the presence of the Ashtar Command mothership into their energy field.
+[Key quotes] "Each time you breathe in that Light into your heart, you say “Ashtar Command” silently in your heart. With this breath technique, we are calling upon the presence of Ashtar command mothership into your energy field."

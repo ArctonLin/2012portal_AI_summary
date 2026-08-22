@@ -1,0 +1,4 @@
+<!-- topic: Implant | doc: interview/2021-12-21__cobra-interview-divine-intervention-activation | 2021-12-21 | Cobra Interview: Divine Intervention Activation | keywords: implant -->
+[Relevant content] [reported] Cobra explains that in the "village of reincarnation" in Hunan province, China, certain people are immune to memory loss caused by implants due to a "glitch" or "hole in the matrix structure" that allowed them to slip through the veil with more intact memories during incarnation.
+[Key quotes] "How can those people collectively be immune to the memory loss caused by the implants?"
+"Cobra: There is a glitch, there is a hole in the matrix structure, which has not been discovered by the Cabal soon enough. And certain people slipped through the veil when they were incarnated with their memories, not completely intact, but more, more whole than the rest of the population."

@@ -1,0 +1,5 @@
+<!-- topic: Toplet Bomb | doc: interview/2017-08-21__cobra-august-2017-interview-with-rob | 2017-08-21 | Cobra August 2017 Interview with Rob | keywords: toplet bomb, toplet -->
+[Relevant content] Rob asked if the loving attention paid to Toplet Bomb Condensate and the primary anomaly is continuing to be successful. Cobra confirmed it is. Rob asked if the removal of the Black Stone and Toplet bombs is the last roadblock to the Event. Cobra stated that when the Black Stone and all Toplet bombs are removed, the Event should happen, and he sees no other blocks. Cobra described the Yaldabaoth entity, toplet bombs, and Black Stone as interconnected aspects of the same situation.
+[Key quotes] "Cobra: Yes, absolutely."
+"Cobra: When the Black Stone and all Toplet bombs are removed, the Event should happen. I don’t see any other reason, any other blocks, that could prevent the Event."
+"Cobra: Actually, that’s all interconnected. You have various aspects of the same situation. You have the Yaldabaoth entity, you have the toplet bombs, and you have the Black Stone. And they all intermingle in various ways."

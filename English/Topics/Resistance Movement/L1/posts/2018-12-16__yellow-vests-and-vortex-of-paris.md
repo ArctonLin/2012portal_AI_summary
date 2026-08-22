@@ -1,0 +1,3 @@
+<!-- topic: Resistance Movement | doc: posts/2018-12-16__yellow-vests-and-vortex-of-paris | 2018-12-16 | Yellow Vests and the Vortex of Paris | keywords: resistance movement, resistance -->
+[Relevant content] Certain Goddess priestesses of the Resistance Movement came to the surface in Paris from November 8th to November 11th, 2018, to perform a special planetary kundalini activation. This activation served as a trigger for the success of the Yellow Vests movement.
+[Key quotes] "Exactly 225 years after the activation of Goddess of Reason, certain Goddess priestesses of the Resistance Movement came to the surface in Paris and did a special planetary kundalini activation."

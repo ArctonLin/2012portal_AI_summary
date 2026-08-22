@@ -1,0 +1,3 @@
+<!-- topic: Jesuit | doc: interview/2016-02-25__cobra-interview-with-rob-potter | 2016-02-25 | Cobra Interview with Rob Potter | keywords: jesuit -->
+[Relevant content] [reported] Cobra stated that the negative military factions in the US, Saudi Arabia, and Turkey are puppets in the hands of the Jesuits, who want to create suffering in the Syrian area because it is a very important energy vortex.
+[Key quotes] "The negative military faction in US, the Saudi Arabian, the Turkish people, all of them are puppets in the hands of the Jesuits, and the Jesuits want to create as much suffering as possible in the Syrian area because it’s a very important energy vortex."

@@ -1,0 +1,3 @@
+<!-- topic: Jesuit | doc: posts/2015-11-30__event-meditation-report | 2015-11-30 | Event Meditation Report | keywords: jesuit -->
+[Relevant content] The Jesuits are aware that plans to start WW3 and the Islamic State project are doomed to fail, causing Jesuit-related cabalists to distance themselves from the situation to save their own skin.
+[Key quotes] "The Jesuits are very well aware that the plans to start WW3 will not be successful and that Islamic State project is doomed to fail. This is why Jesuit-related cabalists are distancing themselves from that situation in order to save their own skin"

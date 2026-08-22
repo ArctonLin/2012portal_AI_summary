@@ -1,0 +1,4 @@
+<!-- topic: Implant | doc: interview/2023-01-01__rhona-interviews-cobra-on-tachyon-chambers | 2023-01-01 | Rhona interviews Cobra on tachyon chambers | keywords: implant -->
+[Relevant content] [reported] The situation on Earth with implants, black holes, and the primary anomaly is holding back progress and healing. Once the Event takes place and implants have all been removed, tangible results of spiritual work will be accessible.
+[Key quotes] "Rhona: The situation here on Earth with implants, black holes and the primary anomaly is holding back our progress, our healing. It is as if some of our work is being hoarded. Once the event is taking place and implants have all been removed, will we finally have access to all the fruit of our heart labors?"
+"Cobra: Yeah. Finally, after the Event or when things get improved, finally we will get some tangible results. And all the, the work we have done has not been for nothing."

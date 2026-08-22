@@ -1,0 +1,5 @@
+<!-- topic: Cabal | doc: posts/2012-06-21__normal-0-microsoftinternetexplorer4_21 | 2012-06-21 | normal 0 microsoftinternetexplorer4 21 | keywords: cabal -->
+[Relevant content] The Cabal as a whole does not want to surrender; the plan of mass arrests continues. The Cabal was given a chance to surrender but refused. Operation Stardust 2 involves spraying nanodust into the physical bodies of Cabal members and their minions to block their central nervous systems at the time of the Event. This is to counteract Doom 33 and check-mate the power of the Cabal. High-ranking Cabal members are urged to surrender before or during the Event for more forgiveness. Most Cabal family members are not guilty and need healing.
+[Key quotes] "It is obvious at this point that the Cabal as a whole does not want to surrender."
+"Stardust is the codename of a special advanced nanotechnology. It is a dust made of small nanoparticles that were sprayed into the physical bodies of the members of the Cabal and their minions."
+"I would still suggest them to surrender before the Event takes place or even during the Event itself."

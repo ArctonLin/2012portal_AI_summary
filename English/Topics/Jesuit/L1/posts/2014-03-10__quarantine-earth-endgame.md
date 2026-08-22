@@ -1,0 +1,6 @@
+<!-- topic: Jesuit | doc: posts/2014-03-10__quarantine-earth-endgame | 2014-03-10 | Quarantine Earth Endgame | keywords: jesuit -->
+[Relevant content] People are becoming aware of the actions of Jesuit-backed Blackwater/Academi mercenaries in Ukraine who want to trick Ukraine and Russia into a military conflict. One reason is that Jesuits want to erase the Russian Orthodox Church in Ukraine and replace it with the Jesuit-friendly Ukrainian Greek Catholic Church. Another reason is that Jesuits want to add Ukraine to the European Union, which is described as a Jesuit creation. Only about 10% of Jesuits belong to the dark forces. A mysterious "unknown benefactor" has turned mafia groups against their previous sponsors, the Illuminazi and the Jesuits.
+[Key quotes] "People are finally becoming aware of the actions of Jesuit-backed Blackwater/Academi mercenaries in Ukraine that want to trick Ukraine and Russia into a military conflict:"
+"One of the reasons is that Jesuits want to erase Russian Orthodox Church in Ukraine and replace it with Jesuit-friendly Ukrainian Greek Catholic Church:"
+"The other reason is that Jesuits want to add Ukraine to the European Union, which is a Jesuit creation:"
+"Here I need to add that only about 10% of Jesuits belong to the dark forces..."

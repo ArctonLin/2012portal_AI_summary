@@ -1,0 +1,4 @@
+<!-- topic: Illuminati | doc: posts/2018-01-16__operation-mjolnir | 2018-01-16 | Operation Mjolnir | keywords: illuminati, brotherhood of death -->
+[Relevant content] The post identifies the "Illuminati Breakaway Complex" (IBC) as the main faction making problems recently. IBC is described as a Chimera-controlled negative faction that broke away from the surface Illuminati network and went underground during the 1996 Archon invasion. IBC consists of about 200,000 Illuminati and Dracos, is responsible for majority of missing children since 2015, and is the main focus of Operation Mjolnir.
+[Key quotes] "The main faction making problems recently is the so-called Illuminati Breakaway Complex (IBC). IBC is a Chimera-controlled negative faction that broke away from the surface Illuminati network and went underground during the Archon invasion in 1996."
+"Currently, Illuminati Breakaway Complex consists of about 200,000 Illuminati and Dracos, controlled by the Chimera."

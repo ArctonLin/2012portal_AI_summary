@@ -1,0 +1,3 @@
+<!-- topic: Jesuit | doc: posts/2012-08-14__white-nobility-i-have-received | 2012-08-14 | white nobility i have received | keywords: jesuit -->
+[Relevant content] The post states that Black Nobility families associated with the Jesuits are allergic to Goddess energy and are at the core of the conspiracy against the Goddess. Members of families such as Pallavicini, Orsini, Massimo, Borghese, Aldobrandini, Colonna, Pacelli, Odescalchi, Ortolani, and Luzzatti receive orders directly from the Archons.
+[Key quotes] "Black Nobility families that are associated with the Jesuits are allergic to the Goddess energy. They would like to wipe it out from the surface of the planet and have tried to do so many times."

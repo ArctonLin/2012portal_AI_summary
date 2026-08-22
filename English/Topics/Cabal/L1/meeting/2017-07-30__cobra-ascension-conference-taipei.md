@@ -1,0 +1,7 @@
+<!-- topic: Cabal | doc: meeting/2017-07-30__cobra-ascension-conference-taipei | 2017-07-30 | Cobra Ascension Conference Taipei | keywords: cabal -->
+[Relevant content] The Cabal has placed a scalar plasma network in the brain to block access to higher consciousness. The Cabal is hiding remnants of past civilizations in Antarctica. The Cabal is most afraid of the Mother Ships. The Cabal's most powerful radar stations are in Maui and Diego Garcia. The Cabal has strategically implemented ways to atrophy the pineal and pituitary chakras. The Cabal is distracting people by making them think it is selfish to know what they want.
+[Key quotes] "The cabal has placed a scalar plasma network in the brain (similar to computer software programs?) to block our access to higher consciousness."
+"Antarctica is a key point in this new energy grid, where the cabal is hiding remnants of past civilizations as well as intel that will be part of the disclosure in the (near) future."
+"Things have progressed to the extent that the cabal is most dearly afraid of the Mother Ships (Galactic Central Race)"
+"The cabal has very strategically and successfully implemented ways that atrophy the pineal and pituitary chakras and glands, thus blocking our connection to our Higher self and higher states of ocnsciousness."
+"The cabal is distracting us by making us think it is selfish to know what we want and to work for it."

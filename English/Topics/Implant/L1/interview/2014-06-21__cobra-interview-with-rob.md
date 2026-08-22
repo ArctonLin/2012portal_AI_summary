@@ -1,0 +1,4 @@
+<!-- topic: Implant | doc: interview/2014-06-21__cobra-interview-with-rob | 2014-06-21 | Cobra Interview with Rob | keywords: implant -->
+[Relevant content] [reported] Rob asks if the main implant pushed in at birth can be completely removed. [reported] Cobra explains that implants have etheric and plasma aspects. He states that laser technology is the best available on the surface to deal with them, but the implants are maintained by a rotating scalar field which re-creates the implant.
+[Key quotes] "You see there is an etheric aspect of this and plasma aspect of this. It’s quite complicated to explain. The Laser technology is the best we have at this moment on the surface of the planet to deal with those implants."
+"The other problem is those implants are the main thing and the scalar technology, which is part of the Archon network. It’s actually maintained by rotating scalar field. That field is actually re-creating that implant again."

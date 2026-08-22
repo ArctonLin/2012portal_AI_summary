@@ -1,0 +1,3 @@
+<!-- topic: Toplet Bomb | doc: posts/2020-10-14__final-battle-update | 2020-10-14 | Final Battle Update | keywords: toplet bomb, toplet -->
+[Relevant content] Chimera beings were once highly evolved angelic beings who subjected themselves to controlled toplet bombs explosion experiments in the galactic past, which mutated them into spider beings.
+[Key quotes] "Chimera beings were once highly evolved angelic beings who chose to subject themselves to controlled toplet bombs explosion experiments long time ago in the galactic past. This, and numerous genetic experiments has mutated them into spider beings of unimaginable darkness"

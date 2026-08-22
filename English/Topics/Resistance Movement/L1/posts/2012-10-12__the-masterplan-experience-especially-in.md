@@ -1,0 +1,5 @@
+<!-- topic: Resistance Movement | doc: posts/2012-10-12__the-masterplan-experience-especially-in | 2012-10-12 | the masterplan experience especially in | keywords: resistance movement, resistance -->
+[Relevant content] The Pleiadians and the Resistance Movement will implement the "Fluid Group Masterplan Management" for the physical part of the Event. The Pleiadians will determine who can be part of the initial fluid physical group and forward that intel to the Resistance Movement. Resistance's surface operatives will contact key people (including military personnel) to invite them to be part of the Event operations. Resistance operatives will not be directly involved in operations themselves but will assist with intel and instructions.
+[Key quotes] "The Pleiadians and the Resistance Movement as two main non-surface positive groups will implement what is called Fluid Group Masterplan Management."
+"Resistance's surface operatives will then contact key people of that fluid surface group."
+"Resistance operatives will not be directly involved in operations themselves but will only assist with intel and instructions."

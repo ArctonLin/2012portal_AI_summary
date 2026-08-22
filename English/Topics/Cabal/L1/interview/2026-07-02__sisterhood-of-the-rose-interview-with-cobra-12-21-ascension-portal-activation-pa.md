@@ -1,0 +1,4 @@
+<!-- topic: Cabal | doc: interview/2026-07-02__sisterhood-of-the-rose-interview-with-cobra-12-21-ascension-portal-activation-pa | 2026-07-02 | Sisterhood of the Rose Interview with Cobra "12:21 ASCENSION PORTAL ACTIVATION PART 2" | keywords: cabal -->
+[Relevant content] [reported] The Golden Age will start after the Event, which includes the arrest of the Cabal and the removal of darkness. Med beds cannot be introduced until it is safe, which requires the Cabal to no longer be in power so that people being healed are not killed.
+[Key quotes] "The Golden Age will really start coming after the Event - after the arrest of the Cabal, after the removal of darkness..."
+"It needs to be safe and it's not safe if the cabal is in power. So it needs to be safe enough for people who are being healed not to be killed after the healing process is completed."

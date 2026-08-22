@@ -1,0 +1,4 @@
+<!-- topic: Resistance Movement | doc: interview/2020-03-01__cobra-interview-with-hoshino-on-ascension-timeli | 2020-03-01 | Cobra Interview with Hoshino on Ascension Timeline | keywords: resistance movement, resistance -->
+[Relevant content] [reported] The Resistance Movement suggests that the surface population keep one month of food and daily necessities for a global medical quarantine. [reported] Members of the Resistance Movement are located in various places throughout the solar system and are part of the beings channeling energy from the galactic center toward Earth during the final liberation operation.
+[Key quotes] "Resistance Movement suggests the surface population keep one month of food and daily necessities for global medical quarantine."
+"There are members of the Resistance Movement in various places throughout the solar system."

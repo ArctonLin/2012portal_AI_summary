@@ -1,0 +1,4 @@
+<!-- topic: Toplet Bomb | doc: meeting/2022-12-16__ascension-conference-report-and-short | 2022-12-16 | ascension-conference-report-and-short | keywords: toplet bomb, toplet -->
+[Relevant content] [reported] Toplet bombs are based on "top" quarks, which are heavier and more dangerous than other quarks. The Light Forces use Mjolnir technology (a quantum cannon) to change the properties of the ambient quantum medium so that "top" quarks can no longer propagate, thereby destroying the destructive power of toplet bombs. The Light Forces will evaporate all black holes and toplet bombs, releasing the flash of the Event.
+[Key quotes] "These quarks are the basis of strangelet and toplet bombs which prevent or have prevented the forces of light from intervening."
+"The Light Forces will evaporate all black holes and toplet bombs, releasing the flash of the Event."

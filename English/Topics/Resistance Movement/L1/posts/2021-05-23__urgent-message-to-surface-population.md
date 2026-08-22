@@ -1,0 +1,4 @@
+<!-- topic: Resistance Movement | doc: posts/2021-05-23__urgent-message-to-surface-population | 2021-05-23 | Urgent Message to the Surface Population | keywords: resistance movement, resistance -->
+[Relevant content] Since 1996, the Chimera has captured many Pleiadians and Resistance members, taking them underground. The Chimera are using these hostages in dark sacrifice rituals as a last line of defense. The situation is described as very difficult for Resistance forces and the Pleiadian fleet.
+[Key quotes] "Since 1996, the Chimera has captured many Pleiadians and Resistance members, took them underground, and as their last line of defense, the Chimera are now using those hostages in dark sacrifice rituals..."
+"This is a very difficult time for the Resistance forces and for the Pleiadian fleet, and they need assistance from the surface population."

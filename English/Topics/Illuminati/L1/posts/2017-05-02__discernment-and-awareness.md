@@ -1,0 +1,3 @@
+<!-- topic: Illuminati | doc: posts/2017-05-02__discernment-and-awareness | 2017-05-02 | Discernment and Awareness | keywords: illuminati, brotherhood of death -->
+[Relevant content] The post mentions a worldwide campaign to expose the Cabal, citing a genuine testimony from a Dutch elite banker that blew the whistle on the "Illuminati banking system," which reached over 1 million people.
+[Key quotes] "There is now a strong worldwide campaign to expose the Cabal. The following genuine testimony has reached over 1 million people: https://sitsshow.blogspot.com/2017/04/dutch-elite-banker-blows-the-whistle-on-the-illuminati-banking-system-video-transcript.html#more"

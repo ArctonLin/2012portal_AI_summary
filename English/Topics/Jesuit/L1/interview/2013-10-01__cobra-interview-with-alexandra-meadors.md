@@ -1,0 +1,5 @@
+<!-- topic: Jesuit | doc: interview/2013-10-01__cobra-interview-with-alexandra-meadors | 2013-10-01 | Cobra Interview with Alexandra Meadors | keywords: jesuit -->
+[Relevant content] [reported] Cobra explains that there is a plan by the Jesuits to take over the financial system, suggesting the appointment of the new Pope as M1 (monetary controller). [reported] Cobra states that the Rothschilds and Jesuits are trying to trick and negotiate their way out of the Cabal's downfall. [reported] Cobra identifies the NSA as a "Jesuit creation." [reported] Cobra states that Pope Francis is working for the Jesuits, putting on a friendly face to convince influential world leaders for their own agenda. [reported] Cobra notes a connection between the Saudi government and the Jesuits.
+[Key quotes] "There is a certain plan of the Jesuits to take over the financial system. And they are suggesting this move to appoint the new pope as M1."
+"It’s actually a Jesuit creation to be true."
+"No I would say he is actually working for the Jesuits putting on a friendly face."

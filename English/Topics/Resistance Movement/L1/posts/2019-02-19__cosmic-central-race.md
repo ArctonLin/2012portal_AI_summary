@@ -1,0 +1,3 @@
+<!-- topic: Resistance Movement | doc: posts/2019-02-19__cosmic-central-race | 2019-02-19 | Cosmic Central Race | keywords: resistance movement, resistance -->
+[Relevant content] Beings from the Cosmic Central race are cooperating with the Light Forces, including the Resistance Movement, positive Agartha factions, and special forces called SURFACOM.
+[Key quotes] "Our Solar System is now full of beings from the Cosmic Central race and they are cooperating with the Light Forces from the Jupiter Command, Ashtar Command, Atlantis Command, Pleiadian, Sirian and Andromedan Fleet, Resistance Movement, positive Agartha factions and certain special forces called SURFACOM."

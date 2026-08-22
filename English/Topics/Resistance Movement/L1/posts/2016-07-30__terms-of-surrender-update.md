@@ -1,0 +1,3 @@
+<!-- topic: Resistance Movement | doc: posts/2016-07-30__terms-of-surrender-update | 2016-07-30 | Terms of Surrender Update | keywords: resistance movement, resistance -->
+[Relevant content] The document states that the Chimera group is not involved in surrender negotiations because no surface positive faction is strong enough to deal with them; instead, the Resistance is dealing with them directly.
+[Key quotes] "The Chimera group is not involved in the surrender negotiations because no surface positive faction is strong enough to be able to deal with them. The Resistance is dealing with them directly."

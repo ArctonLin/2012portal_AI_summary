@@ -1,0 +1,4 @@
+<!-- topic: Resistance Movement | doc: interview/2013-01-26__cobra-interview-on-the-moon | 2013-01-26 | Cobra Interview on the Moon | keywords: resistance movement, resistance -->
+[Relevant content] [reported] The resistance movement cleared bases on the Moon and Mars in the late 90s and the beginning of this century. [reported] The resistance movement inside the solar system was progressing towards the planet, engaging in physical battles in the asteroid belt, on Mars, and on the Moon about 10-15 years ago to clear reptilian warriors.
+[Key quotes] "Then the resistance movement has cleared those bases in the late 90’s and the beginning of this century."
+"The resistance movement inside the solar system was progressing towards the planet. There were many battles in the asteroid belt, on Mars and also the Moon and they just cleared completely all the reptilian warriors and all the other races."

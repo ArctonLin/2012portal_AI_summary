@@ -1,0 +1,4 @@
+<!-- topic: Cabal | doc: posts/2012-07-30__normal-0-microsoftinternetexplorer4_30 | 2012-07-30 | normal 0 microsoftinternetexplorer4 30 | keywords: cabal -->
+[Relevant content] The Event will encompass mass arrests of the Cabal. The main reason mass arrests did not happen in April-June was that the Positive Military was not aware of Archons and positive groups got heavily infiltrated by the Cabal. Funding is needed from wealthy persons outside the Cabal.
+[Key quotes] "It will encompass a breakthrough in removal of non-physical negative entities, mass arrests of the Cabal and drastic increase of sightings of positive UFOs."
+"The main reason why mass arrests of the Cabal did not happen within the April to June timeframe is that the Positive Military was not aware of Archons until recently... The other reason was that positive groups got heavily infiltrated by the Cabal."

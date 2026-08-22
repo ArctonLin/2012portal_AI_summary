@@ -1,0 +1,4 @@
+<!-- topic: Implant | doc: interview/2021-01-01__cobra-interview-with-katherine-on-sisterhood-of | 2021-01-01 | Cobra interview with Katherine on Sisterhood of the Rose | keywords: implant -->
+[Relevant content] [reported] Complete removal of implants before the Event is rare; it is expected to happen at the Event and later. Those who successfully remove implants 100% will know they succeeded because they will have no more negativity inside and will feel perfect, a state associated with immortality and Ascension.
+[Key quotes] "Removal of implants is not so easy. I mean, it’s possible, there might be some rare instances when somebody manages to completely remove the implants before the Event, but practically speaking, I would say the complete implant removal will happen, at the Event and later..."
+"those who will remove the implants 100%, they will know they succeeded because they will have no more negativity inside. They will feel perfect."

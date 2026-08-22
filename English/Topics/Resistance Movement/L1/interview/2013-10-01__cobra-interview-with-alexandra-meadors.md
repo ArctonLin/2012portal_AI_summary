@@ -1,0 +1,4 @@
+<!-- topic: Resistance Movement | doc: interview/2013-10-01__cobra-interview-with-alexandra-meadors | 2013-10-01 | Cobra Interview with Alexandra Meadors | keywords: resistance movement, resistance -->
+[Relevant content] [reported] Cobra states that the gold which formed the basis of collateral accounts was removed from the surface of the planet by the Resistance movement in the beginning of the previous year (2012) to prevent the Cabal from using it to underwrite their financial system. The Pentagon will move when it receives the green light from the Resistance.
+[Key quotes] "All the gold which actually formed the basis of the collateral accounts has been removed from the surface of the planet by the resistance movement in the beginning of the last year."
+"The Pentagon will move when it will receive the green light from the resistance."

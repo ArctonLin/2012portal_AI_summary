@@ -1,0 +1,3 @@
+<!-- topic: Toplet Bomb | doc: posts/2020-07-07__age-of-aquarius-activation-report | 2020-07-07 | Age of Aquarius Activation Report | keywords: toplet bomb, toplet -->
+[Relevant content] As a result of the Age of Aquarius activation, all significant plasma anomaly and all plasma toplet bombs have been removed. This is a great leap forward, and the remaining obstacles towards the Event are much smaller.
+[Key quotes] "As a result of our Age of Aquarius activation, all significant plasma anomaly and all plasma toplet bombs have been removed. Although this will not trigger the Event as I have expected, it is a great leap forward."

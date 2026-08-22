@@ -1,0 +1,3 @@
+<!-- topic: Ashtar Command | doc: posts/2015-01-29__taiwan-conference-report-solar-system | 2015-01-29 | Taiwan Conference Report / Solar System Situation Update | keywords: ashtar command -->
+[Relevant content] The Light forces of the Ashtar Command, along with the Pleiadian and Sirian Fleets and the Resistance Movement, began an operation to clear the entire solar system of Draco/Reptilian fleet fragments.
+[Key quotes] "This weekend, the Light forces of the Ashtar Command, the Pleiadian Fleet, the Sirian Fleet and the Resistance Movement have begun an operation to clear the entire solar system completely."

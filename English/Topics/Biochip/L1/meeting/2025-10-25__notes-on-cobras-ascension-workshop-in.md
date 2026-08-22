@@ -1,0 +1,4 @@
+<!-- topic: Biochip | doc: meeting/2025-10-25__notes-on-cobras-ascension-workshop-in | 2025-10-25 | Notes on Cobra's Ascension Workshop in Munich on October 25, 2025 - Time Until Liberation from the Cosmic Perspective, Hostage Rescue Operation, Pulling Out the Lurker from the Root, Overview of Physical Intervention, The Importance of Manifestation ... | keywords: biochip -->
+[Relevant content] [reported] The light forces are working to eliminate biochips, as detailed in the Tokyo workshop. When humans are within 60 meters, biochips within their bodies interfere, preventing them from experiencing nature in the same way.
+[Key quotes] "The light forces are also working to eliminate biochips. This was explained at the Tokyo workshop."
+"When humans are within 60 meters, the biochips within their bodies interfere, preventing them from experiencing nature in the same way."

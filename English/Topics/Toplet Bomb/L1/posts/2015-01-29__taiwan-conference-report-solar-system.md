@@ -1,0 +1,3 @@
+<!-- topic: Toplet Bomb | doc: posts/2015-01-29__taiwan-conference-report-solar-system | 2015-01-29 | Taiwan Conference Report / Solar System Situation Update | keywords: toplet bomb, toplet -->
+[Relevant content] During the weekend of the Taiwan conference, ALL physical strangelet and toplet bombs of the Chimera group were cleared. Only plasma strangelet and toplet bombs remain, with the plasma plane being the main strong area of the Chimera group.
+[Key quotes] "During the same weekend, ALL physical strangelet and toplet bombs of the Chimera group have been cleared. Only plasma strangelet and toplet bombs are now remaining."

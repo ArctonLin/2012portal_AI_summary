@@ -1,0 +1,4 @@
+<!-- topic: Implant | doc: interview/2017-01-01__pfcc-interview-with-cobra-on-plasma-toplet-bombs | 2017-01-01 | PFCC interview with COBRA on plasma toplet bombs | keywords: implant -->
+[Relevant content] [reported] PFCC notes that light forces recently found more implants in the human body. Cobra confirms that the light forces underestimated the power of the dark forces and are now preparing to prevent unexpected surprises during the Event.
+
+[Key quotes] "PFCC：According to your recent information, the light forces all of a sudden found more implants in the human body. So have the light forces underestimated the dark forces’ power of control over the planet? ... COBRA：Yes they have underestimated the power of the dark forces. Now they want to prevent any unexpected surprises during the Event and thus they want to prepare it as perfectly as possible."

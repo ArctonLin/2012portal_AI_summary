@@ -1,0 +1,4 @@
+<!-- topic: Implant | doc: interview/2014-01-01__cobra-interview-with-rob-on-market-manipulation | 2014-01-01 | Cobra Interview with Rob on Market Manipulation and Egypt | keywords: implant -->
+[Relevant content] [reported] Rob mentions a "mind controlled implanting program" controlled by hostile forces as a factor in political manipulation. [reported] Cobra explains that entities are maintained in place by the scalar plasma network; as this network is removed, entities become active. [reported] Rob asks about nano-technology ("smart dust"), and Cobra states most of it has been removed and is no longer a big threat.
+[Key quotes] "I would like to believe that American could lead the way in greatness and prosperity. But with the manipulation with the president, through what I believe is mind controlled implanting program controlled by hostile forces, I think that is impossible."
+"Most of this has been removed and it is not a big threat, a big issue any more."

@@ -1,0 +1,5 @@
+<!-- topic: Toplet Bomb | doc: interview/2017-04-01__cobra-march-2017-interview-with-prepare-for-chan | 2017-04-01 | Cobra March 2017 Interview with Prepare For Change | keywords: toplet bomb, toplet -->
+[Relevant content] [reported] Aaron asked if there are any bombs impeding progress towards The Event. Cobra confirmed that toplet bombs are still present and are the main reason The Event does not happen yet; when they are gone, The Event will be triggered. The plan is to remove the remaining plasma anomaly and toplet bombs associated with it.
+[Key quotes] "Aaron – Are there any bombs of any kind impeding our progress towards The Event currently?
+COBRA – Yes, of course there are still toplet bombs and they will be here until The Event. That is the main reason The Event does not happen. When the toplet bombs are gone The Event will be triggered."
+"COBRA – As I have said, the plan is to remove the remaining plasma anomaly and toplet bombs that are associated with this and then trigger The Event. So this is basically the plan and it is being carried out."

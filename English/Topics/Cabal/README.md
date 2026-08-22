@@ -1,0 +1,166 @@
+# Topic summary: Cabal
+
+[Overview]
+In the 2012portal corpus, the "Cabal" is defined as a global, multi-layered conspiracy of negative entities, including incarnated Archons, Draconians, Black Nobility families, and banking dynasties (Rothschilds, Rockefellers), who have enslaved humanity for thousands of years. It is portrayed as the primary antagonist to the "Light Forces" and the "Resistance Movement," controlling the financial system, mass media, and military to maintain a "Matrix" of fear and control. The narrative centers on the Cabal's impending defeat through the "Event," a global operation involving mass arrests, financial resets, and the removal of non-physical negative entities. The Cabal is depicted as a fragmented group of factions (Jesuit, Rothschild, Rockefeller) that is increasingly desperate, losing access to nuclear weapons and gold, and facing internal conflicts regarding surrender.
+
+[Key entities & relationships]
+- **The Cabal**: The overarching conspiracy; a non-homogenous group of negative souls, Archons, and humans who control global systems.
+- **Jesuit Faction**: Described as the core leadership/operational arm; a small faction containing incarnated Archons who control the Rothschilds and military/financial systems.
+- **Rothschild Faction**: Controls European high finance and the Federal Reserve; described as "nobility wannabes" obeying Jesuit Archon overlords; identified as Rigelian in origin.
+- **Rockefeller Faction**: Controls US oil, pharmaceuticals, and parts of the military; described as "plain commoners" and a Jesuit creation of the 20th century; identified as Draconian in origin.
+- **Black Nobility**: Italian/European families (e.g., Pallavicini, Orsini, Torlonia, Farnese) at the core of the conspiracy, receiving orders directly from Archons.
+- **Archons**: Non-physical negative entities (mostly Andromedans) incarnated in human bodies (especially Jesuits) and operating on etheric/astral planes; they guide the Cabal's financial slavery.
+- **Chimera Group**: A breakaway civilization/AI/plasma entity network linked to the Jesuits and NSA; enforces soul agreements, produces clones, and operates underground bases ("Pits").
+- **Resistance Movement**: A group of Light forces and infiltrated operatives working to dismantle the Cabal, seize gold, and clear underground bases.
+- **Positive Military**: Civilian and military authorities aligned with Light forces, tasked with executing mass arrests and backing up the Event.
+- **Galactic Confederation**: Positive ET races (Pleiadians, Aldebarans) who provide intel, remove nuclear access, and support the liberation of Earth.
+- **Eastern Alliance/BRICS**: The geopolitical counter-force to the Cabal, led by Russia and China, which is removing Cabal minions and preparing for the Event.
+- **Neil Keenan & Drake**: Individuals mentioned as conducting negotiations for the surrender of specific Cabal factions.
+
+[Timeline of developments]
+- **9564 BC**: The Cabal destroyed the civilization of Atlantis by destroying the temples of the Goddess. (source 2013)
+- **26,000 years ago**: The Chimera group mandated the Black Nobility to manage and control the surface population; Draconians took human incarnations. (source 2015/2023)
+- **13th Century**: Cooperation between Eastern and Western Cabal factions begins with Marco Polo. (source 2021)
+- **1540s**: The Farnese family created the Jesuit order, establishing the main architectural foundation of the modern Cabal. (source 2014)
+- **1775**: St. Germain created a collateral account with trillions of dollars in interest, which was subsequently blocked by the Cabal. (source 2023)
+- **1912**: The Rothschilds overthrew the Qing dynasty, prompting the Dragon Gate and White Dragon Society to go underground. (source 2013)
+- **1940s**: The Jesuits orchestrated World War II to execute a worldwide gold grab (Operation Golden Lily); the "Jade Helm" computerized program was activated. (source 2013/2015)
+- **1945–1949**: Chinese Civil War described as a proxy war between Light forces and the Cabal. (source 2017)
+- **1953–2004**: The Cabal used stolen gold to finance underground military bases and a secret space program. (source 2013)
+- **1996**: The Archon invasion occurred; all Cabal factions in the Solar System were implanted with plasma implants tied to the Chimera AI network (the Veil). (source 2015/2016)
+- **1996–1999**: The Cabal was at its strongest, with 10–20 million representatives in underground bases; naturalized Dracos entered humanoid clone bodies to infiltrate the surface. (source 2012/2020)
+- **1998**: The Resistance retrieved crystals from tunnels under the Sphinx, leading the Cabal to block access. (source 2013)
+- **Late 1990s**: The Cabal was driven out of strategic points on the Moon and Mars. (source 2013)
+- **2000**: The Cabal's goal to complete the New World Order (NWO) process failed due to Light Forces intervention. (source 2015)
+- **2001**: The Chimera group began using old Nazi connections in Germany to construct underground bases for Cabal evacuation. (source 2016)
+- **2011**: The Cabal suppressed 6,000 inventions. (source 2012)
+- **Late November/Early January 2012**: The Pleiadians and Resistance removed the Cabal's access to nuclear weapons. (source 2012)
+- **Jan/Feb 2012**: The Resistance seized gold from Illuminati hands; the Resistance Movement removed all physical gold from the hands of the Cabal. (source 2012/2013)
+- **May 5, 2012**: The leader of the 13 Archons was arrested in Rome and taken to the Galactic Central Sun. (source 2012)
+- **June 9, 2012**: The Jesuit faction lost access to nuclear weapons, triggering panic mode in the Cabal. (source 2012)
+- **June 21, 2012**: Deadline for the Cabal to publicly announce surrender; missed, leading to the continuation of mass arrest plans. (source 2012)
+- **2012**: The Resistance removed the vast majority of physical gold from the Cabal's hands; the Cabal begins experiencing problems using AI to calculate probable timelines. (source 2013/2017)
+- **Early 2013**: Operation Underlord cleared all underground facilities of the Cabal. (source 2013)
+- **2013**: The Cabal escalated plans to trigger a global war through Syria; deployed 4 small tactical nuclear weapons to Syria. (source 2013)
+- **2014**: The Cabal lost more than 50% of their power; mid-level management in China was purged; the Cabal began "suiciding" bankers to silence whistleblowers. (source 2014)
+- **2014–2015**: Following the formation of BRICS, Jesuits shift their main base to China and move Cabal agents there. (source 2021)
+- **2015**: The Cabal became "grounded" on the surface, losing access to secret space program locations; the "Unholy Four" attempted to secure escape routes to Barnard's Star via the Chimera but failed. (source 2015)
+- **August 2015**: The Tianjin explosion in China was ordered by the Jesuits and carried out by the Bush faction to weaken the Eastern Alliance. (source 2015)
+- **November 2015**: The Paris attacks were orchestrated as part of an "ancient plan of the Cabal" to trigger WW3. (source 2015)
+- **January 2016**: Some average members of the Cabal were arrested, significantly disrupting their network power. (source 2016)
+- **May 2016**: Cabal groups began moving assets and personnel to underground bunkers in Brazil, Argentina, and Antarctica. (source 2016)
+- **March 2017**: Many Cabal members are taken underground for questioning; David Rockefeller dies of a heart attack shortly after. (source 2017)
+- **April 2017**: George Bush Sr., Henry Kissinger, and Dick Cheney were expected to follow Rockefeller to the Galactic Central Sun. (source 2017)
+- **August 10–11, 2019**: Jeffrey Epstein is allegedly removed from his cell by Cabal agents, interrogated, and ritually sacrificed to Moloch. (source 2019)
+- **February 25, 2020**: Black Nobility orders European ministers to keep borders with Italy open to facilitate the spread of the coronavirus. (source 2020)
+- **2020–2021**: The Cabal attempts to engineer a "Great Reset" via pandemic lockdowns, vaccine passports, and digital currency; this plan is described as disintegrating. (source 2021)
+- **July 2022**: The Cabal violates a non-interference treaty with Light Forces, leading to the closure of deconfliction lines and security breaches. (source 2022)
+- **August 2022**: The Cabal attempts to engineer a war between Russia and NATO using planetary alignment energies. (source 2022)
+- **May 13, 2023**: The Cabal is noted to be pushing hard for Central Bank Digital Currencies (CBDCs) as a control mechanism. (source 2023)
+- **June 1, 2023**: The Cabal’s plan for a new biochip technology tied to a global digital currency ("Mark of the Beast") is declared completely stopped and destroyed by the Light Forces. (source 2023)
+- **October 23, 2023**: The Cabal, under Orsini command, is identified as controlling secret biolabs capable of releasing dangerous viruses. (source 2023)
+- **January 13, 2024**: As Pluto enters Aquarius, the Cabal is in "deep fear" and plans a global cyberattack to reset the system. (source 2024)
+- **January 1, 2025**: The Cabal triggers "2025 Omega programming" among trauma-mind-controlled individuals, leading to violent incidents. (source 2025)
+- **July 14, 2025**: After the Ascension Portal opens, the surface Cabal is identified as the only remaining obstacle to the Event. (source 2025)
+- **September 4, 2025**: Infiltrated Jesuit agents are revealed to have planted false intelligence about surface Cabal groups into Resistance computers. (source 2025)
+- **October 1, 2025**: Light Forces begin extracting low-level Cabal members and replacing them with soulless clones to further liberation from within. (source 2025)
+- **February 22, 2026**: The arrest of Andrew Mountbatten-Windsor marks the start of the Cabal mass arrests timeline. (source 2026)
+- **July 25, 2026**: The Cabal is noted to be attempting to ignite World War III and perform human sacrifice rituals, but these efforts are powerless due to the loss of non-physical dark support. (source 2026)
+
+[Key claims & declarations]
+- The Cabal is composed of souls that invaded Earth long ago and kept reincarnating; most members are sociopaths incapable of positive emotions.
+- The Cabal spends approximately $1–3 billion daily to maintain control over media, military, and the illusion of ordinary reality.
+- Mass arrests of key Cabal members are imminent, involving a 134-nation alliance and a 72-hour operation window; estimates range from 400,000 to 500,000 middlemen to be arrested.
+- The Cabal has no access to nuclear weapons, cloning technology, or underground bases, which have been seized or cleared by the Resistance.
+- "Stardust 2" is a nanotechnology defense weapon sprayed into the bodies of Cabal members to block their central nervous systems during the Event.
+- The Cabal is attempting to trigger World War III, specifically through Syria, to maintain fear and control, but this will fail due to Light Force intervention.
+- The Cabal mind-programmed over 2 million people via MK-Ultra and Monarch projects, creating a potential endgame threat of triggered violence.
+- The Cabal's surrender is unlikely; some factions considered it, but the "other option" (resistance/arrest) prevails.
+- The Cabal is responsible for false flag events (e.g., Fukushima, Boston bombing, Paris attacks, Tianjin explosion) to instill fear and exert pressure for funds.
+- The Cabal controls the Syria vortex for 5,500 years; losing this vortex means "game over" for their power.
+- The Cabal is not a monolithic entity; members will receive fair trials, with those who refuse to correct their actions taken to the Galactic Central Sun for destruction or healing.
+- The Cabal controls the global financial system through a closed network of supercomputers, with JP Morgan identified as the location of the central server where the Reset will be triggered.
+- The Cabal is responsible for the denial of MK Ultra, the suppression of healing technologies, and the poisoning of air, water, and food to suppress population awakening.
+- Most politicians in most countries are bribed by the Cabal, the Federal Reserve, and the IMF to comply with their agenda.
+- The Cabal uses mass media, the music industry, and specific frequencies to block human creativity and shape consciousness.
+- The Cabal is "soulless" because they have lost their connection to their Soul and Source; they are described as acting out of trauma and inferiority complexes linked to Neanderthal bloodlines.
+- The Cabal placed explosives in key infrastructure points 100 years ago to prevent the Event, though most have been removed.
+- The Cabal is responsible for the destruction of the Goddess spiral and the artificial suppression of the feminine principle to make humanity easier to control.
+- The Cabal's power is being decreased daily by the actions of the Light Forces and surface awareness; they are no longer an obstacle to the Event regarding most actions.
+- The Cabal will be removed at the Event; top members will face global televised trials, while others may be stardusted, arrested, or taken to the Galactic Central Sun for restructuring.
+- The Cabal is attempting to engineer a global war or pandemic (e.g., Ebola, Ukraine conflict, coronavirus) to justify martial law, but these plans are being thwarted by the Eastern Alliance and Light Forces.
+- The Cabal has stolen the majority of gold from global collateral accounts and isolated key keepers of these accounts physically and psychologically.
+- The Cabal is behind the vast majority of so-called terrorist attacks, using specific days for occult reasons to instill fear.
+- The Cabal engineered the "Zeeka" disease in Brazil and the refugee crisis in Europe to destabilize governments and promote control.
+- The Cabal uses scalar devices to transmit infrasound (approx. 16 Hz) to keep human consciousness locked into a low vibrational state.
+- The Cabal controls the mass media and will continue to do so until the very moment of the Event to maintain the illusion of normalcy.
+- The Cabal is attempting to escape to Antarctica via routes through Texas/Mexico/South America and New Zealand/Tasmania, but this is described as a trap.
+- The Cabal's biggest fear is the exposure of their crimes, particularly child abuse and experiments, which would cause extreme public anger.
+- The Cabal is responsible for the misuse of spiritual gifts of "paperclipped Vril girls" after WWII and the destruction of energy vortexes in Macedonia.
+- The Cabal is manipulating the US stock markets and financial systems to keep them thriving despite bad economic indicators, a control that will end at the Event.
+- The Cabal has infiltrated all governments on the planet, with the US President described as a puppet of the Cabal.
+- The Cabal is using AI probable future technology to stay one step ahead of Alliance moves, but this technology has recently stopped working, throwing them into disarray.
+- The Cabal is responsible for the suppression of knowledge about Planet X and the "Wow signal," which was actually Cabal activity.
+- The Cabal is planning to reduce the Earth’s population by 90%, but these plans will not be successful.
+- The Cabal is using the "fake news" label to suppress alternative media and censor information that exposes their structure.
+- The Cabal is involved in human trafficking and organ harvesting, with many members of the Illuminati network implicated.
+- The Cabal is using the United Nations to create rules and regulations to control space tourism attempts.
+- The Cabal is manipulating the SSP Disclosure petition, violating protocols that will serve as evidence against them in surrender negotiations.
+- The Cabal is responsible for the "Jade Helm" computerized program, which was activated in the 1940s and developed further in 1996.
+- The Cabal is experimenting with nanites, though the Resistance has cleared them from the planet.
+- The Cabal controls the global financial system, including the SWIFT system and central banks, to enforce debt slavery.
+- The Cabal uses directed energy weapons and electromagnetic fields to target and suppress the most awakened civilians.
+- The Cabal is responsible for engineering extreme weather events (e.g., Hurricanes Harvey and Irma) and pandemics (coronavirus) to create fear and control.
+- The Cabal has infiltrated both major US political parties, with top members manipulating politicians to create division.
+- The Cabal is promoting same-sex marriage and gender confusion to disrupt natural polarity and suppress feminine power.
+- The Cabal is hiding remnants of past civilizations and intelligence in Antarctica.
+- The Cabal is most afraid of the "Mother Ships" (Galactic Central Race).
+- The Cabal is planning to flee to China or hide in underground "Pits" to survive the coming polar shift and Solar Flash.
+- The Cabal is attempting to stage a fake alien invasion using TR-3B craft to justify a military crackdown.
+- The Cabal is using the "Mark of the Beast" (biochips/digital currency) as the final tool for total population control.
+- The Cabal is currently in a state of panic, with their AI models predicting their defeat with 100% certainty.
+- Mass arrests of the Cabal are planned, with an estimated 500,000 middlemen to be arrested and 500–5,000 death sentences issued at Nuremberg-style trials.
+- The Cabal repackaged catastrophic end-times information into the narrative of global warming to maintain control.
+- The Cabal is not rational and acts according to its traumas, despite being aware of the polar shift.
+- Clearing the DARPA pit (Chimera stronghold) will collapse the rule of the Cabal on the surface.
+- AI-powered chatbots are part of the Cabal’s plan for the Great Reset, harvesting user data.
+- The Event includes the mass arrest of more than 400,000 Cabal members and a positive financial reset.
+- All money stolen by the Cabal will be confiscated by the Resistance and used for the Event.
+- The Cabal’s banking system is theoretically perfect but leads to devaluation and inflation.
+- The Cabal has replaced spirituality with technology in the youth.
+- The Cabal is pushing for CBDCs to create a "digital prison" for full surveillance.
+- The Cabal controls secret biolabs and could release viruses if the Light Forces take too much action.
+- The Cabal is hiding in underground bunkers (e.g., in Hawaii) which are no longer safe due to the Resistance.
+- The Cabal is trying to assassinate Trump to trigger a war in the country.
+- The Cabal uses old Goddess teachings to mind-program people and develop black technologies.
+- The Rothschild faction is being "thrown under the bus" by other Cabal elements.
+- The Cabal attempted to cool down the skyrocketing silver price.
+- The release of Epstein files marks the moment when critical mass of the population became aware of the Cabal, making Exposure inevitable.
+- The Key of New Earth will erase the power structure of the surface Cabal.
+- The Cabal is a product of light knowledge that has been misused.
+- With non-physical reptilian networks gone, the Cabal’s rituals and dark magic will visibly stop working.
+
+[Conflicts & ambiguities]
+- **Surrender Status**: Early 2012 posts suggest the Cabal is actively negotiating surrender (Jan 2012), while later posts (June 2012) state it is "very unlikely" they will surrender and that they refused the chance.
+- **Power Level**: Some posts describe the Cabal as "not that powerful anymore" and "weakened," while others emphasize they still control the surface, media, and significant financial resources, requiring constant vigilance.
+- **Archon Incarnation**: There is slight variation in how Archons are described—sometimes as the core of the Cabal (13 Archons), sometimes as a broader influence through the Jesuit faction, and sometimes as separate etheric entities controlling the physical Cabal.
+- **Cabal Composition**: The relationship between the Rothschilds and Jesuits is described as hierarchical (Rothschilds obey Jesuits), but other posts list them as distinct factions (Rothschild, Rockefeller, Jesuit) with separate control areas.
+- **Timing of Event**: Specific dates for mass arrests are predicted (e.g., July 4, 2012, June 21, 2012) but did not occur as described, leading to explanations that the Positive Military was unaware of Archons or that positive groups were infiltrated.
+- **Nature of the Cabal**: Some documents describe the Cabal as a purely human criminal syndicate, while others attribute their power to etheric Archons, Draconian incarnations, or the Chimera group, creating ambiguity about whether they are independent actors or puppets.
+- **Faction Dynamics**: There is conflicting information on whether the Jesuits and Rothschilds are currently cooperating with the Illuminazi or if the Jesuits/Rothschilds are sacrificing the Illuminazi to save themselves; some sources say the Jesuits are infiltrating the Eastern Alliance, while others say the Eastern Alliance is purging them.
+- **Scope of Responsibility**: While the Cabal is blamed for most negative events (plane crashes, earthquakes, diseases), Cobra explicitly denies Cabal responsibility for the Nepal earthquake and some natural disasters, stating they do not control all planetary events.
+- **Definition of "Cabal"**: Cobra defines "cabal" broadly as any secret association with a common goal, but the corpus often uses it specifically to refer to the financial/military elite, leading to occasional confusion between the general concept and the specific entity.
+- **Trump's Role**: Early 2015 sources state Donald Trump is "not part of the Cabal" but has aligned ideas, while later 2016 sources explicitly identify him as a "Jesuit agent" and a "puppet of the Cabal."
+- **Surrender vs. Removal**: Some sources suggest the Rothschild faction may surrender as a whole, while others state the Rockefeller faction will never surrender and must be removed; the exact timing and success of these surrenders are described as uncertain or "skeptical" by the Resistance.
+- **Antarctica Escape**: While Cabal movement to Antarctica is confirmed, sources conflict on whether this is a successful escape route or a "trap" set by Light forces; Corey Goode reports observing the movement, while Cobra describes it as flying into a trap.
+- **Cabal Control of Switzerland**: One source states the Cabal does not have total control of Switzerland, while another notes a strong positive Templar presence but confirms the Cabal will be removed, implying current significant influence.
+- **Nature of the "Cabal"**: The term is used interchangeably for a human political/financial elite, a group of incarnated Dracos/Archons, and a broader network including the Chimera AI, leading to ambiguity about which specific entity is responsible for certain actions.
+- **Size of the Cabal**: One source states the leaders are "just 200 people," while another mentions mass arrests of "more than 400,000 Cabal members," and a third estimates the whole Illuminati group at "2 million people." The distinction between core leadership, active operatives, and the broader network is not always clearly defined.
+- **Status of Biochips**: In 2023, it is stated that the biochip technology was "completely stopped" and "destroyed," but in 2025, it is claimed the Cabal has reached a level of nanotechnology development almost equal to the Light Forces and is infesting the population with graphene nanochips.
+- **Control over Resistance**: In 2025, it is claimed that Jesuit agents have "hijacked" the X Resistance faction and planted false intel, suggesting a significant internal compromise, whereas earlier sources describe the Resistance as a unified force accelerating the Cabal's removal.
+- **Causal Agency**: Some sources attribute the Cabal's actions to "traumas" and irrationality, while others describe them as highly strategic (e.g., engineering karma for 26,000 years, sophisticated cyberattack plans), creating a tension between their portrayed incompetence and their long-term strategic depth.
+- **Factional Goals**: There is disagreement within the Cabal regarding the endgame: the Jesuit faction wants depopulation, while the Rothschild faction prefers a "Great Reset" with techno-feudalism without mass extermination.
+- **Elon Musk**: One interview states he is not part of the dark cabal but is being manipulated, while the general narrative of Cabal control over tech/media might imply broader influence.
+
+[Source coverage]
+357 documents mention the topic "Cabal," spanning from 2011 to 2026.

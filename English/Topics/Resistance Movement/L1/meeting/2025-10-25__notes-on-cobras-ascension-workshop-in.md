@@ -1,0 +1,5 @@
+<!-- topic: Resistance Movement | doc: meeting/2025-10-25__notes-on-cobras-ascension-workshop-in | 2025-10-25 | Notes on Cobra's Ascension Workshop in Munich on October 25, 2025 - Time Until Liberation from the Cosmic Perspective, Hostage Rescue Operation, Pulling Out the Lurker from the Root, Overview of Physical Intervention, The Importance of Manifestation ... | keywords: resistance movement, resistance -->
+[Relevant content] [reported] The Resistance Movement has already planted viruses within the dark forces' digital financial system; if the dark forces attempt to activate it, the viruses will activate.
+[reported] "DREAMLAND v2.4 operational" is a code intended for the Resistance Movement, not a message for the general public.
+[Key quotes] "Furthermore, the Resistance Movement has already planted viruses within their system, and if the dark forces attempt to activate the digital financial system, the viruses will activate."
+"This is a code intended for the Resistance Movement, not a message for the general public."

@@ -1,0 +1,3 @@
+<!-- topic: Black Nobility | doc: posts/2014-05-08__planetary-situation-update | 2014-05-08 | Planetary Situation Update | keywords: black nobility -->
+[Relevant content] The document lists "Italian black nobility with the few remaining physical Archons" as one of the factions of the Cabal that is losing power fast and can no longer influence the Event timetable.
+[Key quotes] "Many factions of the Cabal (Illuminazi Texas boys, Zionist Rothschilds, Jesuits, Italian black nobility with the few remaining physical Archons) are losing their power fast and can not influence the Event timetable anymore."

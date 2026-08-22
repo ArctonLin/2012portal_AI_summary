@@ -1,0 +1,3 @@
+<!-- topic: Jesuit | doc: posts/2013-03-21__short-update-about-rome-conference-this | 2013-03-21 | short update about rome conference this | keywords: jesuit -->
+[Relevant content] The Rome Conference involved working with St. Germain to put an etheric virus in the matrix structure of the main planetary Jesuit/Archon energy vortex, located at Chiesa del Gesu, Palazzo Colonna, and Palazzo Doria-Pamphilj in the center of Rome.
+[Key quotes] "We were working again with St. Germain, putting an etheric virus in the matrix structure of the main planetary Jesuit/Archon energy vortex of Chiesa del Gesu, Palazzo Colonna and Palazzo Doria-Pamphilj in the center of Rome."

@@ -1,0 +1,3 @@
+<!-- topic: Cabal | doc: posts/2022-04-16__apokatastasis | 2022-04-16 | Apocatastasis | keywords: cabal -->
+[Relevant content] The "pits" (secret military bases up to 30 meters underground), previously owned by the Illuminati Breakaway Complex, are now operated by the surface Cabal. Some of these pits hide members of the Chimera.
+[Key quotes] "The last line of defense before the Light forces can physically intervene on the surface, are the so-called pits. Pits are secret military bases up to 30 meters underground, which were before owned by the Illuminati Breakaway Complex and are now operated by the surface Cabal."

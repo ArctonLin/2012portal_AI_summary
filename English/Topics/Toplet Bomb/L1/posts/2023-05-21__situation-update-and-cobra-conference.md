@@ -1,0 +1,3 @@
+<!-- topic: Toplet Bomb | doc: posts/2023-05-21__situation-update-and-cobra-conference | 2023-05-21 | Situation Update and Cobra Conference in Japan | keywords: toplet bomb, toplet -->
+[Relevant content] The entropy of the Event decreases with time as more retaliation mechanisms of the dark forces, such as toplet bombs, are being removed.
+[Key quotes] "The second curve (marked 2 on the graph) represents the entropy of the Event. This entropy decreases with time, as more and more retaliation mechanisms of the dark forces that would be triggered at the time of the Event (such as toplet bombs) are being removed."

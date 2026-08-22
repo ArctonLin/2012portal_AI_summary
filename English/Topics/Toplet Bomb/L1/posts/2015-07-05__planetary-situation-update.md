@@ -1,0 +1,3 @@
+<!-- topic: Toplet Bomb | doc: posts/2015-07-05__planetary-situation-update | 2015-07-05 | Planetary Situation Update | keywords: toplet bomb, toplet -->
+[Relevant content] The main problem remains the plasma accretion vortex around planet Earth, which is full of strangelet and toplet bombs. This vortex is described as a living entity of a negative nature, with strangelet bombs acting as cancer cells in its body.
+[Key quotes] "The main problem remains the plasma accretion vortex around planet Earth, full of strangelet and toplet bombs. This vortex looks like an octopus with its plasma tentacles extending into the interplanetary space, strangelet bombs being cancer cells in its body."

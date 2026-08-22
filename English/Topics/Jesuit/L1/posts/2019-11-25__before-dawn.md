@@ -1,0 +1,4 @@
+<!-- topic: Jesuit | doc: posts/2019-11-25__before-dawn | 2019-11-25 | Before the Dawn | keywords: jesuit -->
+[Relevant content] The Jesuits want civil war in the USA to consolidate their power and wish to polarize the population, which is why they allowed the election of Donald Trump. They are promoting the extreme left and Trump as a savior to the right wing. Jesuits are massively infiltrating Brazil, Argentina, and especially China, planning to control the world through future global Chinese domination.
+[Key quotes] "The Jesuits want civil war in USA to consolidate their power, and wish to polarize the population as much as possible, that is why they have allowed the election of Donald Trump."
+"At the same time, Jesuits are massively infiltrating Brazil, Argentina and especially China. They plan to control the world through future global Chinese domination"

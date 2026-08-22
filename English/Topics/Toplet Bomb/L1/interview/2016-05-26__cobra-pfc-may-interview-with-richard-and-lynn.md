@@ -1,0 +1,3 @@
+<!-- topic: Toplet Bomb | doc: interview/2016-05-26__cobra-pfc-may-interview-with-richard-and-lynn | 2016-05-26 | Cobra PFC May Interview with Richard and Lynn | keywords: toplet bomb, toplet -->
+[Relevant content] [reported] In response to a question about why the IGC enforcement doesn't stop interference, Cobra states that the Chimera group is taking humanity hostage with their toplet bombs at the moment, and they need to be removed for contact to happen.
+[Key quotes] "The Chimera group is taking humanity hostage with their toplet bombs at the moment. They need to be removed and then the contact will happen."

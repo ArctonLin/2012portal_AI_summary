@@ -1,0 +1,3 @@
+<!-- topic: Jesuit | doc: meeting/2025-10-28__notes-on-cobras-templar-workshop-in | 2025-10-28 | Notes on Cobra's Templar Workshop in Berchtesgaden on October 28, 2025 - Healing of Lightworkers, Clearing the Akashic Records, Berchtesgaden and Time Portal, Goddess Isais, Templar Residency, Assisting the Templars ... | keywords: jesuit -->
+[Relevant content] [reported] In response to a question about Lazarus Glitschner receiving information about the Agartha network beneath Mount Untersberg in the 16th century, Cobra stated that Glitschner was a Jesuit and received the information from his Jesuit sources.
+[Key quotes] "No, he was a Jesuit, so he received the information from his Jesuit sources."

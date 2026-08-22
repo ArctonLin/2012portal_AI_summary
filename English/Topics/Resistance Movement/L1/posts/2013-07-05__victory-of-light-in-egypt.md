@@ -1,0 +1,4 @@
+<!-- topic: Resistance Movement | doc: posts/2013-07-05__victory-of-light-in-egypt | 2013-07-05 | Victory of the Light in Egypt | keywords: resistance movement, resistance -->
+[Relevant content] The removal of the Archon-infested Muslim Brotherhood from power in Egypt on July 3rd was a result of joint cooperation between the Positive Military, Templars, Resistance Movement, and White Dragons. The Resistance gathered precious intel about the behavior of the human population during this event, which will be useful in fine-tuning the masterplan for the Event.
+[Key quotes] "This action is a result of many months of careful preparation and joint cooperation between the Positive Military, Templars, Resistance Movement and even White Dragons, supported by the human masses."
+"The Resistance has gathered a lot of precious intel about the behavior of human population in situations like this, which will be very useful in fine-tuning the masterplan for the Event."

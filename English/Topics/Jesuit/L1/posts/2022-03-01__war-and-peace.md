@@ -1,0 +1,5 @@
+<!-- topic: Jesuit | doc: posts/2022-03-01__war-and-peace | 2022-03-01 | War and Peace | keywords: jesuit -->
+[Relevant content] The Pleiadians advised against a full-scale Russian military operation in Ukraine to avoid reacting to Jesuit-backed provocations from the West, who want to create World War III to fulfill their end-time prophecies. Putin succumbed to pressure from Jesuit-controlled advisers in the Russian military and the Russian Orthodox Church, allowing the Jesuits to get the war they wanted. The Jesuits are influencing Ukraine with their Zionist proxies. It is unlikely reason will win because the Jesuits will do whatever possible to undermine any peace proposal.
+[Key quotes] "refusing to react to Jesuit-backed provocations from the West, who want to create World war III to fulfill their end time prophecies"
+"Putin has succumbed to pressure from some of his Jesuit-controlled advisers in the Russian military and the Russian Orthodox Church, and the Jesuits got the war they wanted"
+"It is very unlikely that reason will win because the Jesuits will do whatever possible to undermine any peace proposal"

@@ -1,0 +1,7 @@
+<!-- topic: Toplet Bomb | doc: interview/2017-05-03__cobra-interview-by-rob-potter | 2017-05-03 | Cobra Interview by Rob Potter | keywords: toplet bomb, toplet -->
+[Relevant content] [reported] Rob asked if strangelet and toplet bombs are still tied to the Unholy Four and major Cabal members, and if arrests could trigger them. Cobra stated there is still a problem but Light forces have plans to circumvent it. Strangelet bombs have been removed completely; only toplet bombs remain. The reaction to toplet bombs has not been completely mastered yet, but when it is, the Event is expected to happen. The death of a Cabal member does not trigger the toplet bomb; it is determined by a complex fuzzy logic algorithm (AI) that decides when and where it triggers.
+[Key quotes] "Cobra: There is still a problem with it, but there are, I would say, certain plans and certain approaches of the light forces that can circumvent this."
+"Cobra: Actually strangelet bombs have been removed completely. What we have now is the toplet bombs."
+"Cobra: I would say, again, in a few cases yes. This reaction has not completely mastered yet, but they are getting closer and closer. And when they will be able to completely master this, I would expect the Event to happen."
+"Cobra: The death itself does not trigger the toplet bomb."
+"Cobra: I would say they have a very complex fuzzy logic algorithm which determines when this is triggered and when this is not triggered. It’s an artificial intelligence thing that determines where and when and under which circumstances it triggers this."

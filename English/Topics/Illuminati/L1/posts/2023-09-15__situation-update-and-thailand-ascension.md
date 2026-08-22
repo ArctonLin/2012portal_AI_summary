@@ -1,0 +1,3 @@
+<!-- topic: Illuminati | doc: posts/2023-09-15__situation-update-and-thailand-ascension | 2023-09-15 | Situation Update and Thailand Ascension Conference | keywords: illuminati, brotherhood of death -->
+[Relevant content] There are approximately 400,000 members of the Illuminati network who joined willingly, and about 2 million members who were forced into it. This network is also called the "brotherhood of death" because initiation requires killing a human being.
+[Key quotes] "Then there are about 400,000 members of the Illuminati network who are there willingly, and about 2 million members who were forced into it. This network is also called the brotherhood of death because someone needs to kill a human being to be initiated into it."

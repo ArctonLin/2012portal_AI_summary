@@ -1,0 +1,4 @@
+<!-- topic: Resistance Movement | doc: posts/2022-04-16__apokatastasis | 2022-04-16 | Apocatastasis | keywords: resistance movement, resistance -->
+[Relevant content] The Resistance can clear most underground locations deeper than 30 meters but cannot yet intervene closer to the surface due to toplet bomb deterrence mechanisms. The Resistance would spring into premature action if too much intel were released too early, endangering the liberation operation.
+[Key quotes] "They can not extend more than 30 meters underground, because the Resistance can now clear most of the locations that are deeper, but can not yet intervene closer to the surface because of toplet bomb deterrence mechanisms."
+"...whereas the Resistance would spring in premature action, putting the whole liberation operation in danger."

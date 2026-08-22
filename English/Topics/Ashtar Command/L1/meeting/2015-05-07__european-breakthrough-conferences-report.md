@@ -1,0 +1,5 @@
+<!-- topic: Ashtar Command | doc: meeting/2015-05-07__european-breakthrough-conferences-report | 2015-05-07 | european-breakthrough-conferences-report | keywords: ashtar command -->
+[Relevant content] The Ashtar Command is described as a fleet assigned to the Jupiter Command, with the purpose of awakening star seeds to their mission. They work through the moon Ganymede and entered the solar system through the Venus portal. People have been programmed against the word "Ashtar," leading to an ab-reaction. Eisenhower met with the Ashtar Command and the Pleiadians but was blocked by the military from working closely with them.
+[Key quotes] "The Ashtar Command is a fleet assigned to the Jupiter Command. Its purpose is to awaken star seeds to their mission. They work through the moon Ganymede. The Ashtar Command entered our solar system through the Venus portal."
+"In addition to this, people have been programmed against the word Ashtar. Use of this name, has led to an ab-reaction."
+"Eisenhower met with the Ashtar Command as well as the Pleiadians. He wished to work more closely with them but this was blocked by the military."

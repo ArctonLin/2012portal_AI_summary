@@ -1,0 +1,6 @@
+<!-- topic: Resistance Movement | doc: interview/2016-09-01__cobra-interview-with-patrick-from-pfc | 2016-09-01 | Cobra Interview with Patrick from PFC | keywords: resistance movement, resistance -->
+[Relevant content] [reported] Cobra states that many sinkholes in Siberia are the activity of the Resistance Movement, describing it as one way to awaken the surface population. He also states that the planet Eris is anchoring the energy of the Resistance Movement. Regarding Tim Berners-Lee, Cobra says he was assisted by the Resistance in a certain way. Cobra notes that Resistance Movement agents infiltrated on the surface do not get implants to the same degree as surface humans because they have more support and rarely stay long on the surface.
+[Key quotes] "C : Many of the sinkholes are the activity of the Resistance Movement, this is one way to awaken the surface population."
+"C : Ok Eris is, yes I can answer this question, Eris is anchoring the energy of the Resistance Movement."
+"C : I would not go in much details here, but I would say he was assisted by the Resistance in a certain way."
+"C : Not to the same degree because they have much more support and they rarely stay long on the surface."

@@ -1,0 +1,3 @@
+<!-- topic: Black Nobility | doc: posts/2023-10-16__short-situation-update | 2023-10-16 | Short Situation Update | keywords: black nobility -->
+[Relevant content] The Light Forces have communicated to Black nobility families that they will begin removing them from the surface of the planet if the conflict in the Middle East escalates much further. This is cited as the real reason why Israel is hesitant to begin the ground offensive in Gaza.
+[Key quotes] "They have communicated to Black nobility families that they will begin removing them from the surface of the planet if this conflict escalates much further."

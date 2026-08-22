@@ -1,0 +1,4 @@
+<!-- topic: Toplet Bomb | doc: posts/2019-07-01__flower-of-life | 2019-07-01 | Flower of Life | keywords: toplet bomb, toplet -->
+[Relevant content] Since mid-April, Earth fluctuated between gamma and delta timelines. Light Forces were clearing a very dangerous layer of plasma anomaly with toplet bombs. This layer was successfully removed on June 21st around noon GMT, greatly reducing the danger. Although some toplet bombs still exist, the positive gamma timeline is now much more secure.
+[Key quotes] "During this time, the Light Forces were clearing one very dangerous layer of plasma anomaly with toplet bombs."
+"This layer has been successfully removed on June 21st around noon GMT and the danger has been greatly reduced. Although some toplet bombs still exist... the positive gamma timeline is now much more secure."

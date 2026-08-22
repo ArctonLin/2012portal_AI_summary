@@ -1,0 +1,5 @@
+<!-- topic: Cabal | doc: meeting/2018-05-31__taiwan-conference-report-and-planetary | 2018-05-31 | taiwan-conference-report-and-planetary | keywords: cabal -->
+[Relevant content] [reported] The Cabal cannot accuse property owners of violating laws regarding the Contact Dish project because it is private property. The Cabal will try to spin fake stories through mainstream media, such as fake alien invasions or negative Pleiadians. Chemtrails are part of the mass extinction program of the dark forces and are a waste of resources for the Cabal.
+[Key quotes] "It needs to be your private property so as the Cabal cannot accuse you of violating laws."
+"They will try to spin a fake story through the mainstream media, e.g. the announcements of fake alien invasions will increase, or negative Pleiadians, or a negative Ashtar Command. This is the Cabal spinning the story."
+"Chemtrails are part of the mass extinction programme of the dark forces. They are only 1% effective and are a big waste of their resources."

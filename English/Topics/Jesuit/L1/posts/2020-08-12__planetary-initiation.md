@@ -1,0 +1,5 @@
+<!-- topic: Jesuit | doc: posts/2020-08-12__planetary-initiation | 2020-08-12 | Planetary Initiation | keywords: jesuit -->
+[Relevant content] The real orchestrators of the Beirut explosion are the Black Nobility families and the Jesuits. Peter Hans Kolvenbach, former Jesuit superior general, lived and died in Beirut. Beirut is the site of the Goddess Vortex of Nymph Beroe, which Jesuits want to destroy. Jesuits are using challenging Mars energy to create a war between China and USA and to polarize the USA further. Jesuits and Black Nobility families are using Saturn-Chariklo energy to promote lockdowns for New World Order plans.
+[Key quotes] "The real orchestrators of this attack are the Black Nobility families and the Jesuits."
+"It is also interesting to note that Beirut is the site of the Goddess Vortex of Nymph Beroe, which is one of the main vortexes Jesuits want to destroy"
+"Jesuits are also using this challenging Mars energy in their attempt to create a war between China and USA"

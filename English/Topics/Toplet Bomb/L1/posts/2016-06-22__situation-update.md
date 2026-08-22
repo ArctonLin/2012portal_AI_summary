@@ -1,0 +1,5 @@
+<!-- topic: Toplet Bomb | doc: posts/2016-06-22__situation-update | 2016-06-22 | Situation Update | keywords: toplet bomb, toplet -->
+[Relevant content] Removal of the remaining plasma toplet bombs has proven more difficult than expected because they are protected with quantum potential chambers throughout the Solar System. These chambers create an accretion vortex for primary plasma anomaly. The Light forces use ATVOR technology to resolve the anomaly; when the critical mass is resolved, they will annihilate the remaining toplet bombs once and for all. This annihilation will be the moment of Compression Breakthrough (the Event).
+[Key quotes] "Removal of the remaining plasma toplet bombs has proven to be more difficult than expected, as they are protected with quantum potential chambers throughout the Solar System."
+"The Light forces then apply the ATVOR technology again until the critical mass of the primary anomaly gets resolved, and then they will annihilate the remaining toplet bombs once and for all."
+"That will be the moment of Compression Breakthrough, the Event."

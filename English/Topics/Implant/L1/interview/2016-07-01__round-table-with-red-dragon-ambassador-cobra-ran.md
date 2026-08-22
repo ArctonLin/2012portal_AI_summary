@@ -1,0 +1,4 @@
+<!-- topic: Implant | doc: interview/2016-07-01__round-table-with-red-dragon-ambassador-cobra-ran | 2016-07-01 | Round table with Red Dragon Ambassador Cobra, Randy Cramer and Rob Potter | keywords: implant -->
+[Relevant content] [reported] Randy Cramer states that members of the United States Marine Corp Special Section are "psionically genetically enhanced, given implants and then connected up to a psionic computer" which routes them together to create a simulated hive mind for military intelligence purposes.
+
+[Key quotes] "every single member of the United States Marine Corp Special Section, is psionically trained, psionically conditioned , psionically genetically enhanced, given implants and then connected up to a psionic computer which essentially routes everyone together so it gives a simulated hive mind"

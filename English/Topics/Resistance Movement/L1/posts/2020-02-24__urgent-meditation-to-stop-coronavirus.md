@@ -1,0 +1,3 @@
+<!-- topic: Resistance Movement | doc: posts/2020-02-24__urgent-meditation-to-stop-coronavirus | 2020-02-24 | Urgent Meditation to Stop the Coronavirus Outbreak in Italy | keywords: resistance movement, resistance -->
+[Relevant content] Individuals located in or near specific cities in Italy willing to assist with placing Cintamani stones to clear the plasma layer and stop the virus outbreak can contact the Resistance via the email address cobraresistance@gmail.com for instructions.
+[Key quotes] "Anybody located in or near those cities willing to assist can contact cobraresistance@gmail.com for instructions."

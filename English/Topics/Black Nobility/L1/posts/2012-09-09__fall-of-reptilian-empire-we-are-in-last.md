@@ -1,0 +1,3 @@
+<!-- topic: Black Nobility | doc: posts/2012-09-09__fall-of-reptilian-empire-we-are-in-last | 2012-09-09 | fall of reptilian empire we are in last | keywords: black nobility -->
+[Relevant content] The document describes the Reptilian empire on the etheric and astral planes as operating under the dictate of the Archons and black nobility, which guided the Cabal financial slavery system on the physical plane.
+[Key quotes] "Reptilian empire on the etheric and astral planes around the surface of planet Earth under the dictate of the Archons and black nobility guided Cabal financial slavery system on the physical plane of the surface of this planet is the last stronghold of once vast Orion dark empire..."

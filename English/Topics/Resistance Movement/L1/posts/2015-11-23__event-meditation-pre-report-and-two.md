@@ -1,0 +1,3 @@
+<!-- topic: Resistance Movement | doc: posts/2015-11-23__event-meditation-pre-report-and-two | 2015-11-23 | Event Meditation Pre-Report and Two Cobra Interviews | keywords: resistance movement, resistance -->
+[Relevant content] The document references a "November monthly update Cobra interview" by Rob Potter, which is titled the "Cobra Resistance Interview" and includes a transcript.
+[Key quotes] "The November monthly update Cobra interview by Rob Potter has also been posted, together with the transcript, which you can see on this page: http://thepromiserevealed.com/2015-november-12-cobra-resistance-interview/"

@@ -1,0 +1,3 @@
+<!-- topic: Toplet Bomb | doc: meeting/2015-03-25__cobra-march-2015-monthly-update-interview | 2015-03-25 | Cobra March 2015 Monthly Update Interview | keywords: toplet bomb, toplet -->
+[Relevant content] [reported] In 2012, the majority of the solar system was cleared, leaving only the Chimera group, whose main problem was their connection with the Strangelet and Toplet bombs on the physical and plasma plane.
+[Key quotes] "In 2012 the majority of this solar system was cleared, only the Chimera group was remaining. This group represents only a few beings, yet the main problem was their connection with the Strangelet and Toplet bombs (on the physical and plasma plane)."

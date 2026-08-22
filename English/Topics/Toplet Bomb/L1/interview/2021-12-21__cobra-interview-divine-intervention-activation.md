@@ -1,0 +1,4 @@
+<!-- topic: Toplet Bomb | doc: interview/2021-12-21__cobra-interview-divine-intervention-activation | 2021-12-21 | Cobra Interview: Divine Intervention Activation | keywords: toplet bomb, toplet -->
+[Relevant content] It is asked if new toplet bombs will be made from the Black Stone at Urim base. Theoretically, dark forces could create a small top-quark condensate that decomposes very fast, but practically speaking, they cannot make toplet bombs anymore.
+[Key quotes] "Is it possible that new toplet bombs will be made from the Black Stone at Urim base? Or can the dark forces still create any new toplet bombs at all?"
+"Okay. Theoretically, the dark forces could create a small, very small top-quark condensate, which would decompose very fast. So practically speaking, they cannot make toplet bombs anymore."

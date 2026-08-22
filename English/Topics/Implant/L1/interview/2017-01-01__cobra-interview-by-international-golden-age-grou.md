@@ -1,0 +1,4 @@
+<!-- topic: Implant | doc: interview/2017-01-01__cobra-interview-by-international-golden-age-grou | 2017-01-01 | Cobra interview by International Golden Age Group | keywords: implant -->
+[Relevant content] [reported] Patrick asks if Martians accepted an "implant process" after being tricked by Archons. Cobra declines to answer simply, stating the history of Mars is complex with a mixture of races living on and below the surface.
+
+[Key quotes] "P : According to Drunvalo Melchizedeck, the Martians severed their own female aspects and separated themselves from the Source after accepting the Lucifer experiment. I wonder if Martians were tricked by the Archons and then accepted their implant process. C : Ok basically I do not agree with many ideas that were released about Mars, the history of Mars is a little bit more complex than people portray..."

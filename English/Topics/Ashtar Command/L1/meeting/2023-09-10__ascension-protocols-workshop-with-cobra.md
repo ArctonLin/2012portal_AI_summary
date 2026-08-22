@@ -1,0 +1,5 @@
+<!-- topic: Ashtar Command | doc: meeting/2023-09-10__ascension-protocols-workshop-with-cobra | 2023-09-10 | Ascension Protocols Workshop with Cobra on September 10, 2023, in Germany | keywords: ashtar command -->
+[Relevant content] [reported] Since 1996, dark forces have maintained a campaign against the Galactic Confederation and the Ashtar Command, which was recently broken through the Pillar of Light. The Ashtar Command is identified as the source of the mothership emitting the sky-blue pillar of light used in the ATVOR meditation. Participants are instructed to visualize the mothership of the Ashtar Command and breathe the name "Ashtar Command" into their heart to connect with the mothership.
+[Key quotes] "Since 1996, the dark forces have a campaign running against the Galactic Confederation and the Ashtar Command."
+"The one coming from the sky is coming from a mothership of the Ashtar Command which is emitting this pillar of light."
+"When you breathe in, breathe into your heart and say silently “Ashtar Command”."

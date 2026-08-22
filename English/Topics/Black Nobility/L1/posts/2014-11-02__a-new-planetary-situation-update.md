@@ -1,0 +1,3 @@
+<!-- topic: Black Nobility | doc: posts/2014-11-02__a-new-planetary-situation-update | 2014-11-02 | A New Planetary Situation Update | keywords: black nobility -->
+[Relevant content] The post states that "Black Nobility Archon families and their Jesuit minions in Italy are losing their power." It cites problems in their "little bank" (linking to an article about the world's oldest bank having shares suspended) and losing power over Italy-EU relations as evidence of this decline.
+[Key quotes] "The Black Nobility Archon families and their Jesuit minions in Italy are losing their power as they have problems in their little bank:"

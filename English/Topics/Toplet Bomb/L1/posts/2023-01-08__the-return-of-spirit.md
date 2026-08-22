@@ -1,0 +1,3 @@
+<!-- topic: Toplet Bomb | doc: posts/2023-01-08__the-return-of-spirit | 2023-01-08 | The Return of Spirit | keywords: toplet bomb, toplet -->
+[Relevant content] Millions of years ago, the Chimera built huge particle accelerators (Dyson rings) in the Rigel star system to create top quark and strange quark condensate. This material was used to create toplet and strangelet bombs to control the Rigel and Sol star systems.
+[Key quotes] "They were using those Dyson rings to create a sufficient amount of top quark and strange quark condensate to create a sufficient amount of toplet and strangelet bombs to control the Rigel and Sol star systems"

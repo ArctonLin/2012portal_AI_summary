@@ -1,0 +1,3 @@
+<!-- topic: Jesuit | doc: posts/2023-05-13__portal-of-light-activation-and-taiwan | 2023-05-13 | Portal of Light Activation and Taiwan Conference Reports | keywords: jesuit -->
+[Relevant content] The Donation of Pepin (year 756) is cited as a historical parallel where a secular ruler ceded territories to the Pope. The text draws a symbolic parallel to a recent meeting between Macron (described as a Rothschild puppet) and Xi (described as a Jesuit minion).
+[Key quotes] "It is not a coincidence that this was the exact year of the Donation of Pepin... In which the secular ruler (now Macron, a Rothschild puppet) ceded territories to the Pope (now Xi, a Jesuit minion)."

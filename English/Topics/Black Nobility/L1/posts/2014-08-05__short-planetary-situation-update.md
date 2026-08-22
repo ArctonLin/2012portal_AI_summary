@@ -1,0 +1,3 @@
+<!-- topic: Black Nobility | doc: posts/2014-08-05__short-planetary-situation-update | 2014-08-05 | Short Planetary Situation Update | keywords: black nobility -->
+[Relevant content] The document describes the Archons as "black nobility families behind the Jesuits, focused on keeping humanity as religion-programmed slaves in reincarnation cycle," and states they are still at the top of the food chain alongside the Chimera group.
+[Key quotes] "The Chimera... and the Archons (black nobility families behind the Jesuits, focused on keeping humanity as religion-programmed slaves in reincarnation cycle) are still at the top of the food chain."

@@ -1,0 +1,3 @@
+<!-- topic: Illuminati | doc: interview/2016-10-01__cobra-september-2016-interview-with-lynn | 2016-10-01 | Cobra September 2016 Interview with Lynn | keywords: illuminati, brotherhood of death -->
+[Relevant content] [reported] Cobra states that there were a few Illuminati families controlling South Africa, using diamond mining as a tool for control, and that the country was a major occult energy vortex for Cabal domination, particularly in the 19th century.
+[Key quotes] "Yes, it’s true and there were a few of the Illuminati families that for controlling South Africa and were using especially diamond mining was one of the controlling tools and South Africa was one of the major occult energy vortexes for the Cabal domination especially in one period in the 19th century."

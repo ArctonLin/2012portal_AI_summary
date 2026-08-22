@@ -1,0 +1,5 @@
+<!-- topic: Cabal | doc: interview/2013-03-26__cobra-interview-with-alexandra-meadors | 2013-03-26 | Cobra Interview with Alexandra Meadors | keywords: cabal -->
+[Relevant content] [reported] The tension between Uranus and Pluto brings to the surface the control of the Cabal. The Cabal is trying to steal money to keep the matrix running, needing 1-2 billion daily. The Cabal can use fractional banking to leverage people's money. The Cabal is controlling the credit union system. The Cabal's long-term plan involves creating hatred and conflict between nations and races. Certain fractions of the Cabal used warriors to test trauma influence on the mind. The Cabal blocked access to tunnels under the Sphinx after the Resistance retrieved crystals in 1998. The Cabal is desperate and losing power.
+[Key quotes] "It brings to the surface all the control of the cabal."
+"They need 1 or 2 billion daily just to keep it running."
+"Certain fraction of the cabal were using those warriors to test the influence of traumas on the human mind."

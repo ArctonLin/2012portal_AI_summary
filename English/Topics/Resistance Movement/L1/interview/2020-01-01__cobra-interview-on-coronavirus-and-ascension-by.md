@@ -1,0 +1,5 @@
+<!-- topic: Resistance Movement | doc: interview/2020-01-01__cobra-interview-on-coronavirus-and-ascension-by | 2020-01-01 | Cobra Interview on Coronavirus and Ascension by Sisterhood of the Rose | keywords: resistance movement, resistance -->
+[Relevant content] [reported] The Resistance was able to destroy biochips that were intended to be included in vaccines to control the surface population. [reported] The Resistance Movement has advised the surface population to take cash out of banks. [reported] It is not possible for lightworkers to start receiving funds from the Resistance Movement or light forces before the Event.
+[Key quotes] "I know you shared with us later that the Resistance was able to destroy these biochips but that the vaccines still could contain dangerous chemicals."
+"Maybe that’s why the Resistance Movement has advised taking cash out of the banks."
+"Is it possible yet for some lightworkers to start receiving funds from the Resistance Movement or the light forces? ... No, not before the Event."

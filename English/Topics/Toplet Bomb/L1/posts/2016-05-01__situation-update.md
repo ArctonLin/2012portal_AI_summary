@@ -1,0 +1,3 @@
+<!-- topic: Toplet Bomb | doc: posts/2016-05-01__situation-update | 2016-05-01 | Situation Update | keywords: toplet bomb, toplet -->
+[Relevant content] Until now, the Chimera controlled the flow of intel and communication between factions by threatening to activate strangelet and toplet bombs if the information blockade was not respected. This information barrier is now slowly dissolving.
+[Key quotes] "Until now, the Chimera was controlling the flow of intel and communication between various factions inside our Solar System, threatening to activate strangelet and toplet bomb if information blockade would not be respected by all factions."

@@ -1,0 +1,3 @@
+<!-- topic: Illuminati | doc: interview/2013-06-04__cobra-interview-with-alexandra-on-galactic-conne | 2013-06-04 | Cobra Interview with Alexandra on Galactic Connection | keywords: illuminati, brotherhood of death -->
+[Relevant content] [reported] Cobra confirms that there were many infiltrations into the Illuminati by negative entities (such as Annunaki, per the questioner's context), but states this is diminishing and those present are being cut down and removed.
+[Key quotes] "Yes there was many infiltrations into the Illuminati. This is diminishing. There are a certain number present on the surface but are being cut down and removed."

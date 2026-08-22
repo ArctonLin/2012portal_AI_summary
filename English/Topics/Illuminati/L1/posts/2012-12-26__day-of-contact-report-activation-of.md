@@ -1,0 +1,3 @@
+<!-- topic: Illuminati | doc: posts/2012-12-26__day-of-contact-report-activation-of | 2012-12-26 | day of contact report activation of | keywords: illuminati, brotherhood of death -->
+[Relevant content] During the December 21st activation, an "Illuminati freemason group from the United States" locked itself into the Cheops pyramid in Egypt, performing rituals to prevent the opening of the Portal.
+[Key quotes] "During the timeframe of our activations, a Illuminati freemason group from the United States has locked itself into the Cheops pyramid, doing one ritual after another, fanatically trying to prevent the opening of the Portal."

@@ -1,0 +1,6 @@
+<!-- topic: Cabal | doc: interview/2015-11-12__cobra-resistance-interview-with-rob | 2015-11-12 | Cobra Resistance Interview with Rob | keywords: cabal -->
+[Relevant content] Rob mentions that individuals claiming a 100-year delay of the financial system are part of the "old school Cabal." [reported] COBRA clarifies that not all groups are part of the old school Cabal, but many have been put on the backburner because the Cabal was having their time; these groups now feel it is their time to act. [reported] COBRA states that the Cabal's motivation in the Ukraine situation is to keep the conflict going as long as possible. [reported] Rob notes that the Cabal is inches away from implementing plans for world domination via mandatory vaccines and gun confiscation. [reported] COBRA confirms that the Cabal's plan for an international raid into the Americas (unleashing borders from South/Central America) will not happen. [reported]
+
+[Key quotes] "Not all the groups are part of the old school Cabal, but there are many groups which have been put on the backburner because the Cabal was having their time and now they feel it’s their time."
+"the motivation of the Cabal is to keep that conflict going as long as possible."
+"This is just the plan of the Cabal and it will not happen."

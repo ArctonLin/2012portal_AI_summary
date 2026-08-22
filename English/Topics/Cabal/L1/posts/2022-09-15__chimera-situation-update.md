@@ -1,0 +1,3 @@
+<!-- topic: Cabal | doc: posts/2022-09-15__chimera-situation-update | 2022-09-15 | Chimera Situation Update | keywords: cabal -->
+[Relevant content] The plan of the top members of the Cabal is to destroy surface civilization through world war and supply chain destruction, then move into subsurface pits to weather the collapse and Solar flash, with the intention to repopulate the surface afterward.
+[Key quotes] "The plan of the top members of the Cabal is now to destroy the surface civilization with world war and destruction of supply chains and then move into subsurface pits to weather out the collapse and the subsequent Solar flash."

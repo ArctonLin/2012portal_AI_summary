@@ -1,0 +1,3 @@
+<!-- topic: Toplet Bomb | doc: meeting/2024-02-03__phoenix-ascension-conference-day-1 | 2024-02-03 | Phoenix Ascension Conference Day 1 Presented by Cobra | keywords: toplet bomb, toplet -->
+[Relevant content] [reported] A scientist observed the mass of an energy-charged top quark, which is responsible for the infamous toplet bomb. The result indicates that the universe is in a meta-stable state and will go through a phase transition to a more stable state.
+[Key quotes] "A scientist observed the mass of a energy charged top quark. Top quark is responsible for the infamous toplet bomb. The result is this, this universe is in a meta stable."

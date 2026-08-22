@@ -1,0 +1,3 @@
+<!-- topic: Implant | doc: interview/2014-08-26__cobra-interview-on-karma-and-archon-manipulation | 2014-08-26 | Cobra Interview on Karma and Archon Manipulation | keywords: implant -->
+[Relevant content] [reported] Rob asks how much human behavior will improve once scalar wave technology implants are removed. [reported] Cobra expects drastic improvement in human behavior because that technology is a main factor in why people act strange. He notes that when the technology is removed, light can disintegrate mind programming.
+[Key quotes] "When the scalar technology is removed I expect drastic improvement in human behavior, because that technology is one of the main factors why people are acting strange."

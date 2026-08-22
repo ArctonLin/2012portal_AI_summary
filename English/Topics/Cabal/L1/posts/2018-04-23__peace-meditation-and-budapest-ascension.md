@@ -1,0 +1,3 @@
+<!-- topic: Cabal | doc: posts/2018-04-23__peace-meditation-and-budapest-ascension | 2018-04-23 | Peace Meditation and Budapest Ascension Conference Report | keywords: cabal -->
+[Relevant content] Since the death of Isis Astara, the Resistance has been working to expose the existence of electromagnetic and directed energy weapons used by the Cabal to target the most awakened civilians.
+[Key quotes] "Since the death of Isis Astara, the Resistance has been working from behind the scenes to expose the existence of electromagnetic weapons, directed energy weapons and other weapons that are used by the Cabal to target the most awakened civilians, through the alternative media"

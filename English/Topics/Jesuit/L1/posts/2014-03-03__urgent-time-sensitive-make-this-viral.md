@@ -1,0 +1,4 @@
+<!-- topic: Jesuit | doc: posts/2014-03-03__urgent-time-sensitive-make-this-viral | 2014-03-03 | URGENT-TIME SENSITIVE-MAKE THIS VIRAL! PEACE MEDITATION FOR UKRAINE MARCH 4th, 2014 | keywords: jesuit -->
+[Relevant content] Zbigniew Brzezinski is identified as a Jesuit belonging to a black nobility family originating from Brzezany, Ukraine, and is described as the mastermind behind the Ukraine conflict. The plan of the Jesuits is to support the Illuminazi and Zionist factions in their hunger for war, hoping to suck Putin into a direct conflict.
+[Key quotes] "Zbigniew Brzezinski, a Jesuit belonging to a black nobility family originating from Brzezany, Ukraine, is the mastermind behind the Ukraine conflict."
+"The plan of the Jesuits is to support the Illuminazi and Zionist factions in their hunger for war, hoping to suck Putin into a direct conflict:"

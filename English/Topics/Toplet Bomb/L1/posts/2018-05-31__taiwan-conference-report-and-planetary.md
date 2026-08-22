@@ -1,0 +1,3 @@
+<!-- topic: Toplet Bomb | doc: posts/2018-05-31__taiwan-conference-report-and-planetary | 2018-05-31 | Taiwan Conference Report and Planetary Situation Update | keywords: toplet bomb, toplet -->
+[Relevant content] The remaining toplet plasma bombs are enmeshed in the surface population's primary anomaly. Light forces are executing protocols to disentangle this situation without destroying the planet.
+[Key quotes] "The remaining toplet plasma bombs are enmeshed in the surface population primary anomaly and the Light forces are carrying out their protocols to disentangle this mess without destroying the planet in the process."

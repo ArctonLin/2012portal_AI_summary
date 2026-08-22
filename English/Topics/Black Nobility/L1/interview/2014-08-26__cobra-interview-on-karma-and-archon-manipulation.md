@@ -1,0 +1,4 @@
+<!-- topic: Black Nobility | doc: interview/2014-08-26__cobra-interview-on-karma-and-archon-manipulation | 2014-08-26 | Cobra Interview on Karma and Archon Manipulation | keywords: black nobility -->
+[Relevant content] [reported] Rob asks if major Archons or high-level Cabal members, specifically "Black Nobility," have been removed recently. Cobra states that in the last few months, not many have been removed, but those remaining are losing power drastically. Cobra specifies that "All the Jesuits and the black nobility families are loosing power quite fast." Cobra adds that on the highest level, they do not have the power they had even half a year ago.
+[Key quotes] "What is the situation with the major Archons? Have we had some major influential Black Nobility or high level Cabal members been removed lately?"
+"All the Jesuits and the black nobility families are loosing power quite fast."
