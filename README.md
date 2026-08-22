@@ -5,9 +5,11 @@ I use Local LLM to do this summmary task. Didn't connect to internet. Not censor
 
 LLM Hardware: NVIDIA GB10 128GB/2TB + 108TB NAS Storage with 10Gbps Ethernet
 
-LLM Software: llama-b10327-vulkan-arm64
+LLM Software: llama-b10549-cuda-arm64 (sm_121)
 
 LLM Model: Qwen3.8-27B-NVFP4-MTP-Q8attn
+
+LLM Setting: MTP=2 / ContentWindow=262144
 
 ## Code:
 Our code is generate by above Local LLM and run full night to abstract and summary 910 post/meeting/interview by Layer 1, L2, L3
